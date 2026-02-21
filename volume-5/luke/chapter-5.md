@@ -1,7 +1,8 @@
 ---
 title: "Luke 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter, we have, I. Christ preaching to the people out of Peter\'s ship, for want of a better pulpit, Lu 5:1-3. II. The recompence he made to Peter for the loan of his boat..."
+description: >
+  In this chapter, we have, I. Christ preaching to the people out of Peter's ship, for want of a better pulpit, Lu 5:1-3. II. The recompence he made to Peter for the loan of his boat...
 weight: 5
 ---
 

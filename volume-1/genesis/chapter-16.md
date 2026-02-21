@@ -1,7 +1,8 @@
 ---
 title: "Genesis 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "Hagar is the person mostly concerned in the story of this chapter, an obscure Egyptian woman, whose name and story we never should have heard of if Providence had not brought her i..."
+description: >
+  Hagar is the person mostly concerned in the story of this chapter, an obscure Egyptian woman, whose name and story we never should have heard of if Providence had not brought her i...
 weight: 16
 ---
 

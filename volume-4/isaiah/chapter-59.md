@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 59 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "59"
-description: "In this chapter we have sin appearing exceedingly sinful, and grace appearing exceedingly gracious; and, as what is here said of the sinner\'s sin (Isa 59:7,8) is applied to the gen..."
+description: >
+  In this chapter we have sin appearing exceedingly sinful, and grace appearing exceedingly gracious; and, as what is here said of the sinner's sin (Isa 59:7,8) is applied to the gen...
 weight: 59
 ---
 

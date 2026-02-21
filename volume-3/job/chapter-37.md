@@ -1,7 +1,8 @@
 ---
 title: "Job 37 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "37"
-description: "Elihu here goes on to extol the wonderful power of God in the meteors and all the changes of the weather: if, in those changes, we submit to the will of God, take the weather as it..."
+description: >
+  Elihu here goes on to extol the wonderful power of God in the meteors and all the changes of the weather: if, in those changes, we submit to the will of God, take the weather as it...
 weight: 37
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Joshua 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "This short chapter is concerning the cities of refuge, which we often read of in the writings of Moses, but this is the last time that we find mention of them, for now that matter ..."
+description: >
+  This short chapter is concerning the cities of refuge, which we often read of in the writings of Moses, but this is the last time that we find mention of them, for now that matter ...
 weight: 20
 ---
 

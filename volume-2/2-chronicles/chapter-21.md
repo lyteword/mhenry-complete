@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "Never surely did any kingdom change its king so much for the worse as Judah did, when Jehoram, one of the vilest, succeeded Jehoshaphat, one of the best. Thus were they punished fo..."
+description: >
+  Never surely did any kingdom change its king so much for the worse as Judah did, when Jehoram, one of the vilest, succeeded Jehoshaphat, one of the best. Thus were they punished fo...
 weight: 21
 ---
 

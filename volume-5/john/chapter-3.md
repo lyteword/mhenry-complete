@@ -1,7 +1,8 @@
 ---
 title: "John 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In this chapter we have, I. Christ\'s discourse with Nicodemus, a Pharisee, concerning the great mysteries of the gospel, in which he here privately instructs him, Joh 3:1-21. II. J..."
+description: >
+  In this chapter we have, I. Christ's discourse with Nicodemus, a Pharisee, concerning the great mysteries of the gospel, in which he here privately instructs him, Joh 3:1-21. II. J...
 weight: 3
 ---
 

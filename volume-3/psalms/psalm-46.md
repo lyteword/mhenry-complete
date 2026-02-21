@@ -1,7 +1,8 @@
 ---
 title: "Psalm 46 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "46"
-description: "This psalm encourages us to hope and trust in God, and his power, and providence, and gracious presence with his church in the worst of times, and directs us to give him the glory ..."
+description: >
+  This psalm encourages us to hope and trust in God, and his power, and providence, and gracious presence with his church in the worst of times, and directs us to give him the glory ...
 weight: 46
 ---
 

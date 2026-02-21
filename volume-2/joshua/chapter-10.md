@@ -1,7 +1,8 @@
 ---
 title: "Joshua 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "We have in this chapter an account of the conquest of the kings and kingdoms of the southern part of the land of Canaan, as, in the next chapter, of the reduction of the northern p..."
+description: >
+  We have in this chapter an account of the conquest of the kings and kingdoms of the southern part of the land of Canaan, as, in the next chapter, of the reduction of the northern p...
 weight: 10
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "The cries of oppressed poverty being stilled, we are now to enquire how the building of the wall goes forward, and in this chapter we find it carried on with vigour and finished wi..."
+description: >
+  The cries of oppressed poverty being stilled, we are now to enquire how the building of the wall goes forward, and in this chapter we find it carried on with vigour and finished wi...
 weight: 6
 ---
 

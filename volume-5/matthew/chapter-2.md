@@ -1,7 +1,8 @@
 ---
 title: "Matthew 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter, we have the history of our Saviour\'s infancy, where we find how early he began to suffer, and that in him the word of righteousness was fulfilled, before he himsel..."
+description: >
+  In this chapter, we have the history of our Saviour's infancy, where we find how early he began to suffer, and that in him the word of righteousness was fulfilled, before he himsel...
 weight: 2
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Joshua 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "This chapter continues and concludes the history of the conquest of Canaan; of the reduction of the southern parts we had an account in the foregoing chapter, after which we may su..."
+description: >
+  This chapter continues and concludes the history of the conquest of Canaan; of the reduction of the southern parts we had an account in the foregoing chapter, after which we may su...
 weight: 11
 ---
 

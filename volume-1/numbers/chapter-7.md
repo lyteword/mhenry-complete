@@ -1,7 +1,8 @@
 ---
 title: "Numbers 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "God having set up house (as it were) in the midst of the camp of Israel, the princes of Israel here come a visiting with their presents, as tenants to their landlord, in the name o..."
+description: >
+  God having set up house (as it were) in the midst of the camp of Israel, the princes of Israel here come a visiting with their presents, as tenants to their landlord, in the name o...
 weight: 7
 ---
 

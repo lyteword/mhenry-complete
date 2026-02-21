@@ -1,7 +1,8 @@
 ---
 title: "Luke 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "In this chapter we have, I. The parable of the importunate widow, designed to teach us fervency in prayer, Lu 18:1-8. II. The parable of the Pharisee and publican, designed to teac..."
+description: >
+  In this chapter we have, I. The parable of the importunate widow, designed to teach us fervency in prayer, Lu 18:1-8. II. The parable of the Pharisee and publican, designed to teac...
 weight: 18
 ---
 

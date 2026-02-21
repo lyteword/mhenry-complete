@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "Solomon\'s trading, which we read of in the close of the foregoing chapter, and the encouragement he gave both to merchandise and manufacturers, were very commendable. But building ..."
+description: >
+  Solomon's trading, which we read of in the close of the foregoing chapter, and the encouragement he gave both to merchandise and manufacturers, were very commendable. But building ...
 weight: 2
 ---
 

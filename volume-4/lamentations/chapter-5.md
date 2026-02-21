@@ -1,7 +1,8 @@
 ---
 title: "Lamentations 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "This chapter, though it has the same number of verses with the 1st, 2nd, and 4th, is not alphabetical, as they were, but the scope of it is the same with that of all the foregoing ..."
+description: >
+  This chapter, though it has the same number of verses with the 1st, 2nd, and 4th, is not alphabetical, as they were, but the scope of it is the same with that of all the foregoing ...
 weight: 5
 ---
 

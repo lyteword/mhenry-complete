@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 45 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "45"
-description: "The prophecy we have in this chapter concerns Baruch only, yet is intended for the support and encouragement of all the Lord\'s people that serve him faithfully and keep closely to ..."
+description: >
+  The prophecy we have in this chapter concerns Baruch only, yet is intended for the support and encouragement of all the Lord's people that serve him faithfully and keep closely to ...
 weight: 45
 ---
 

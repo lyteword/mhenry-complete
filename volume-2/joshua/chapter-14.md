@@ -1,7 +1,8 @@
 ---
 title: "Joshua 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "Here is, I. The general method that was taken in dividing the land, Jos 14:1-5. II. The demand Caleb made of Hebron, as his by promise, and therefore not to be put into the lot wit..."
+description: >
+  Here is, I. The general method that was taken in dividing the land, Jos 14:1-5. II. The demand Caleb made of Hebron, as his by promise, and therefore not to be put into the lot wit...
 weight: 14
 ---
 

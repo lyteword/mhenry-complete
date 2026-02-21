@@ -1,7 +1,8 @@
 ---
 title: "Psalm 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "It appears by the title that this psalm was penned with a particular reference to the malicious imputations that David was unjustly laid under by some of his enemies. Being thus wr..."
+description: >
+  It appears by the title that this psalm was penned with a particular reference to the malicious imputations that David was unjustly laid under by some of his enemies. Being thus wr...
 weight: 7
 ---
 

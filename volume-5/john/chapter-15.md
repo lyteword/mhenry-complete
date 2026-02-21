@@ -1,7 +1,8 @@
 ---
 title: "John 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "It is generally agreed that Christ\'s discourse in this and the next chapter was at the close of the last supper, the night in which he was betrayed, and it is a continued discourse..."
+description: >
+  It is generally agreed that Christ's discourse in this and the next chapter was at the close of the last supper, the night in which he was betrayed, and it is a continued discourse...
 weight: 15
 ---
 

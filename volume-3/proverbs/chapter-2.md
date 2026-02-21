@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "Solomon, having foretold the destruction of those who are obstinate in their impiety, in this chapter applies himself to those who are willing to be taught; and, I. He shows them t..."
+description: >
+  Solomon, having foretold the destruction of those who are obstinate in their impiety, in this chapter applies himself to those who are willing to be taught; and, I. He shows them t...
 weight: 2
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "It is plain that the prophecies of this book are not placed here in the same order in which they were preached; for there are chapters after this which concern Jehoahaz, Jehoiakim,..."
+description: >
+  It is plain that the prophecies of this book are not placed here in the same order in which they were preached; for there are chapters after this which concern Jehoahaz, Jehoiakim,...
 weight: 21
 ---
 

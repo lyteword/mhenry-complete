@@ -1,7 +1,8 @@
 ---
 title: "2 Thessalonians 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "After the introduction (2Th 1:1,2) the apostle begins this epistle with an account of his high esteem for these Thessalonians, 2Th 1:3,4. He then comforts them under their afflicti..."
+description: >
+  After the introduction (2Th 1:1,2) the apostle begins this epistle with an account of his high esteem for these Thessalonians, 2Th 1:3,4. He then comforts them under their afflicti...
 weight: 1
 ---
 

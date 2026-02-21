@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "The bringing in of the ark to the city of David was a very good work; it was resolved upon (1Ch 13:4), and attempted, but not perfected; it lay by the way in the house of Obed-edom..."
+description: >
+  The bringing in of the ark to the city of David was a very good work; it was resolved upon (1Ch 13:4), and attempted, but not perfected; it lay by the way in the house of Obed-edom...
 weight: 15
 ---
 

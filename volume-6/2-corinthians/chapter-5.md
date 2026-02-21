@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "The apostle proceeds in showing the reasons why they did not faint under their afflictions, namely, their expectation, desire, and assurance of happiness after death (2Co 5:1-5), a..."
+description: >
+  The apostle proceeds in showing the reasons why they did not faint under their afflictions, namely, their expectation, desire, and assurance of happiness after death (2Co 5:1-5), a...
 weight: 5
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "This chapter continues the history of the succession in the kingdoms both of Judah and Israel. I. In the kingdom of Judah here is, 1. The entire history (as much as is recorded in ..."
+description: >
+  This chapter continues the history of the succession in the kingdoms both of Judah and Israel. I. In the kingdom of Judah here is, 1. The entire history (as much as is recorded in ...
 weight: 14
 ---
 

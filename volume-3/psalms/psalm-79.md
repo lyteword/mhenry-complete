@@ -1,7 +1,8 @@
 ---
 title: "Psalm 79 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "79"
-description: "This psalm, if penned with any particular event in view, is with most probability made to refer to the destruction of Jerusalem and the temple, and the woeful havoc made of the Jew..."
+description: >
+  This psalm, if penned with any particular event in view, is with most probability made to refer to the destruction of Jerusalem and the temple, and the woeful havoc made of the Jew...
 weight: 79
 ---
 

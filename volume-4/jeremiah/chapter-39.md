@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 39 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "39"
-description: "As the prophet Isaiah, after he had largely foretold the deliverance of Jerusalem out of the hands of the king of Assyria, gave a particular narrative of the story, that it might a..."
+description: >
+  As the prophet Isaiah, after he had largely foretold the deliverance of Jerusalem out of the hands of the king of Assyria, gave a particular narrative of the story, that it might a...
 weight: 39
 ---
 

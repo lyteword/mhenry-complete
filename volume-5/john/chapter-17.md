@@ -1,7 +1,8 @@
 ---
 title: "John 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "This chapter is a prayer, it is the Lord\'s prayer, the Lord Christ\'s prayer. There was one Lord\'s prayer which he taught us to pray, and did not pray himself, for he needed not to ..."
+description: >
+  This chapter is a prayer, it is the Lord's prayer, the Lord Christ's prayer. There was one Lord's prayer which he taught us to pray, and did not pray himself, for he needed not to ...
 weight: 17
 ---
 

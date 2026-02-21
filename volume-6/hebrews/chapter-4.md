@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "The apostle, having in the foregoing chapter set forth the sin and punishment of the ancient Jews, proceeds in this, I. To declare that our privileges by Christ under the gospel ex..."
+description: >
+  The apostle, having in the foregoing chapter set forth the sin and punishment of the ancient Jews, proceeds in this, I. To declare that our privileges by Christ under the gospel ex...
 weight: 4
 ---
 

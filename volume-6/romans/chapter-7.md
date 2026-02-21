@@ -1,7 +1,8 @@
 ---
 title: "Romans 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "We may observe in this chapter, I. Our freedom from the law further urged as an argument to press upon us sanctification, Ro 7:1-6. II. The excellency and usefulness of the law ass..."
+description: >
+  We may observe in this chapter, I. Our freedom from the law further urged as an argument to press upon us sanctification, Ro 7:1-6. II. The excellency and usefulness of the law ass...
 weight: 7
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Genesis 48 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "48"
-description: "The time drawing nigh that Israel must die, having, in the former chapter, given order about his burial, in this he takes leave of his grand-children by Joseph, and in the next of ..."
+description: >
+  The time drawing nigh that Israel must die, having, in the former chapter, given order about his burial, in this he takes leave of his grand-children by Joseph, and in the next of ...
 weight: 48
 ---
 

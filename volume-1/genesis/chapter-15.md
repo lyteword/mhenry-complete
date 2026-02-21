@@ -1,7 +1,8 @@
 ---
 title: "Genesis 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "In this chapter we have a solemn treaty between God and Abram concerning a covenant that was to be established between them. In the former chapter we had Abram in the field with ki..."
+description: >
+  In this chapter we have a solemn treaty between God and Abram concerning a covenant that was to be established between them. In the former chapter we had Abram in the field with ki...
 weight: 15
 ---
 

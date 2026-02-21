@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "The design of Moses in this chapter is to convince the people of Israel of their utter unworthiness to receive from God those great favours that were now to be conferred upon them,..."
+description: >
+  The design of Moses in this chapter is to convince the people of Israel of their utter unworthiness to receive from God those great favours that were now to be conferred upon them,...
 weight: 9
 ---
 

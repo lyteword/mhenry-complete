@@ -1,7 +1,8 @@
 ---
 title: "Zephaniah 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter we have, I. An earnest exhortation to the nation of the Jews to repent and make their peace with God, and so to prevent the judgments threatened before it was too l..."
+description: >
+  In this chapter we have, I. An earnest exhortation to the nation of the Jews to repent and make their peace with God, and so to prevent the judgments threatened before it was too l...
 weight: 2
 ---
 

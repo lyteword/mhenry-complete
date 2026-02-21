@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "This chapter gives us an account of a war David has with the Ammonites and the Syrians their allies, with the occasion and success of it. I. David sent a friendly embassy to Hanun ..."
+description: >
+  This chapter gives us an account of a war David has with the Ammonites and the Syrians their allies, with the occasion and success of it. I. David sent a friendly embassy to Hanun ...
 weight: 10
 ---
 

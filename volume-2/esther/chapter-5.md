@@ -1,7 +1,8 @@
 ---
 title: "Esther 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "The last news we had of Haman left him in his cups, Es 3:15. Our last news of queen Esther left her in tears, fasting and praying. Now this chapter brings in, I. Esther in her joys..."
+description: >
+  The last news we had of Haman left him in his cups, Es 3:15. Our last news of queen Esther left her in tears, fasting and praying. Now this chapter brings in, I. Esther in her joys...
 weight: 5
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "God\'s prophet, who, in the chapters before, was an ambassador sent to promise peace, is here a herald sent to declare war. The Jewish nation shall recover its prosperity, and shall..."
+description: >
+  God's prophet, who, in the chapters before, was an ambassador sent to promise peace, is here a herald sent to declare war. The Jewish nation shall recover its prosperity, and shall...
 weight: 11
 ---
 

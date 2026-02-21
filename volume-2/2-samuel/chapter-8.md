@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "David having sought first the kingdom of God and the righteousness thereof, settling the ark as soon as he was himself well settled, we are here told how all other things were adde..."
+description: >
+  David having sought first the kingdom of God and the righteousness thereof, settling the ark as soon as he was himself well settled, we are here told how all other things were adde...
 weight: 8
 ---
 

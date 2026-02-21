@@ -1,7 +1,8 @@
 ---
 title: "Psalm 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "The former part of this psalm is the prayer of a saint militan and now in distress (Ps 28:1-3), to which is added the doom of God\'s implacable enemies, Ps 28:4,5. The latter part o..."
+description: >
+  The former part of this psalm is the prayer of a saint militan and now in distress (Ps 28:1-3), to which is added the doom of God's implacable enemies, Ps 28:4,5. The latter part o...
 weight: 28
 ---
 

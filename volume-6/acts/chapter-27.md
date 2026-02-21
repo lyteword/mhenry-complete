@@ -1,7 +1,8 @@
 ---
 title: "Acts 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
-description: "This whole chapter is taken up with an account of Paul\'s voyage towards Rome, when he was sent thither a prisoner by Festus the governor, upon his appeal to Cæsar. I. The beginning..."
+description: >
+  This whole chapter is taken up with an account of Paul's voyage towards Rome, when he was sent thither a prisoner by Festus the governor, upon his appeal to Cæsar. I. The beginning...
 weight: 27
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Thessalonians 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In the close of the foregoing chapter, the apostle had prayed earnestly for the Thessalonians, and now he desires their prayers, encouraging them to trust in God, to which he subjo..."
+description: >
+  In the close of the foregoing chapter, the apostle had prayed earnestly for the Thessalonians, and now he desires their prayers, encouraging them to trust in God, to which he subjo...
 weight: 3
 ---
 

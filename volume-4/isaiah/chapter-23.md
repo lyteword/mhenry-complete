@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "This chapter is concerning Tyre, an ancient wealthy city, situated upon the sea, and for many ages one of the most celebrated cities for trade and merchandise in those parts of the..."
+description: >
+  This chapter is concerning Tyre, an ancient wealthy city, situated upon the sea, and for many ages one of the most celebrated cities for trade and merchandise in those parts of the...
 weight: 23
 ---
 

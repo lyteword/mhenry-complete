@@ -1,7 +1,8 @@
 ---
 title: "Acts 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "The inspired historian begins his narrative of the Acts of the Apostles, I. With a reference to, and a brief recapitulation of, his gospel, or history of the life of Christ, inscri..."
+description: >
+  The inspired historian begins his narrative of the Acts of the Apostles, I. With a reference to, and a brief recapitulation of, his gospel, or history of the life of Christ, inscri...
 weight: 1
 ---
 

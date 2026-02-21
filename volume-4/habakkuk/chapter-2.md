@@ -1,7 +1,8 @@
 ---
 title: "Habakkuk 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter we have an answer expected by the prophet (Hab 2:1), and returned by the Spirit of God, to the complaints which the prophet made of the violences and victories of t..."
+description: >
+  In this chapter we have an answer expected by the prophet (Hab 2:1), and returned by the Spirit of God, to the complaints which the prophet made of the violences and victories of t...
 weight: 2
 ---
 

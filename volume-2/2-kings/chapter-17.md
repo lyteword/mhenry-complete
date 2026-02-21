@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "This chapter gives us an account of the captivity of the ten tribes, and so finishes the history of that kingdom, after it had continued about 265 years, from the setting up of Jer..."
+description: >
+  This chapter gives us an account of the captivity of the ten tribes, and so finishes the history of that kingdom, after it had continued about 265 years, from the setting up of Jer...
 weight: 17
 ---
 

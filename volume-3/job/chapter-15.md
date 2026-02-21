@@ -1,7 +1,8 @@
 ---
 title: "Job 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "Perhaps Job was so clear, and so well satisfied, in the goodness of his own cause, that he thought, if he had not convinced, yet he had at least silenced all his three friends; but..."
+description: >
+  Perhaps Job was so clear, and so well satisfied, in the goodness of his own cause, that he thought, if he had not convinced, yet he had at least silenced all his three friends; but...
 weight: 15
 ---
 

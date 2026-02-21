@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "How bravely Nehemiah, as a wise and faithful governor, stood upon his guard against the attacks of enemies abroad, we read in the foregoing chapter. Here we have him no less bold a..."
+description: >
+  How bravely Nehemiah, as a wise and faithful governor, stood upon his guard against the attacks of enemies abroad, we read in the foregoing chapter. Here we have him no less bold a...
 weight: 5
 ---
 

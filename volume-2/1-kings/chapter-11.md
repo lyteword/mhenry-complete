@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "This chapter begins with as melancholy a \"but\" as almost any we find in all the Bible. Hitherto we have read nothing of Solomon but what was great and good; but the lustre both of ..."
+description: >
+  This chapter begins with as melancholy a "but" as almost any we find in all the Bible. Hitherto we have read nothing of Solomon but what was great and good; but the lustre both of ...
 weight: 11
 ---
 

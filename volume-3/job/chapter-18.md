@@ -1,7 +1,8 @@
 ---
 title: "Job 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "In this chapter Bildad makes a second assault upon Job. In his first discourse (Job 8:1-22) he had given him encouragement to hope that all should yet be well with him. But here th..."
+description: >
+  In this chapter Bildad makes a second assault upon Job. In his first discourse (Job 8:1-22) he had given him encouragement to hope that all should yet be well with him. But here th...
 weight: 18
 ---
 

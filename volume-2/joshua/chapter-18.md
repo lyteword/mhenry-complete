@@ -1,7 +1,8 @@
 ---
 title: "Joshua 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "In this chapter we have, I. The setting up of the tabernacle at Shiloh, Jos 18:1. II. The stirring up of the seven tribes that were yet unsettled to look after their lot, and the p..."
+description: >
+  In this chapter we have, I. The setting up of the tabernacle at Shiloh, Jos 18:1. II. The stirring up of the seven tribes that were yet unsettled to look after their lot, and the p...
 weight: 18
 ---
 

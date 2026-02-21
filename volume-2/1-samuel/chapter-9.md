@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "Samuel had promised Israel, from God, that they should have a king; it is strange that the next news is not of candidates setting up for the government, making an interest in the p..."
+description: >
+  Samuel had promised Israel, from God, that they should have a king; it is strange that the next news is not of candidates setting up for the government, making an interest in the p...
 weight: 9
 ---
 

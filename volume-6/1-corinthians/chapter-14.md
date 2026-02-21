@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "In this chapter the apostle directs them about the use of their spiritual gifts, preferring those that are best and fitted to do the greatest good. I. He begins with advising them ..."
+description: >
+  In this chapter the apostle directs them about the use of their spiritual gifts, preferring those that are best and fitted to do the greatest good. I. He begins with advising them ...
 weight: 14
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 131 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "131"
-description: "This psalm is David\'s profession of humility, humbly made, with thankfulness to God for his grace, and not in vain-glory. It is probable enough that (as most interpreters suggest) ..."
+description: >
+  This psalm is David's profession of humility, humbly made, with thankfulness to God for his grace, and not in vain-glory. It is probable enough that (as most interpreters suggest) ...
 weight: 131
 ---
 

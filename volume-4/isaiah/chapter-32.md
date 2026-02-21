@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 32 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "32"
-description: "This chapter seems to be such a prophecy of the reign of Hezekiah as amounts to an abridgment of the history of it, and this with an eye to the kingdom of the Messiah, whose govern..."
+description: >
+  This chapter seems to be such a prophecy of the reign of Hezekiah as amounts to an abridgment of the history of it, and this with an eye to the kingdom of the Messiah, whose govern...
 weight: 32
 ---
 

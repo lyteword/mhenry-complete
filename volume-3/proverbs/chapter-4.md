@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "When the things of God are to be taught precept must be upon precept, and line upon line, not only because the things themselves are of great worth and weight, but because men\'s mi..."
+description: >
+  When the things of God are to be taught precept must be upon precept, and line upon line, not only because the things themselves are of great worth and weight, but because men's mi...
 weight: 4
 ---
 

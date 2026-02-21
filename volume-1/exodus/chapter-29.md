@@ -1,7 +1,8 @@
 ---
 title: "Exodus 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
-description: "Particular orders are given in this chapter, I. Concerning the consecration of the priests, and the sanctification of the altar, Ex 29:1-37. II. Concerning the daily sacrifice, Ex ..."
+description: >
+  Particular orders are given in this chapter, I. Concerning the consecration of the priests, and the sanctification of the altar, Ex 29:1-37. II. Concerning the daily sacrifice, Ex ...
 weight: 29
 ---
 

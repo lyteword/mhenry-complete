@@ -1,7 +1,8 @@
 ---
 title: "Revelation 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "After an account of the great trials and sufferings which the servants of God had endured, we have now a more pleasant scene opening; the day begins now to dawn, and here we have r..."
+description: >
+  After an account of the great trials and sufferings which the servants of God had endured, we have now a more pleasant scene opening; the day begins now to dawn, and here we have r...
 weight: 14
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Job 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
-description: "After that excellent discourse concerning wisdom in the foregoing chapter Job sat down and paused awhile, not because he had talked himself out of breath, but because he would not,..."
+description: >
+  After that excellent discourse concerning wisdom in the foregoing chapter Job sat down and paused awhile, not because he had talked himself out of breath, but because he would not,...
 weight: 29
 ---
 

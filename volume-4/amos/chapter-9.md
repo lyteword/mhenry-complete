@@ -1,7 +1,8 @@
 ---
 title: "Amos 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this chapter we have, I. Judgment threatened, which the sinners shall not escape (Am 9:1-4), which an almighty power shall inflict (Am 9:5,6), which the people of Israel have de..."
+description: >
+  In this chapter we have, I. Judgment threatened, which the sinners shall not escape (Am 9:1-4), which an almighty power shall inflict (Am 9:5,6), which the people of Israel have de...
 weight: 9
 ---
 

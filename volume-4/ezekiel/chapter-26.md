@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "The prophet had soon done with those four nations that he set his face against in the foregoing chapters; for they were not at that time very considerable in the world, nor would t..."
+description: >
+  The prophet had soon done with those four nations that he set his face against in the foregoing chapters; for they were not at that time very considerable in the world, nor would t...
 weight: 26
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Joel 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In the close of the foregoing chapter we had a gracious promise of deliverance in Mount Zion and Jerusalem; now this whole chapter is a comment upon that promise, showing what that..."
+description: >
+  In the close of the foregoing chapter we had a gracious promise of deliverance in Mount Zion and Jerusalem; now this whole chapter is a comment upon that promise, showing what that...
 weight: 3
 ---
 

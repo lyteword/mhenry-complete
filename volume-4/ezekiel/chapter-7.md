@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter the approaching ruin of the land of Israel is most particularly foretold in affecting expressions often repeated, that if possible they might be awakened by repenta..."
+description: >
+  In this chapter the approaching ruin of the land of Israel is most particularly foretold in affecting expressions often repeated, that if possible they might be awakened by repenta...
 weight: 7
 ---
 

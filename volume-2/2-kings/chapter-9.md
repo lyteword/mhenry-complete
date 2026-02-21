@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "Hazael and Jehu were the men that were designed to be the instruments of God\'s justice in punishing and destroying the house of Ahab. Elijah was told to appoint them to this servic..."
+description: >
+  Hazael and Jehu were the men that were designed to be the instruments of God's justice in punishing and destroying the house of Ahab. Elijah was told to appoint them to this servic...
 weight: 9
 ---
 

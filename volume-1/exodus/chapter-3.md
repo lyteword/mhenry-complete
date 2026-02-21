@@ -1,7 +1,8 @@
 ---
 title: "Exodus 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "As prophecy had ceased for many ages before the coming of Christ, that the revival and perfection of it in that great prophet might be the more remarkable, so vision had ceased (fo..."
+description: >
+  As prophecy had ceased for many ages before the coming of Christ, that the revival and perfection of it in that great prophet might be the more remarkable, so vision had ceased (fo...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Judges 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter we have, I. A particular message which God sent to Israel by an angel, and the impression it made upon them, Jdg 2:1-5. II. A general idea of the state of Israel du..."
+description: >
+  In this chapter we have, I. A particular message which God sent to Israel by an angel, and the impression it made upon them, Jdg 2:1-5. II. A general idea of the state of Israel du...
 weight: 2
 ---
 

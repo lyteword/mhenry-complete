@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
-description: "The first words of this chapter are the contents of it, \"These are the words of the covenant\" (De 29:1), that is, these that follow. Here is, I. A recital of God\'s dealings with th..."
+description: >
+  The first words of this chapter are the contents of it, "These are the words of the covenant" (De 29:1), that is, these that follow. Here is, I. A recital of God's dealings with th...
 weight: 29
 ---
 

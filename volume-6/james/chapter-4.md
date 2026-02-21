@@ -1,7 +1,8 @@
 ---
 title: "James 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter we are directed to consider, I. Some causes of contention, besides those mentioned in the foregoing chapter, and to watch against them, Jam 4:1-5. II. We are taught..."
+description: >
+  In this chapter we are directed to consider, I. Some causes of contention, besides those mentioned in the foregoing chapter, and to watch against them, Jam 4:1-5. II. We are taught...
 weight: 4
 ---
 

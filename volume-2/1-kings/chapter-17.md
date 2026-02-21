@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "So sad was the character both of the princes and people of Israel, as described in the foregoing chapter, that one might have expected God would cast off a people that had so cast ..."
+description: >
+  So sad was the character both of the princes and people of Israel, as described in the foregoing chapter, that one might have expected God would cast off a people that had so cast ...
 weight: 17
 ---
 

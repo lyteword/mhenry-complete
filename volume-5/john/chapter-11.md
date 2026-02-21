@@ -1,7 +1,8 @@
 ---
 title: "John 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "In this chapter we have the history of that illustrious miracle which Christ wrought a little before his death—the raising of Lazarus to life, which is recorded only by this evange..."
+description: >
+  In this chapter we have the history of that illustrious miracle which Christ wrought a little before his death—the raising of Lazarus to life, which is recorded only by this evange...
 weight: 11
 ---
 

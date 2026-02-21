@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter, as before, we have, I. A prophecy of the invading of the land of Judah and the besieging of Jerusalem by the Chaldean army (Jer 6:1-6), with the spoils they should..."
+description: >
+  In this chapter, as before, we have, I. A prophecy of the invading of the land of Judah and the besieging of Jerusalem by the Chaldean army (Jer 6:1-6), with the spoils they should...
 weight: 6
 ---
 

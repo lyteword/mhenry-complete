@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 55 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "55"
-description: "As we had much of Christ in the Isa 53:1-12, and much of the church of Christ in the Isa 54:1-17, so in this chapter we have much of the covenant of grace made with us in Christ. T..."
+description: >
+  As we had much of Christ in the Isa 53:1-12, and much of the church of Christ in the Isa 54:1-17, so in this chapter we have much of the covenant of grace made with us in Christ. T...
 weight: 55
 ---
 

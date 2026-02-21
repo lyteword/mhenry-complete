@@ -1,7 +1,8 @@
 ---
 title: "Exodus 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "This chapter continues and concludes the acts that passed in the first session (if I may so call it) upon Mount Sinai. Here are, I. Some laws of universal obligation, relating espe..."
+description: >
+  This chapter continues and concludes the acts that passed in the first session (if I may so call it) upon Mount Sinai. Here are, I. Some laws of universal obligation, relating espe...
 weight: 23
 ---
 

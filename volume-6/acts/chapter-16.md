@@ -1,7 +1,8 @@
 ---
 title: "Acts 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "It is some rebuke to Barnabas that after he left Paul we hear no more of him, of what he did or suffered for Christ. But Paul, as he was recommended by the brethren to the grace of..."
+description: >
+  It is some rebuke to Barnabas that after he left Paul we hear no more of him, of what he did or suffered for Christ. But Paul, as he was recommended by the brethren to the grace of...
 weight: 16
 ---
 

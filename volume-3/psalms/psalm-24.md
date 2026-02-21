@@ -1,7 +1,8 @@
 ---
 title: "Psalm 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "This psalm is concerning the kingdom of Jesus Christ, I. His providential kingdom, by which he rules the world, Ps 24:1,2. II. The kingdom of his grace, by which he rules in his ch..."
+description: >
+  This psalm is concerning the kingdom of Jesus Christ, I. His providential kingdom, by which he rules the world, Ps 24:1,2. II. The kingdom of his grace, by which he rules in his ch...
 weight: 24
 ---
 

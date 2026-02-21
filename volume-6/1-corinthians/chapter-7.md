@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter the apostle answers some cases proposed to him by the Corinthians about marriage. He, I. Shows them that marriage was appointed as a remedy against fornication, and..."
+description: >
+  In this chapter the apostle answers some cases proposed to him by the Corinthians about marriage. He, I. Shows them that marriage was appointed as a remedy against fornication, and...
 weight: 7
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Luke 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "All the evangelists, whatever they omit, give us a particular account of the death and resurrection of Christ, because he died for our sins and rose for our justification, this eva..."
+description: >
+  All the evangelists, whatever they omit, give us a particular account of the death and resurrection of Christ, because he died for our sins and rose for our justification, this eva...
 weight: 22
 ---
 

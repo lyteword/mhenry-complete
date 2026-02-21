@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "The apostle, in this chapter, applies what he has collected in the chapter foregoing, and makes use of it as a great motive to patience and perseverance in the Christian faith and ..."
+description: >
+  The apostle, in this chapter, applies what he has collected in the chapter foregoing, and makes use of it as a great motive to patience and perseverance in the Christian faith and ...
 weight: 12
 ---
 

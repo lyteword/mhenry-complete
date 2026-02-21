@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "The glory of the kingdom of Israel was in its height and perfection in Solomon; it was long in coming to it, but it soon declined, and began to sink and wither in the very next rei..."
+description: >
+  The glory of the kingdom of Israel was in its height and perfection in Solomon; it was long in coming to it, but it soon declined, and began to sink and wither in the very next rei...
 weight: 12
 ---
 

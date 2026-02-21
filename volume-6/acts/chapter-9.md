@@ -1,7 +1,8 @@
 ---
 title: "Acts 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this chapter we have, I. The famous story of St. Paul\'s conversion from being an outrageous persecutor of the gospel of Christ to be an illustrious professor and preacher of it...."
+description: >
+  In this chapter we have, I. The famous story of St. Paul's conversion from being an outrageous persecutor of the gospel of Christ to be an illustrious professor and preacher of it....
 weight: 9
 ---
 

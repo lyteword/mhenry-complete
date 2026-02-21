@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "This chapter concludes the history of the reign of Asa, but does not furnish so pleasing an account of his latter end as we had of his beginning. I. Here is a foolish treaty with B..."
+description: >
+  This chapter concludes the history of the reign of Asa, but does not furnish so pleasing an account of his latter end as we had of his beginning. I. Here is a foolish treaty with B...
 weight: 16
 ---
 

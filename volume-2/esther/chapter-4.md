@@ -1,7 +1,8 @@
 ---
 title: "Esther 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "We left God\'s Isaac bound upon the altar and ready to be sacrificed, and the enemies triumphing in the prospect of it; but things here begin to work towards a deliverance, and they..."
+description: >
+  We left God's Isaac bound upon the altar and ready to be sacrificed, and the enemies triumphing in the prospect of it; but things here begin to work towards a deliverance, and they...
 weight: 4
 ---
 

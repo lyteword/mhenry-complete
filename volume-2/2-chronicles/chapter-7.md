@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter we have God\'s answer to Solomon\'s prayer. I. His public answer by fire from heaven, which consumed the sacrifices (2Ch 7:1), with which the priests and people were ..."
+description: >
+  In this chapter we have God's answer to Solomon's prayer. I. His public answer by fire from heaven, which consumed the sacrifices (2Ch 7:1), with which the priests and people were ...
 weight: 7
 ---
 

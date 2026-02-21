@@ -1,7 +1,8 @@
 ---
 title: "Hosea 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "The same strings, though generally unpleasing ones, are harped upon in this chapter that were in those before. People care not to be told either of their sin or of their danger by ..."
+description: >
+  The same strings, though generally unpleasing ones, are harped upon in this chapter that were in those before. People care not to be told either of their sin or of their danger by ...
 weight: 13
 ---
 

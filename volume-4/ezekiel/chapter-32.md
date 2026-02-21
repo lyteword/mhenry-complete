@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 32 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "32"
-description: "Still we are upon the destruction of Pharaoh and Egypt, which is wonderfully enlarged upon, and with a great deal of emphasis. When we read so very much of Egypt\'s ruin, no less th..."
+description: >
+  Still we are upon the destruction of Pharaoh and Egypt, which is wonderfully enlarged upon, and with a great deal of emphasis. When we read so very much of Egypt's ruin, no less th...
 weight: 32
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Job 31 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "31"
-description: "Job had often protested his integrity in general; here he does it in particular instances, not in a way of commendation (for he does not here proclaim his good deeds), but in his o..."
+description: >
+  Job had often protested his integrity in general; here he does it in particular instances, not in a way of commendation (for he does not here proclaim his good deeds), but in his o...
 weight: 31
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "In this chapter the apostle treats of that great article of Christianity—the resurrection of the dead. I. He establishes the certainty of our Saviour\'s resurrection, 1Co 15:1-11. I..."
+description: >
+  In this chapter the apostle treats of that great article of Christianity—the resurrection of the dead. I. He establishes the certainty of our Saviour's resurrection, 1Co 15:1-11. I...
 weight: 15
 ---
 

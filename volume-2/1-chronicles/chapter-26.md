@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "We have here an account of the business of the Levites. That tribe had made but a very small figure all the time of the judges, till Eli and Samuel appeared. But when David revived..."
+description: >
+  We have here an account of the business of the Levites. That tribe had made but a very small figure all the time of the judges, till Eli and Samuel appeared. But when David revived...
 weight: 26
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Matthew 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "In this chapter we have, I. The constant and unwearied diligence of our Lord Jesus in his great work of preaching the gospel, Mt 11:1. II. His discourse with the disciples of John ..."
+description: >
+  In this chapter we have, I. The constant and unwearied diligence of our Lord Jesus in his great work of preaching the gospel, Mt 11:1. II. His discourse with the disciples of John ...
 weight: 11
 ---
 

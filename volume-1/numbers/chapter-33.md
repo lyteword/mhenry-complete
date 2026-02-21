@@ -1,7 +1,8 @@
 ---
 title: "Numbers 33 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "33"
-description: "In this chapter we have, I. A particular account of the removals and encampments of the children of Israel, from their escape out of Egypt to their entrance into Canaan, forty-two ..."
+description: >
+  In this chapter we have, I. A particular account of the removals and encampments of the children of Israel, from their escape out of Egypt to their entrance into Canaan, forty-two ...
 weight: 33
 ---
 

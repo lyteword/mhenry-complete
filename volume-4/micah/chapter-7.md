@@ -1,7 +1,8 @@
 ---
 title: "Micah 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter, I. The prophet, in the name of the church, sadly laments the woeful decay of religion in the age wherein he lived, and the deluge of impiety and immorality which o..."
+description: >
+  In this chapter, I. The prophet, in the name of the church, sadly laments the woeful decay of religion in the age wherein he lived, and the deluge of impiety and immorality which o...
 weight: 7
 ---
 

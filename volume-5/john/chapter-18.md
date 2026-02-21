@@ -1,7 +1,8 @@
 ---
 title: "John 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "Hitherto this evangelist has recorded little of the history of Christ, only so far as was requisite to introduce his discourses; but now that the time drew nigh that Jesus must die..."
+description: >
+  Hitherto this evangelist has recorded little of the history of Christ, only so far as was requisite to introduce his discourses; but now that the time drew nigh that Jesus must die...
 weight: 18
 ---
 

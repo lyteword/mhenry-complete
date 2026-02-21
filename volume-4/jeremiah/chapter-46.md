@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 46 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "46"
-description: "How judgment began at the house of God we have found in the foregoing prophecy and history; but now we shall find that it did not end there. In this and the following chapters we h..."
+description: >
+  How judgment began at the house of God we have found in the foregoing prophecy and history; but now we shall find that it did not end there. In this and the following chapters we h...
 weight: 46
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "After the threatenings of wrath in the foregoing chapter we have here, I. Thankful praises for what God had done, which the prophet, in the name of the church, offers up to God, an..."
+description: >
+  After the threatenings of wrath in the foregoing chapter we have here, I. Thankful praises for what God had done, which the prophet, in the name of the church, offers up to God, an...
 weight: 25
 ---
 

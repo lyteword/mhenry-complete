@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "In this chapter, I. God by the prophet puts the people in mind of the covenant he had made with their fathers, and how much he had insisted upon it, as the condition of the covenan..."
+description: >
+  In this chapter, I. God by the prophet puts the people in mind of the covenant he had made with their fathers, and how much he had insisted upon it, as the condition of the covenan...
 weight: 11
 ---
 

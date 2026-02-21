@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "This chapter, and that which follows it, are the burden of Moab—a prophecy of some great desolation that was coming upon that country, which bordered upon this land of Israel, and ..."
+description: >
+  This chapter, and that which follows it, are the burden of Moab—a prophecy of some great desolation that was coming upon that country, which bordered upon this land of Israel, and ...
 weight: 15
 ---
 

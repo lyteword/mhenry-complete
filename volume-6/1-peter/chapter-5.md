@@ -1,7 +1,8 @@
 ---
 title: "1 Peter 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In which the apostle gives particular directions, first to the elders, how to behave themselves towards their flock (1Pe 5:1-4); then to the younger, to be obedient and humble, and..."
+description: >
+  In which the apostle gives particular directions, first to the elders, how to behave themselves towards their flock (1Pe 5:1-4); then to the younger, to be obedient and humble, and...
 weight: 5
 ---
 

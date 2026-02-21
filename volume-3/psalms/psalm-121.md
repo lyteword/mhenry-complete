@@ -1,7 +1,8 @@
 ---
 title: "Psalm 121 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "121"
-description: "Some call this the soldier\'s psalm, and think it was penned in the camp, when David was hazarding his life in the high places of the field, and thus trusted God to cover his head i..."
+description: >
+  Some call this the soldier's psalm, and think it was penned in the camp, when David was hazarding his life in the high places of the field, and thus trusted God to cover his head i...
 weight: 121
 ---
 

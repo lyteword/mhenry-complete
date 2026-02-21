@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "Things went so very well with Israel, in the chapter before, under Samuel\'s administration, that, methinks, it is a pity to find him so quickly, as we do in this chapter, old, and ..."
+description: >
+  Things went so very well with Israel, in the chapter before, under Samuel's administration, that, methinks, it is a pity to find him so quickly, as we do in this chapter, old, and ...
 weight: 8
 ---
 

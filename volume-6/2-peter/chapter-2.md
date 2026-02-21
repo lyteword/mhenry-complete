@@ -1,7 +1,8 @@
 ---
 title: "2 Peter 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "The apostle, having in the foregoing chapter exhorted them to proceed and advance in the Christian race, now comes to remove, as much as in him lay, what he could not but apprehend..."
+description: >
+  The apostle, having in the foregoing chapter exhorted them to proceed and advance in the Christian race, now comes to remove, as much as in him lay, what he could not but apprehend...
 weight: 2
 ---
 

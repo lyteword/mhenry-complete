@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 41 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "41"
-description: "An account was given of the porch of the house in the close of the foregoing chapter; this brings us to the temple itself, the description of which here given creates much difficul..."
+description: >
+  An account was given of the porch of the house in the close of the foregoing chapter; this brings us to the temple itself, the description of which here given creates much difficul...
 weight: 41
 ---
 

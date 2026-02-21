@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 64 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "64"
-description: "This chapter goes on with that pathetic pleading prayer which the church offered up to God in the latter part of the foregoing chapter. They had argued from their covenant-relation..."
+description: >
+  This chapter goes on with that pathetic pleading prayer which the church offered up to God in the latter part of the foregoing chapter. They had argued from their covenant-relation...
 weight: 64
 ---
 

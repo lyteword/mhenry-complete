@@ -1,7 +1,8 @@
 ---
 title: "Psalm 68 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "68"
-description: "This is a most excellent psalm, but in many places the genuine sense is not easy to come at; for in this, as in some other scriptures, there are things dark and hard to be understo..."
+description: >
+  This is a most excellent psalm, but in many places the genuine sense is not easy to come at; for in this, as in some other scriptures, there are things dark and hard to be understo...
 weight: 68
 ---
 

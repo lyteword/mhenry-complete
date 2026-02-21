@@ -1,7 +1,8 @@
 ---
 title: "Judges 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "This chapter gives us a particular account what sort of progress the several tribes of Israel made in the reducing of Canaan after the death of Joshua. He did (as we say) break the..."
+description: >
+  This chapter gives us a particular account what sort of progress the several tribes of Israel made in the reducing of Canaan after the death of Joshua. He did (as we say) break the...
 weight: 1
 ---
 

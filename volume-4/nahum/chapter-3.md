@@ -1,7 +1,8 @@
 ---
 title: "Nahum 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "This chapter goes on with the burden of Nineveh, and concludes it. I. The sins of that great city are charged upon it, murder (Na 3:1), whoredom and witchcraft (Na 3:4), and a gene..."
+description: >
+  This chapter goes on with the burden of Nineveh, and concludes it. I. The sins of that great city are charged upon it, murder (Na 3:1), whoredom and witchcraft (Na 3:4), and a gene...
 weight: 3
 ---
 

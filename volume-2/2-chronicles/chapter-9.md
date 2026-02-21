@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "Solomon here continues to appear great both at home and abroad. We had this account of his grandeur, 1Ki 10:1-29 Nothing is here added; but his defection towards his latter end, wh..."
+description: >
+  Solomon here continues to appear great both at home and abroad. We had this account of his grandeur, 1Ki 10:1-29 Nothing is here added; but his defection towards his latter end, wh...
 weight: 9
 ---
 

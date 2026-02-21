@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "This chapter is wholly taken up with the reign of Ahaz; and we have quite enough of it, unless it were better. He had a good father, and a better son, and yet was himself one of th..."
+description: >
+  This chapter is wholly taken up with the reign of Ahaz; and we have quite enough of it, unless it were better. He had a good father, and a better son, and yet was himself one of th...
 weight: 16
 ---
 

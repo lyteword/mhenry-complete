@@ -1,7 +1,8 @@
 ---
 title: "Numbers 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "This chapter gives us an account of that fatal quarrel between God and Israel upon which, for their murmuring and unbelief, he swore in his wrath that they should not enter into hi..."
+description: >
+  This chapter gives us an account of that fatal quarrel between God and Israel upon which, for their murmuring and unbelief, he swore in his wrath that they should not enter into hi...
 weight: 14
 ---
 

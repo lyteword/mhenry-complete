@@ -1,7 +1,8 @@
 ---
 title: "Psalm 40 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "40"
-description: "It should seem David penned this psalm upon occasion of his deliverance, by the power and goodness of God, from some great and pressing trouble, by which he was in danger of being ..."
+description: >
+  It should seem David penned this psalm upon occasion of his deliverance, by the power and goodness of God, from some great and pressing trouble, by which he was in danger of being ...
 weight: 40
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 91 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "91"
-description: "Some of the ancients were of opinion that Moses was the penman, not only of the foregoing psalm, which is expressly said to be his, but also of the eight that next follow it; but t..."
+description: >
+  Some of the ancients were of opinion that Moses was the penman, not only of the foregoing psalm, which is expressly said to be his, but also of the eight that next follow it; but t...
 weight: 91
 ---
 

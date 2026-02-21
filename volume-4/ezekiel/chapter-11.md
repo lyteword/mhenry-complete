@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "This chapter concludes the vision which Ezekiel saw, and this part of it furnished him with two messages:—I. A message of wrath against those who continued still at Jerusalem, and ..."
+description: >
+  This chapter concludes the vision which Ezekiel saw, and this part of it furnished him with two messages:—I. A message of wrath against those who continued still at Jerusalem, and ...
 weight: 11
 ---
 

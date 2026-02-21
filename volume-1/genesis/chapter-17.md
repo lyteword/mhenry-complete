@@ -1,7 +1,8 @@
 ---
 title: "Genesis 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "This chapter contains articles of agreement covenanted and concluded upon between the great Jehovah, the Father of mercies, on the one part, and pious Abram, the father of the fait..."
+description: >
+  This chapter contains articles of agreement covenanted and concluded upon between the great Jehovah, the Father of mercies, on the one part, and pious Abram, the father of the fait...
 weight: 17
 ---
 

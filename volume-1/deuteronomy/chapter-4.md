@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter we have, I. A most earnest and pathetic exhortation to obedience, both in general, and in some particular instances, backed with a great variety of very pressing ar..."
+description: >
+  In this chapter we have, I. A most earnest and pathetic exhortation to obedience, both in general, and in some particular instances, backed with a great variety of very pressing ar...
 weight: 4
 ---
 

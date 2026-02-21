@@ -1,7 +1,8 @@
 ---
 title: "Judges 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "The idea which this chapter gives us of Samson is not what one might have expected concerning one who, by the special designation of heaven, was a Nazarite to God and a deliverer o..."
+description: >
+  The idea which this chapter gives us of Samson is not what one might have expected concerning one who, by the special designation of heaven, was a Nazarite to God and a deliverer o...
 weight: 14
 ---
 

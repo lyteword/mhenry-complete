@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "David, having settled the courses of these Levites that were to attend the priests in their ministrations, proceeds, in this chapter, to put those into a method that were appointed..."
+description: >
+  David, having settled the courses of these Levites that were to attend the priests in their ministrations, proceeds, in this chapter, to put those into a method that were appointed...
 weight: 25
 ---
 

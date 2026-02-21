@@ -1,7 +1,8 @@
 ---
 title: "Matthew 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
-description: "It is a very affecting story which is recorded in this chapter concerning the sufferings and death of our Lord Jesus. Considering the thing itself, there cannot be a more tragical ..."
+description: >
+  It is a very affecting story which is recorded in this chapter concerning the sufferings and death of our Lord Jesus. Considering the thing itself, there cannot be a more tragical ...
 weight: 27
 ---
 

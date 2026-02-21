@@ -1,7 +1,8 @@
 ---
 title: "Philippians 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "He cautions them against judaizing seducers (Php 3:1-3) and proposes his own example: and here he enumerates the privileges of his Jewish state which he rejected (Php 3:4-8), descr..."
+description: >
+  He cautions them against judaizing seducers (Php 3:1-3) and proposes his own example: and here he enumerates the privileges of his Jewish state which he rejected (Php 3:4-8), descr...
 weight: 3
 ---
 

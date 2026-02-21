@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "In this chapter we have, I. A general declaration of God\'s ways in dealing with nations and kingdoms, that he can easily do what he will with them, as easily as the potter can with..."
+description: >
+  In this chapter we have, I. A general declaration of God's ways in dealing with nations and kingdoms, that he can easily do what he will with them, as easily as the potter can with...
 weight: 18
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Exodus 40 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "40"
-description: "In this chapter, I. Orders are given for the setting up of the tabernacle and the fixing of all the appurtenances of it in their proper places (Ex 40:1-8), and the consecrating of ..."
+description: >
+  In this chapter, I. Orders are given for the setting up of the tabernacle and the fixing of all the appurtenances of it in their proper places (Ex 40:1-8), and the consecrating of ...
 weight: 40
 ---
 

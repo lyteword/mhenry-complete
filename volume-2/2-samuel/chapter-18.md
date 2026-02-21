@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "This chapter puts a period to Absalom\'s rebellion and life, and so makes way for David to his throne again, whither the next chapter brings him back in peace and triumph. We have h..."
+description: >
+  This chapter puts a period to Absalom's rebellion and life, and so makes way for David to his throne again, whither the next chapter brings him back in peace and triumph. We have h...
 weight: 18
 ---
 

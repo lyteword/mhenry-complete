@@ -1,7 +1,8 @@
 ---
 title: "Genesis 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "We have here, I. Jacob parting with his parents, to go to Padan-aram; the charge his father gave him (Ge 28:1,2), the blessing he sent him away with (Ge 28:3,4), his obedience to t..."
+description: >
+  We have here, I. Jacob parting with his parents, to go to Padan-aram; the charge his father gave him (Ge 28:1,2), the blessing he sent him away with (Ge 28:3,4), his obedience to t...
 weight: 28
 ---
 

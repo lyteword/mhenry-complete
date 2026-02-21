@@ -1,7 +1,8 @@
 ---
 title: "Ezra 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have, I. The proclamation which Cyrus, king of Persia, issued out for the release of all the Jews that he found captives in Babylon, and the building of their te..."
+description: >
+  In this chapter we have, I. The proclamation which Cyrus, king of Persia, issued out for the release of all the Jews that he found captives in Babylon, and the building of their te...
 weight: 1
 ---
 

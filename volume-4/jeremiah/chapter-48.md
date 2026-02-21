@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 48 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "48"
-description: "Moab is next set to the bar before Jeremiah the prophet, whom God has constituted judge over nations and kingdoms, from his mouth to receive its doom. Isaiah\'s predictions concerni..."
+description: >
+  Moab is next set to the bar before Jeremiah the prophet, whom God has constituted judge over nations and kingdoms, from his mouth to receive its doom. Isaiah's predictions concerni...
 weight: 48
 ---
 

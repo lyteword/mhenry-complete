@@ -1,7 +1,8 @@
 ---
 title: "John 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter we have, I. The miracle of the loaves, Joh 6:1-14. II. Christ\'s walking upon the water, Joh 6:15-21. III. The people\'s flocking after him to Capernaum, Joh 6:22-25...."
+description: >
+  In this chapter we have, I. The miracle of the loaves, Joh 6:1-14. II. Christ's walking upon the water, Joh 6:15-21. III. The people's flocking after him to Capernaum, Joh 6:22-25....
 weight: 6
 ---
 

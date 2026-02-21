@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "In this chapter we have, I. David\'s kingdom established, 1Ch 14:1,2. II. His family built up, 1Ch 14:3-7. III. His enemies, the Philistines, routed in two campaigns, 1Ch 14:8-17. T..."
+description: >
+  In this chapter we have, I. David's kingdom established, 1Ch 14:1,2. II. His family built up, 1Ch 14:3-7. III. His enemies, the Philistines, routed in two campaigns, 1Ch 14:8-17. T...
 weight: 14
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "With this chapter Moses concludes his preface to the repetition of the statutes and judgments which they must observe to do. He repeats the general charge (De 11:1), and, having in..."
+description: >
+  With this chapter Moses concludes his preface to the repetition of the statutes and judgments which they must observe to do. He repeats the general charge (De 11:1), and, having in...
 weight: 11
 ---
 

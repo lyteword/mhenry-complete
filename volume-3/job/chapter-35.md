@@ -1,7 +1,8 @@
 ---
 title: "Job 35 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "35"
-description: "Job being still silent, Elihu follows his blow, and here, a third time, undertakes to show him that he had spoken amiss, and ought to recant. Three improper sayings he here charges..."
+description: >
+  Job being still silent, Elihu follows his blow, and here, a third time, undertakes to show him that he had spoken amiss, and ought to recant. Three improper sayings he here charges...
 weight: 35
 ---
 

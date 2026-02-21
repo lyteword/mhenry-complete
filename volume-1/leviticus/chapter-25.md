@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "The law of this chapter concerns the lands and estates of the Israelites in Canaan, the occupying and transferring of which were to be under the divine direction, as well as the ma..."
+description: >
+  The law of this chapter concerns the lands and estates of the Israelites in Canaan, the occupying and transferring of which were to be under the divine direction, as well as the ma...
 weight: 25
 ---
 

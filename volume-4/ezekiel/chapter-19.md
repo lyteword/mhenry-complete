@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "The scope of this chapter is much the same with that of the 17th, to foretel and lament the ruin of the house of David, the royal family of Judah, in the calamitous exit of the fou..."
+description: >
+  The scope of this chapter is much the same with that of the 17th, to foretel and lament the ruin of the house of David, the royal family of Judah, in the calamitous exit of the fou...
 weight: 19
 ---
 

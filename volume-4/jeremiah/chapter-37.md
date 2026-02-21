@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 37 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "37"
-description: "This chapter brings us very near the destruction of Jerusalem by the Chaldeans, for the story of it lies in the latter end of Zedekiah\'s reign; we have in it, I. A general idea of ..."
+description: >
+  This chapter brings us very near the destruction of Jerusalem by the Chaldeans, for the story of it lies in the latter end of Zedekiah's reign; we have in it, I. A general idea of ...
 weight: 37
 ---
 

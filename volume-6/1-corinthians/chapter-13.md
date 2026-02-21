@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "In this chapter the apostle goes on to show more particularly what that more excellent way was of which he had just before been speaking. He recommends it, I. By showing the necess..."
+description: >
+  In this chapter the apostle goes on to show more particularly what that more excellent way was of which he had just before been speaking. He recommends it, I. By showing the necess...
 weight: 13
 ---
 

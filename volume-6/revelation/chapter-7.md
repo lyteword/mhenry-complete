@@ -1,7 +1,8 @@
 ---
 title: "Revelation 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "The things contained in this chapter came in after the opening of the six seals, which foretold great calamities in the world; and before the sound of the seven trumpets, which gav..."
+description: >
+  The things contained in this chapter came in after the opening of the six seals, which foretold great calamities in the world; and before the sound of the seven trumpets, which gav...
 weight: 7
 ---
 

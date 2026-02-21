@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter we have another comfortable vision, which, as it was explained to the prophet, had much in it for the encouragement of the people of God in their present straits, w..."
+description: >
+  In this chapter we have another comfortable vision, which, as it was explained to the prophet, had much in it for the encouragement of the people of God in their present straits, w...
 weight: 4
 ---
 

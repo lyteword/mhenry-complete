@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "The affections between Christ and his spouse are as strong and lively here, in this closing chapter of the song, as ever, and rather more so. I. The spouse continues her importunit..."
+description: >
+  The affections between Christ and his spouse are as strong and lively here, in this closing chapter of the song, as ever, and rather more so. I. The spouse continues her importunit...
 weight: 8
 ---
 

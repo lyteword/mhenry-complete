@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 50 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "50"
-description: "In this chapter, and that which follows, we have the judgment of Babylon, which is put last of Jeremiah\'s prophecies against the Gentiles because it was last accomplished; and when..."
+description: >
+  In this chapter, and that which follows, we have the judgment of Babylon, which is put last of Jeremiah's prophecies against the Gentiles because it was last accomplished; and when...
 weight: 50
 ---
 

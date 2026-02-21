@@ -1,7 +1,8 @@
 ---
 title: "Esther 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "We left two royal edicts in force, both given at the court of Shushan, one bearing date the thirteenth day of the first month, appointing that on the thirteenth day of the twelfth ..."
+description: >
+  We left two royal edicts in force, both given at the court of Shushan, one bearing date the thirteenth day of the first month, appointing that on the thirteenth day of the twelfth ...
 weight: 9
 ---
 

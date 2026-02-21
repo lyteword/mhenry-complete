@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "This chapter begins the story of the reign of good king Josiah, whose goodness shines the brighter because it came just after so much wickedness, which he had the honour to reform,..."
+description: >
+  This chapter begins the story of the reign of good king Josiah, whose goodness shines the brighter because it came just after so much wickedness, which he had the honour to reform,...
 weight: 22
 ---
 

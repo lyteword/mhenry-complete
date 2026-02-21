@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "David has now quite taken leave both of Saul\'s court and of his camp, has bidden farewell to his alter idem—his other self, the beloved Jonathan; and henceforward to the end of thi..."
+description: >
+  David has now quite taken leave both of Saul's court and of his camp, has bidden farewell to his alter idem—his other self, the beloved Jonathan; and henceforward to the end of thi...
 weight: 21
 ---
 

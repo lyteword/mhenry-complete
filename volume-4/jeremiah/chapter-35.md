@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 35 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "35"
-description: "A variety of methods is tried, and every stone turned, to awaken the Jews to a sense of their sin and to bring them to repentance and reformation. The scope and tendency of many of..."
+description: >
+  A variety of methods is tried, and every stone turned, to awaken the Jews to a sense of their sin and to bring them to repentance and reformation. The scope and tendency of many of...
 weight: 35
 ---
 

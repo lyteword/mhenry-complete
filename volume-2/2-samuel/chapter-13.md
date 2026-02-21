@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "The righteous God had lately told David, by Nathan the prophet, that, to chastise him for his son in the matter of Uriah, he would \"raise up evil against him out of his own house,\"..."
+description: >
+  The righteous God had lately told David, by Nathan the prophet, that, to chastise him for his son in the matter of Uriah, he would "raise up evil against him out of his own house,"...
 weight: 13
 ---
 

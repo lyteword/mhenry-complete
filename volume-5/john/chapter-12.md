@@ -1,7 +1,8 @@
 ---
 title: "John 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "It was a melancholy account which we had in the close of the foregoing chapter of the dishonour done to our Lord Jesus, when the scribes and Pharisees proclaimed him a traitor to t..."
+description: >
+  It was a melancholy account which we had in the close of the foregoing chapter of the dishonour done to our Lord Jesus, when the scribes and Pharisees proclaimed him a traitor to t...
 weight: 12
 ---
 

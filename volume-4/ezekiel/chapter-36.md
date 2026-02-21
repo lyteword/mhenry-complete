@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 36 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "36"
-description: "We have done with Mount Seir, and left it desolate, and likely to continue so, and must now turn ourselves, with the prophet, to the mountains of Israel, which we find desolate too..."
+description: >
+  We have done with Mount Seir, and left it desolate, and likely to continue so, and must now turn ourselves, with the prophet, to the mountains of Israel, which we find desolate too...
 weight: 36
 ---
 

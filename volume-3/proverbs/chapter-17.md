@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "## Falsehood and Oppression Reproved
+description: >
+  "## Falsehood and Oppression Reproved
 "
 weight: 17
 ---

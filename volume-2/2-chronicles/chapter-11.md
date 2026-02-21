@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "We are here going on with the history of Rehoboam. I. His attempt to recover the ten tribes he has lost, and the letting fall of that attempt in obedience to the divine command, 2C..."
+description: >
+  We are here going on with the history of Rehoboam. I. His attempt to recover the ten tribes he has lost, and the letting fall of that attempt in obedience to the divine command, 2C...
 weight: 11
 ---
 

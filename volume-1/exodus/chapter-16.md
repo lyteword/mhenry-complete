@@ -1,7 +1,8 @@
 ---
 title: "Exodus 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "This chapter gives us an account of the victualling of the camp of Israel. I. Their complaint for want of bread, Ex 16:1-3. II. The notice God gave them beforehand of the provision..."
+description: >
+  This chapter gives us an account of the victualling of the camp of Israel. I. Their complaint for want of bread, Ex 16:1-3. II. The notice God gave them beforehand of the provision...
 weight: 16
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Hosea 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "Prophets were sent to be reprovers, to tell people of their faults, and to warn them of the judgments of God, to which by sin they exposed themselves; so the prophet is employed in..."
+description: >
+  Prophets were sent to be reprovers, to tell people of their faults, and to warn them of the judgments of God, to which by sin they exposed themselves; so the prophet is employed in...
 weight: 4
 ---
 

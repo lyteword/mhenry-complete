@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
-description: "We are here entering upon a pleasant scene, the good and glorious reign of Hezekiah, in which we shall find more of God and religion than perhaps in any of the good reigns we have ..."
+description: >
+  We are here entering upon a pleasant scene, the good and glorious reign of Hezekiah, in which we shall find more of God and religion than perhaps in any of the good reigns we have ...
 weight: 29
 ---
 

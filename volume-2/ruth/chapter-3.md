@@ -1,7 +1,8 @@
 ---
 title: "Ruth 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "We found it very easy, in the former chapter, to applaud the decency of Ruth\'s behaviour, and to show what good use we may make of the account given us of it; but in this chapter w..."
+description: >
+  We found it very easy, in the former chapter, to applaud the decency of Ruth's behaviour, and to show what good use we may make of the account given us of it; but in this chapter w...
 weight: 3
 ---
 

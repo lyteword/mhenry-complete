@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 47 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "47"
-description: "This chapter reads the Philistines their doom, as the former read the Egyptians theirs and by the same hand, that of Nebuchadnezzar. It is short, but terrible; and Tyre and Zidon, ..."
+description: >
+  This chapter reads the Philistines their doom, as the former read the Egyptians theirs and by the same hand, that of Nebuchadnezzar. It is short, but terrible; and Tyre and Zidon, ...
 weight: 47
 ---
 

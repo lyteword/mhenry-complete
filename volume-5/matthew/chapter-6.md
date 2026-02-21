@@ -1,7 +1,8 @@
 ---
 title: "Matthew 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "Christ having, in the former chapter, armed his disciples against the corrupt doctrines and opinions of the scribes and Pharisees, especially in their expositions of the law (that ..."
+description: >
+  Christ having, in the former chapter, armed his disciples against the corrupt doctrines and opinions of the scribes and Pharisees, especially in their expositions of the law (that ...
 weight: 6
 ---
 

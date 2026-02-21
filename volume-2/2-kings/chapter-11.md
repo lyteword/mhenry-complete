@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "The revolution in the kingdom of Israel was soon perfected in Jehu\'s settlement; we must now enquire into the affairs of the kingdom of Judah, which lost its head (such as it was) ..."
+description: >
+  The revolution in the kingdom of Israel was soon perfected in Jehu's settlement; we must now enquire into the affairs of the kingdom of Judah, which lost its head (such as it was) ...
 weight: 11
 ---
 

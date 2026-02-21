@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "In this and the two following chapters we have the history of the reign of Asa, a good reign and a long one. In this chapter we have, I. His piety, 2Ch 13:1-5. II. His policy, 2Ch ..."
+description: >
+  In this and the two following chapters we have the history of the reign of Asa, a good reign and a long one. In this chapter we have, I. His piety, 2Ch 13:1-5. II. His policy, 2Ch ...
 weight: 14
 ---
 

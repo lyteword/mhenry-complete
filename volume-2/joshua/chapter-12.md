@@ -1,7 +1,8 @@
 ---
 title: "Joshua 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "This chapter is a summary of Israel\'s conquests. I. Their conquests under Moses, on the other side Jordan (for we now suppose ourselves in Canaan) eastward, which we had the histor..."
+description: >
+  This chapter is a summary of Israel's conquests. I. Their conquests under Moses, on the other side Jordan (for we now suppose ourselves in Canaan) eastward, which we had the histor...
 weight: 12
 ---
 

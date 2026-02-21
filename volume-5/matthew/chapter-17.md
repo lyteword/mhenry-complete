@@ -1,7 +1,8 @@
 ---
 title: "Matthew 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "In this chapter we have, I. Christ in his pomp and glory transfigured, Mt 17:1-3. II. Christ in his power and grace, casting the devil out of a child, Mt 17:14-21. And, III. Christ..."
+description: >
+  In this chapter we have, I. Christ in his pomp and glory transfigured, Mt 17:1-3. II. Christ in his power and grace, casting the devil out of a child, Mt 17:14-21. And, III. Christ...
 weight: 17
 ---
 

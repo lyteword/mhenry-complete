@@ -1,7 +1,8 @@
 ---
 title: "Acts 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "In this chapter we have, I. Peter\'s necessary vindication of what he did in receiving Cornelius and his friends into the church, from the censure he lay under for it among the bret..."
+description: >
+  In this chapter we have, I. Peter's necessary vindication of what he did in receiving Cornelius and his friends into the church, from the censure he lay under for it among the bret...
 weight: 11
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "This book begins with the laws concerning sacrifices, of which the most ancient were the burnt-offerings, about which God gives Moses instructions in this chapter. Orders are here ..."
+description: >
+  This book begins with the laws concerning sacrifices, of which the most ancient were the burnt-offerings, about which God gives Moses instructions in this chapter. Orders are here ...
 weight: 1
 ---
 

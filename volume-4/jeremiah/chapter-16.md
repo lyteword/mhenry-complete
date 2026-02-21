@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "In this chapter, I. The greatness of the calamity that was coming upon the Jewish nation is illustrated by prohibitions given to the prophet neither to set up a house of his own (J..."
+description: >
+  In this chapter, I. The greatness of the calamity that was coming upon the Jewish nation is illustrated by prohibitions given to the prophet neither to set up a house of his own (J...
 weight: 16
 ---
 

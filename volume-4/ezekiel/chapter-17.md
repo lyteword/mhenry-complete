@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "God was, in the foregoing chapter, reckoning with the people of Judah, and bringing ruin upon them for their treachery in breaking covenant with him; in this chapter he is reckonin..."
+description: >
+  God was, in the foregoing chapter, reckoning with the people of Judah, and bringing ruin upon them for their treachery in breaking covenant with him; in this chapter he is reckonin...
 weight: 17
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "The predictions in the foregoing chapters concerning the ruin of Eli\'s house here begin to be fulfilled; how long after does not appear, but certainly not long. Such sinners God of..."
+description: >
+  The predictions in the foregoing chapters concerning the ruin of Eli's house here begin to be fulfilled; how long after does not appear, but certainly not long. Such sinners God of...
 weight: 4
 ---
 

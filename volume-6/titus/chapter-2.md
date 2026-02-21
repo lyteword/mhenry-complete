@@ -1,7 +1,8 @@
 ---
 title: "Titus 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "The apostle here directs Titus about the faithful discharge of his own office generally (Tit 2:1), and particularly as to several sorts of persons (Tit 2:2-10) and gives the ground..."
+description: >
+  The apostle here directs Titus about the faithful discharge of his own office generally (Tit 2:1), and particularly as to several sorts of persons (Tit 2:2-10) and gives the ground...
 weight: 2
 ---
 

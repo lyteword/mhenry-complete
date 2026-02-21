@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 46 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "46"
-description: "In this chapter we have, I. Some further rules given both to the priests and to the people, relating to their worship, Eze 46:1-15. II. A law concerning the prince\'s disposal of hi..."
+description: >
+  In this chapter we have, I. Some further rules given both to the priests and to the people, relating to their worship, Eze 46:1-15. II. A law concerning the prince's disposal of hi...
 weight: 46
 ---
 

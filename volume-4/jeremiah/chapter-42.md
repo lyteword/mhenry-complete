@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 42 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "42"
-description: "Johanan and the captains being strongly bent upon going into Egypt, either their affections or politics advising them to take that course, they had a great desire that God should d..."
+description: >
+  Johanan and the captains being strongly bent upon going into Egypt, either their affections or politics advising them to take that course, they had a great desire that God should d...
 weight: 42
 ---
 

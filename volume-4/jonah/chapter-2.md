@@ -1,7 +1,8 @@
 ---
 title: "Jonah 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "We left Jonah in the belly of the fish, and had reason to think we should hear no more of him, that if he were not destroyed by the waters of the sea he would be consumed in the bo..."
+description: >
+  We left Jonah in the belly of the fish, and had reason to think we should hear no more of him, that if he were not destroyed by the waters of the sea he would be consumed in the bo...
 weight: 2
 ---
 

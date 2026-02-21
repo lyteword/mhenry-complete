@@ -1,7 +1,8 @@
 ---
 title: "Revelation 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "The book of the divine counsels being thus lodged in the hand of Christ, he loses no time, but immediately enters upon the work of opening the seals and publishing the contents; bu..."
+description: >
+  The book of the divine counsels being thus lodged in the hand of Christ, he loses no time, but immediately enters upon the work of opening the seals and publishing the contents; bu...
 weight: 6
 ---
 

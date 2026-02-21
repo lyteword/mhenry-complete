@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 51 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "51"
-description: "This chapter is designed for the comfort and encouragement of those that fear God and keep his commandments, even when they walk in darkness and have no light. Whether it was inten..."
+description: >
+  This chapter is designed for the comfort and encouragement of those that fear God and keep his commandments, even when they walk in darkness and have no light. Whether it was inten...
 weight: 51
 ---
 

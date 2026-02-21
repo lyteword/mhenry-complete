@@ -1,7 +1,8 @@
 ---
 title: "Judges 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "This chapter gives as the history of Jephthah, another of Israel\'s judges, and numbered among the worthies of the Old Testament, that by faith did great things (Heb 11:32), though ..."
+description: >
+  This chapter gives as the history of Jephthah, another of Israel's judges, and numbered among the worthies of the Old Testament, that by faith did great things (Heb 11:32), though ...
 weight: 11
 ---
 

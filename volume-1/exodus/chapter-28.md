@@ -1,7 +1,8 @@
 ---
 title: "Exodus 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "Orders being given for the fitting up of the place of worship, in this and the following chapter care is taken about the priests that were to minister in this holy place, as the me..."
+description: >
+  Orders being given for the fitting up of the place of worship, in this and the following chapter care is taken about the priests that were to minister in this holy place, as the me...
 weight: 28
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 47 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "47"
-description: "In this chapter we have, I. The vision of the holy waters, their rise, extent, depth, and healing virtue, the plenty of fish in them, and an account of the trees growing on the ban..."
+description: >
+  In this chapter we have, I. The vision of the holy waters, their rise, extent, depth, and healing virtue, the plenty of fish in them, and an account of the trees growing on the ban...
 weight: 47
 ---
 

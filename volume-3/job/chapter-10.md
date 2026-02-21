@@ -1,7 +1,8 @@
 ---
 title: "Job 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "Job owns here that he was full of confusion (Job 10:15), and as he was so was his discourse: he knew not what to say, and perhaps sometimes scarcely knew what he said. In this chap..."
+description: >
+  Job owns here that he was full of confusion (Job 10:15), and as he was so was his discourse: he knew not what to say, and perhaps sometimes scarcely knew what he said. In this chap...
 weight: 10
 ---
 

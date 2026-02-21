@@ -1,7 +1,8 @@
 ---
 title: "Luke 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "In this chapter we have, I. The cure which our Lord Jesus wrought upon a man that had the dropsy, on the sabbath day, and his justifying himself therein against those who were offe..."
+description: >
+  In this chapter we have, I. The cure which our Lord Jesus wrought upon a man that had the dropsy, on the sabbath day, and his justifying himself therein against those who were offe...
 weight: 14
 ---
 

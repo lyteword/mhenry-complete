@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "In this chapter the apostle, I. Gives directions about some charitable collection to be made in this church, for the afflicted and impoverished churches in Judea, 1Co 16:1-4. II. H..."
+description: >
+  In this chapter the apostle, I. Gives directions about some charitable collection to be made in this church, for the afflicted and impoverished churches in Judea, 1Co 16:1-4. II. H...
 weight: 16
 ---
 

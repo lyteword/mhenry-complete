@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "In this chapter, I. The Ephraimites are reproved and threatened for their pride and drunkenness, their security and sensuality, Isa 28:1-8. But, in the midst of this, here is a gra..."
+description: >
+  In this chapter, I. The Ephraimites are reproved and threatened for their pride and drunkenness, their security and sensuality, Isa 28:1-8. But, in the midst of this, here is a gra...
 weight: 28
 ---
 

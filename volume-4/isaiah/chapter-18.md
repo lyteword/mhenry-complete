@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "Whatever country it is that is meant here by \"the land shadowing with wings,\" here is a woe denounced against it, for God has, upon his people\'s account, a quarrel with it. I. They..."
+description: >
+  Whatever country it is that is meant here by "the land shadowing with wings," here is a woe denounced against it, for God has, upon his people's account, a quarrel with it. I. They...
 weight: 18
 ---
 

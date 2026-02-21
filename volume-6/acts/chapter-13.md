@@ -1,7 +1,8 @@
 ---
 title: "Acts 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "We have not yet met with any things concerning the spreading of the gospel to the Gentiles which bears any proportion to the largeness of that commission, \"Go, and disciple all nat..."
+description: >
+  We have not yet met with any things concerning the spreading of the gospel to the Gentiles which bears any proportion to the largeness of that commission, "Go, and disciple all nat...
 weight: 13
 ---
 

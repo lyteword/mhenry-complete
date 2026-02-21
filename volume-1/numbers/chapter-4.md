@@ -1,7 +1,8 @@
 ---
 title: "Numbers 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In the former chapter an account was taken of the whole tribe of Levi, in this we have an account of those of that tribe who were in the prime of their time for service, betwixt th..."
+description: >
+  In the former chapter an account was taken of the whole tribe of Levi, in this we have an account of those of that tribe who were in the prime of their time for service, betwixt th...
 weight: 4
 ---
 

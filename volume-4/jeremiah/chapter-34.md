@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 34 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "34"
-description: "In this chapter we have two messages which God sent by Jeremiah. I. One to foretel the fate of Zedekiah king of Judah, that he should fall into the hands of the king of Babylon, th..."
+description: >
+  In this chapter we have two messages which God sent by Jeremiah. I. One to foretel the fate of Zedekiah king of Judah, that he should fall into the hands of the king of Babylon, th...
 weight: 34
 ---
 

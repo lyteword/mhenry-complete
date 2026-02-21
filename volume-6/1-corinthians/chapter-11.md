@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "In this chapter the apostle blames, and endeavours to rectify, some great indecencies and manifest disorders in the church of Corinth; as, I. The misconduct of their women (some of..."
+description: >
+  In this chapter the apostle blames, and endeavours to rectify, some great indecencies and manifest disorders in the church of Corinth; as, I. The misconduct of their women (some of...
 weight: 11
 ---
 

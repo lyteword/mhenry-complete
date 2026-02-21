@@ -1,7 +1,8 @@
 ---
 title: "1 Peter 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "The apostle describes the persons to whom he writes, and salutes them (1Pe 1:1,2), blesses God for their regeneration to a lively hope of eternal salvation (1Pe 1:3-5), in the hope..."
+description: >
+  The apostle describes the persons to whom he writes, and salutes them (1Pe 1:1,2), blesses God for their regeneration to a lively hope of eternal salvation (1Pe 1:3-5), in the hope...
 weight: 1
 ---
 

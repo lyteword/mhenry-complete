@@ -1,7 +1,8 @@
 ---
 title: "Revelation 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "Hitherto the prophecy of this book has presented to us a very remarkable mixture of light and shade, prosperity and adversity, mercy and judgment, in the conduct of divine Providen..."
+description: >
+  Hitherto the prophecy of this book has presented to us a very remarkable mixture of light and shade, prosperity and adversity, mercy and judgment, in the conduct of divine Providen...
 weight: 21
 ---
 

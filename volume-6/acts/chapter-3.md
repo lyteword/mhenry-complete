@@ -1,7 +1,8 @@
 ---
 title: "Acts 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In this chapter we have a miracle and a sermon: the miracle wrought to make way for the sermon, to confirm the doctrine that was to be preached, and to make way for it into the min..."
+description: >
+  In this chapter we have a miracle and a sermon: the miracle wrought to make way for the sermon, to confirm the doctrine that was to be preached, and to make way for it into the min...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Micah 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "What the apostle says of another of the prophets is true of this, who was also his contemporary—\"Esaias is very bold,\" Ro 10:20. So, in this chapter, Micah is very bold in reprovin..."
+description: >
+  What the apostle says of another of the prophets is true of this, who was also his contemporary—"Esaias is very bold," Ro 10:20. So, in this chapter, Micah is very bold in reprovin...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "The date of the events of this chapter is uncertain. I incline to think that they happened as they are here placed, after Absalom\'s and Sheba\'s rebellion, and towards the latter en..."
+description: >
+  The date of the events of this chapter is uncertain. I incline to think that they happened as they are here placed, after Absalom's and Sheba's rebellion, and towards the latter en...
 weight: 21
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "Judgment began at the house of God, and therefore with them the prophets began, who were the judges; but it must not end there, and therefore they must not. Ezekiel had finished hi..."
+description: >
+  Judgment began at the house of God, and therefore with them the prophets began, who were the judges; but it must not end there, and therefore they must not. Ezekiel had finished hi...
 weight: 25
 ---
 

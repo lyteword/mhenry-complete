@@ -1,7 +1,8 @@
 ---
 title: "Mark 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this chapter, we have, I. Christ\'s transfiguration upon the mount, Mk 10:1-13. II. His casting the devil out of a child, when the disciples could not do it, Mk 10:14-29. III. Hi..."
+description: >
+  In this chapter, we have, I. Christ's transfiguration upon the mount, Mk 10:1-13. II. His casting the devil out of a child, when the disciples could not do it, Mk 10:14-29. III. Hi...
 weight: 9
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Matthew 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "The narrative of the death and sufferings of Christ is more particularly and fully recorded by all the four evangelists than any part of his history; for what should be determine, ..."
+description: >
+  The narrative of the death and sufferings of Christ is more particularly and fully recorded by all the four evangelists than any part of his history; for what should be determine, ...
 weight: 26
 ---
 

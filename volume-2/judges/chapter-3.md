@@ -1,7 +1,8 @@
 ---
 title: "Judges 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In this chapter, I. A general account of Israel\'s enemies is premised, and of the mischief they did them, Jdg 3:1-7. II. A particular account of the brave exploits done by the firs..."
+description: >
+  In this chapter, I. A general account of Israel's enemies is premised, and of the mischief they did them, Jdg 3:1-7. II. A particular account of the brave exploits done by the firs...
 weight: 3
 ---
 

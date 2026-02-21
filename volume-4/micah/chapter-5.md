@@ -1,7 +1,8 @@
 ---
 title: "Micah 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter we have, I. A prediction of the troubles and distresses of the Jewish nation, Mic 5:1. II. A promise of the Messiah, and of his kingdom, to support the people of Go..."
+description: >
+  In this chapter we have, I. A prediction of the troubles and distresses of the Jewish nation, Mic 5:1. II. A promise of the Messiah, and of his kingdom, to support the people of Go...
 weight: 5
 ---
 

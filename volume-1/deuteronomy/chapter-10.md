@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "Moses having, in the foregoing chapter, reminded them of their own sin, as a reason why they should not depend upon their own righteousness, in this chapter he sets before them God..."
+description: >
+  Moses having, in the foregoing chapter, reminded them of their own sin, as a reason why they should not depend upon their own righteousness, in this chapter he sets before them God...
 weight: 10
 ---
 

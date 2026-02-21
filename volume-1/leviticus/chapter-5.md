@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "This chapter, and part of the next, concern the trespass-offering. The difference between this and the sin-offering lay not so much in the sacrifices themselves, and the management..."
+description: >
+  This chapter, and part of the next, concern the trespass-offering. The difference between this and the sin-offering lay not so much in the sacrifices themselves, and the management...
 weight: 5
 ---
 

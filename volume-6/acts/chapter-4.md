@@ -1,7 +1,8 @@
 ---
 title: "Acts 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In going over the last two chapters, where we met with so many good things that the apostles did, I wondered what was become of the scribes and Pharisees, and chief priests, that t..."
+description: >
+  In going over the last two chapters, where we met with so many good things that the apostles did, I wondered what was become of the scribes and Pharisees, and chief priests, that t...
 weight: 4
 ---
 

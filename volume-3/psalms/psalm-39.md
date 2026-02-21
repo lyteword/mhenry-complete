@@ -1,7 +1,8 @@
 ---
 title: "Psalm 39 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "39"
-description: "David seems to have been in a great strait when he penned this psalm, and, upon some account or other, very uneasy; for it is with some difficulty that he conquers his passion, and..."
+description: >
+  David seems to have been in a great strait when he penned this psalm, and, upon some account or other, very uneasy; for it is with some difficulty that he conquers his passion, and...
 weight: 39
 ---
 

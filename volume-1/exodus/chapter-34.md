@@ -1,7 +1,8 @@
 ---
 title: "Exodus 34 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "34"
-description: "God having in the foregoing chapter intimated to Moses his reconciliation to Israel, here gives proofs of it, proceeding to settle his covenant and communion with them. Four instan..."
+description: >
+  God having in the foregoing chapter intimated to Moses his reconciliation to Israel, here gives proofs of it, proceeding to settle his covenant and communion with them. Four instan...
 weight: 34
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Romans 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we may observe, I. The preface and introduction to the whole epistle, to Ac 1:1-16. II. A description of the deplorable condition of the Gentile world, which begins..."
+description: >
+  In this chapter we may observe, I. The preface and introduction to the whole epistle, to Ac 1:1-16. II. A description of the deplorable condition of the Gentile world, which begins...
 weight: 1
 ---
 

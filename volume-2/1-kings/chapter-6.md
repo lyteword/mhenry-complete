@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "Great and long preparation had been making for the building of the temple, and here, at length, comes an account of the building of it; a noble piece of work it was, one of the won..."
+description: >
+  Great and long preparation had been making for the building of the temple, and here, at length, comes an account of the building of it; a noble piece of work it was, one of the won...
 weight: 6
 ---
 

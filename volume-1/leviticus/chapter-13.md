@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "The next ceremonial uncleanness is that of the leprosy, concerning which the law was very large and particular; we have the discovery of it in this chapter, and the cleansing of th..."
+description: >
+  The next ceremonial uncleanness is that of the leprosy, concerning which the law was very large and particular; we have the discovery of it in this chapter, and the cleansing of th...
 weight: 13
 ---
 

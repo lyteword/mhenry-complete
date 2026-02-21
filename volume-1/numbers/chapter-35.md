@@ -1,7 +1,8 @@
 ---
 title: "Numbers 35 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "35"
-description: "Orders having been given before for the dividing of the land of Canaan among the lay-tribes (as I may call them), care is here taken for a competent provision for the clergy, the t..."
+description: >
+  Orders having been given before for the dividing of the land of Canaan among the lay-tribes (as I may call them), care is here taken for a competent provision for the clergy, the t...
 weight: 35
 ---
 

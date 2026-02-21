@@ -1,7 +1,8 @@
 ---
 title: "Psalm 112 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "112"
-description: "This psalm is composed alphabetically, as the former is, and is (like the former) entitled \"Hallelujah,\" though it treats of the happiness of the saints, because it redounds to the..."
+description: >
+  This psalm is composed alphabetically, as the former is, and is (like the former) entitled "Hallelujah," though it treats of the happiness of the saints, because it redounds to the...
 weight: 112
 ---
 

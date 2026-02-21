@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "In this chapter we have the final rejection of Saul from being king, for his disobedience to God\'s command in not utterly destroying the Amalekites. By his wars and victories he ho..."
+description: >
+  In this chapter we have the final rejection of Saul from being king, for his disobedience to God's command in not utterly destroying the Amalekites. By his wars and victories he ho...
 weight: 15
 ---
 

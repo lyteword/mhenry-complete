@@ -1,7 +1,8 @@
 ---
 title: "John 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "Among other glorious things God hath spoken of himself this is one, I wound, and I heal, De 32:39. Christ\'s discourse in this chapter, which continues and concludes his farewell se..."
+description: >
+  Among other glorious things God hath spoken of himself this is one, I wound, and I heal, De 32:39. Christ's discourse in this chapter, which continues and concludes his farewell se...
 weight: 16
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "Solomon\'s reign looked bloody in the foregoing chapter, but the necessary acts of justice must not be called cruelty; in this chapter it appears with another face. We must not thin..."
+description: >
+  Solomon's reign looked bloody in the foregoing chapter, but the necessary acts of justice must not be called cruelty; in this chapter it appears with another face. We must not thin...
 weight: 3
 ---
 

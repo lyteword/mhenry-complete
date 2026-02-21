@@ -1,7 +1,8 @@
 ---
 title: "Exodus 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "All things being prepared for the solemn promulgation of the divine law, we have, in this chapter, I. The ten commandments, as God himself spoke them upon Mount Sinai (Ex 20:1-17),..."
+description: >
+  All things being prepared for the solemn promulgation of the divine law, we have, in this chapter, I. The ten commandments, as God himself spoke them upon Mount Sinai (Ex 20:1-17),...
 weight: 20
 ---
 

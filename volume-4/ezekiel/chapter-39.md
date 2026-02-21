@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 39 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "39"
-description: "This chapter continues and concludes the prophecy against Gog and Magog, in whose destruction God crowns his favour to his people Israel, which shines very brightly after the scatt..."
+description: >
+  This chapter continues and concludes the prophecy against Gog and Magog, in whose destruction God crowns his favour to his people Israel, which shines very brightly after the scatt...
 weight: 39
 ---
 

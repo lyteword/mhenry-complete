@@ -1,7 +1,8 @@
 ---
 title: "Joel 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "This chapter is the description of a lamentable devastation made of the country of Judah by locusts and caterpillars. Some think that the prophet speaks of it as a thing to come an..."
+description: >
+  This chapter is the description of a lamentable devastation made of the country of Judah by locusts and caterpillars. Some think that the prophet speaks of it as a thing to come an...
 weight: 1
 ---
 

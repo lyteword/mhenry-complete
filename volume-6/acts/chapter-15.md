@@ -1,7 +1,8 @@
 ---
 title: "Acts 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "Hitherto we have, with a great deal of pleasure, attended the apostles in their glorious travels for the propagating of the gospel in foreign parts, have seen the bounds of the chu..."
+description: >
+  Hitherto we have, with a great deal of pleasure, attended the apostles in their glorious travels for the propagating of the gospel in foreign parts, have seen the bounds of the chu...
 weight: 15
 ---
 

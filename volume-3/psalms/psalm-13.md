@@ -1,7 +1,8 @@
 ---
 title: "Psalm 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "This psalm is the deserted soul\'s case and cure. Whether it was penned upon any particular occasion does not appear, but in general, I. David sadly complains that God had long with..."
+description: >
+  This psalm is the deserted soul's case and cure. Whether it was penned upon any particular occasion does not appear, but in general, I. David sadly complains that God had long with...
 weight: 13
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 42 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "42"
-description: "If the book of Psalms be, as some have styled it, a mirror or looking-glass of pious and devout affections, this psalm in particular deserves, as much as any one psalm, to be so en..."
+description: >
+  If the book of Psalms be, as some have styled it, a mirror or looking-glass of pious and devout affections, this psalm in particular deserves, as much as any one psalm, to be so en...
 weight: 42
 ---
 

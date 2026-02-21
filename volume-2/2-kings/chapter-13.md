@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "This chapter brings us again to the history of the kings of Israel, and particularly of the family of Jehu. We have here an account of the reign, I. Of his son Jehoahaz, which cont..."
+description: >
+  This chapter brings us again to the history of the kings of Israel, and particularly of the family of Jehu. We have here an account of the reign, I. Of his son Jehoahaz, which cont...
 weight: 13
 ---
 

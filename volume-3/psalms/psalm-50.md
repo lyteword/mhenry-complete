@@ -1,7 +1,8 @@
 ---
 title: "Psalm 50 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "50"
-description: "This psalm, as the former, is a psalm of instruction, not of prayer or praise; it is a psalm of reproof and admonition, in singing which we are to teach and admonish one another. I..."
+description: >
+  This psalm, as the former, is a psalm of instruction, not of prayer or praise; it is a psalm of reproof and admonition, in singing which we are to teach and admonish one another. I...
 weight: 50
 ---
 

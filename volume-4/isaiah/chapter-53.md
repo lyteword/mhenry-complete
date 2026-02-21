@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 53 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "53"
-description: "The two great things which the Spirit of Christ in the Old-Testament prophets testified beforehand were the sufferings of Christ and the glory that should follow, 1Pe 1:11. And tha..."
+description: >
+  The two great things which the Spirit of Christ in the Old-Testament prophets testified beforehand were the sufferings of Christ and the glory that should follow, 1Pe 1:11. And tha...
 weight: 53
 ---
 

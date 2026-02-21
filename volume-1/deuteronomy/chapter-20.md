@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "This chapter settles the militia, and establishes the laws and ordinances of war, I. Relating to the soldiers. 1. Those must be encouraged that were drawn up to battle, De 20:1-4. ..."
+description: >
+  This chapter settles the militia, and establishes the laws and ordinances of war, I. Relating to the soldiers. 1. Those must be encouraged that were drawn up to battle, De 20:1-4. ...
 weight: 20
 ---
 

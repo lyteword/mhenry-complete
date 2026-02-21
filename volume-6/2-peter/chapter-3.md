@@ -1,7 +1,8 @@
 ---
 title: "2 Peter 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "The apostle drawing towards the conclusion of his second epistle, begins this last chapter with repeating the account of his design and scope in writing a second time to them, 2Pe ..."
+description: >
+  The apostle drawing towards the conclusion of his second epistle, begins this last chapter with repeating the account of his design and scope in writing a second time to them, 2Pe ...
 weight: 3
 ---
 

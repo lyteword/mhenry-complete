@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 35 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "35"
-description: "It was promised, in the foregoing chapter, that when the time to favour Zion, yea, the set time, should come, especially the time for sending the Messiah and setting up his kingdom..."
+description: >
+  It was promised, in the foregoing chapter, that when the time to favour Zion, yea, the set time, should come, especially the time for sending the Messiah and setting up his kingdom...
 weight: 35
 ---
 

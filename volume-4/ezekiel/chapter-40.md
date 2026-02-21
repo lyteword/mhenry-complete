@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 40 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "40"
-description: "The waters of the sanctuary which this prophet saw in vision (Eze 47:1) are a proper representation of this prophecy. Hitherto the waters have been sometimes but to the ankles, in ..."
+description: >
+  The waters of the sanctuary which this prophet saw in vision (Eze 47:1) are a proper representation of this prophecy. Hitherto the waters have been sometimes but to the ankles, in ...
 weight: 40
 ---
 

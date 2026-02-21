@@ -1,7 +1,8 @@
 ---
 title: "Numbers 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "This chapter and the next are concerning the tribe of Levi, which was to be mustered and marshalled by itself, and not in common with the other tribes, intimating the particular ho..."
+description: >
+  This chapter and the next are concerning the tribe of Levi, which was to be mustered and marshalled by itself, and not in common with the other tribes, intimating the particular ho...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Job 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
-description: "Job had sometimes complained of his friends that they were so eager in disputing that they would scarcely let him put in a word: \"Suffer me that I may speak;\" and, \"O that you woul..."
+description: >
+  Job had sometimes complained of his friends that they were so eager in disputing that they would scarcely let him put in a word: "Suffer me that I may speak;" and, "O that you woul...
 weight: 27
 ---
 

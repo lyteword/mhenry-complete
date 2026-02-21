@@ -1,7 +1,8 @@
 ---
 title: "Psalm 84 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "84"
-description: "Though David\'s name be not in the title of this psalm, yet we have reason to think he was the penman of it, because it breathes so much of his excellent spirit and is so much like ..."
+description: >
+  Though David's name be not in the title of this psalm, yet we have reason to think he was the penman of it, because it breathes so much of his excellent spirit and is so much like ...
 weight: 84
 ---
 

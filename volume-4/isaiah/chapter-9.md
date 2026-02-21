@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "The prophet in this chapter (according to the directions given him, Isa 3:10,11) saith to the righteous, It shall be well with thee, but Woe to the wicked, it shall be ill with him..."
+description: >
+  The prophet in this chapter (according to the directions given him, Isa 3:10,11) saith to the righteous, It shall be well with thee, but Woe to the wicked, it shall be ill with him...
 weight: 9
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ephesians 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "We have gone through the former part of this epistle, which consists of several important doctrinal truths, contained in the three preceding chapters. We enter now on the latter pa..."
+description: >
+  We have gone through the former part of this epistle, which consists of several important doctrinal truths, contained in the three preceding chapters. We enter now on the latter pa...
 weight: 4
 ---
 

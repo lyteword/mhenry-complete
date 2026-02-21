@@ -1,7 +1,8 @@
 ---
 title: "Romans 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "The apostle, having plainly asserted and largely proved that justification and salvation are to had by faith only, and not by the works of the law, by Christ and not by Moses, come..."
+description: >
+  The apostle, having plainly asserted and largely proved that justification and salvation are to had by faith only, and not by the works of the law, by Christ and not by Moses, come...
 weight: 9
 ---
 

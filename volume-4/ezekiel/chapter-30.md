@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 30 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "30"
-description: "In this chapter we have, I. A continuation of the prophecy against Egypt, which we had in the latter part of the foregoing chapter, just before the desolation of that once flourish..."
+description: >
+  In this chapter we have, I. A continuation of the prophecy against Egypt, which we had in the latter part of the foregoing chapter, just before the desolation of that once flourish...
 weight: 30
 ---
 

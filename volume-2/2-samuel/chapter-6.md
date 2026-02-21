@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "The obscurity of the ark, during the reign of Saul, had been as great a grievance to Israel as the insults of the Philistines. David, having humbled the Philistines and mortified t..."
+description: >
+  The obscurity of the ark, during the reign of Saul, had been as great a grievance to Israel as the insults of the Philistines. David, having humbled the Philistines and mortified t...
 weight: 6
 ---
 

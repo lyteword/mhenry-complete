@@ -1,7 +1,8 @@
 ---
 title: "Hosea 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "The scope of this chapter is the same with that of the foregoing chapter, to discover the sin both of Israel and Judah, and to denounce the judgments of God against them. I. They a..."
+description: >
+  The scope of this chapter is the same with that of the foregoing chapter, to discover the sin both of Israel and Judah, and to denounce the judgments of God against them. I. They a...
 weight: 5
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Matthew 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "This chapter is an ordination sermon, which our Lord Jesus preached, when he advanced his twelve disciples to the degree and dignity of apostles. In the close of the foregoing chap..."
+description: >
+  This chapter is an ordination sermon, which our Lord Jesus preached, when he advanced his twelve disciples to the degree and dignity of apostles. In the close of the foregoing chap...
 weight: 10
 ---
 

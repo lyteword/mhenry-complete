@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In this chapter, I. The church gives an account of a sore trial wherewith she was exercised through the withdrawing of her beloved from her, the pains she was at before she recover..."
+description: >
+  In this chapter, I. The church gives an account of a sore trial wherewith she was exercised through the withdrawing of her beloved from her, the pains she was at before she recover...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Joshua 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter we have an account of the scouts that were employed to bring an account to Joshua of the posture of the city of Jericho. Observe here, I. How Joshua sent them, Jos ..."
+description: >
+  In this chapter we have an account of the scouts that were employed to bring an account to Joshua of the posture of the city of Jericho. Observe here, I. How Joshua sent them, Jos ...
 weight: 2
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "The tenth day of the seventh month between the feast of trumpets (Ne 8:2) and the feast of tabernacles (Ne 9:14) was appointed to be the day of atonement; we have no reason to thin..."
+description: >
+  The tenth day of the seventh month between the feast of trumpets (Ne 8:2) and the feast of tabernacles (Ne 9:14) was appointed to be the day of atonement; we have no reason to thin...
 weight: 9
 ---
 

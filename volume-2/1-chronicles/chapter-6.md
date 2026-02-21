@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "Though Joseph and Judah shared between them the forfeited honours of the birthright, yet Levi was first of all the tribes, dignified and distinguished with an honour more valuable ..."
+description: >
+  Though Joseph and Judah shared between them the forfeited honours of the birthright, yet Levi was first of all the tribes, dignified and distinguished with an honour more valuable ...
 weight: 6
 ---
 

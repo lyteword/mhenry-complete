@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "The foregoing chapter gave us the account of David\'s sin; this gives us the account of his repentance. Though he fell, he was not utterly cast down, but, by the grace of God, recov..."
+description: >
+  The foregoing chapter gave us the account of David's sin; this gives us the account of his repentance. Though he fell, he was not utterly cast down, but, by the grace of God, recov...
 weight: 12
 ---
 

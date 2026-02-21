@@ -1,7 +1,8 @@
 ---
 title: "Numbers 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "This chapter continues and concludes the history of the defeat of the counsels of Balak and Balaam against Israel, not by might, nor by power, but by the Spirit of the Lord of host..."
+description: >
+  This chapter continues and concludes the history of the defeat of the counsels of Balak and Balaam against Israel, not by might, nor by power, but by the Spirit of the Lord of host...
 weight: 24
 ---
 

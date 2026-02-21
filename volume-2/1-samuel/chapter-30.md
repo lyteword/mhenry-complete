@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 30 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "30"
-description: "When David was dismissed from the army of the Philistines he did not go over to the camp of Israel, but, being expelled by Saul, observed an exact neutrality, and silently retired ..."
+description: >
+  When David was dismissed from the army of the Philistines he did not go over to the camp of Israel, but, being expelled by Saul, observed an exact neutrality, and silently retired ...
 weight: 30
 ---
 

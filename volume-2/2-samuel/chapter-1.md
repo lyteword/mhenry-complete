@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In the close of the foregoing book (with which this is connected as a continuation of the same history) we had Saul\'s exit; he went down slain to the pit, though he was the terror ..."
+description: >
+  In the close of the foregoing book (with which this is connected as a continuation of the same history) we had Saul's exit; he went down slain to the pit, though he was the terror ...
 weight: 1
 ---
 

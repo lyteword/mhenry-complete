@@ -1,7 +1,8 @@
 ---
 title: "Preface - Volume 4 | Read the Matthew Henry Concise Bible Commentary Online"
 linkTitle: "Preface"
-description: "Those books of scripture are all prophetical of which here, *in weakness, and in fear, and in much trembling,* we have endeavoured a methodical explication and a practical improvement..."
+description: >
+  Those books of scripture are all prophetical of which here, *in weakness, and in fear, and in much trembling,* we have endeavoured a methodical explication and a practical improvement...
 weight: 1
 ---
 

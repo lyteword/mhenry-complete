@@ -1,7 +1,8 @@
 ---
 title: "Ezra 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "This chapter gives us a more particular narrative of Ezra\'s journey to Jerusalem, of which we had a general account in the foregoing chapter I. The company that went up with him, E..."
+description: >
+  This chapter gives us a more particular narrative of Ezra's journey to Jerusalem, of which we had a general account in the foregoing chapter I. The company that went up with him, E...
 weight: 8
 ---
 

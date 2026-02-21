@@ -1,7 +1,8 @@
 ---
 title: "Job 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "Eliphaz, in the foregoing chapter, for the making good of his charge against Job, had vouched a word from heaven, sent him in a vision. In this chapter he appeals to those that bea..."
+description: >
+  Eliphaz, in the foregoing chapter, for the making good of his charge against Job, had vouched a word from heaven, sent him in a vision. In this chapter he appeals to those that bea...
 weight: 5
 ---
 

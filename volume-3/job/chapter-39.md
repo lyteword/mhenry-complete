@@ -1,7 +1,8 @@
 ---
 title: "Job 39 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "39"
-description: "God proceeds here to show Job what little reason he had to charge him with unkindness who was so compassionate to the inferior creatures and took such a tender care of them, or to ..."
+description: >
+  God proceeds here to show Job what little reason he had to charge him with unkindness who was so compassionate to the inferior creatures and took such a tender care of them, or to ...
 weight: 39
 ---
 

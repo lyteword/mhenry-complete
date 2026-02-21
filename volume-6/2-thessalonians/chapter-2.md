@@ -1,7 +1,8 @@
 ---
 title: "2 Thessalonians 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "The apostle is very careful to hinder the spreading of an error into which some among them had fallen concerning the coming of Christ, as being very near, 2Th 2:1-3. Then he procee..."
+description: >
+  The apostle is very careful to hinder the spreading of an error into which some among them had fallen concerning the coming of Christ, as being very near, 2Th 2:1-3. Then he procee...
 weight: 2
 ---
 

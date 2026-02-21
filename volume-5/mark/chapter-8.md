@@ -1,7 +1,8 @@
 ---
 title: "Mark 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "In this chapter, we have, I. Christ\'s miraculous feeding of four thousand with seven loaves and a few small fishes, Mk 8:1-9. II. His refusing to give the Pharisees a sign from hea..."
+description: >
+  In this chapter, we have, I. Christ's miraculous feeding of four thousand with seven loaves and a few small fishes, Mk 8:1-9. II. His refusing to give the Pharisees a sign from hea...
 weight: 8
 ---
 

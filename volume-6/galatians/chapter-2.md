@@ -1,7 +1,8 @@
 ---
 title: "Galatians 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "The apostle, in this chapter, continues the relation of his past life and conduct, which he had begun in the former; and, by some further instances of what had passed between him a..."
+description: >
+  The apostle, in this chapter, continues the relation of his past life and conduct, which he had begun in the former; and, by some further instances of what had passed between him a...
 weight: 2
 ---
 

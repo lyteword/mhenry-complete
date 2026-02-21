@@ -1,7 +1,8 @@
 ---
 title: "Daniel 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "The visions and prophecies of this chapter look only and entirely at the events that were then shortly to come to pass in the monarchies of Persia and Greece, and seem not to have ..."
+description: >
+  The visions and prophecies of this chapter look only and entirely at the events that were then shortly to come to pass in the monarchies of Persia and Greece, and seem not to have ...
 weight: 8
 ---
 

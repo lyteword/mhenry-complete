@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 35 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "35"
-description: "We are here to attend Josiah, I. To the temple, where we see his religious care for the due observance of the ordinance of the passover, according to the law, 2Ch 35:1-19. II. To t..."
+description: >
+  We are here to attend Josiah, I. To the temple, where we see his religious care for the due observance of the ordinance of the passover, according to the law, 2Ch 35:1-19. II. To t...
 weight: 35
 ---
 

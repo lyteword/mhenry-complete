@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "In this chapter, I. The prophet is consulted by some of the elders of Israel, Eze 20:1. II. He is instructed by his God what answer to give them. He must, 1. Signify God\'s displeas..."
+description: >
+  In this chapter, I. The prophet is consulted by some of the elders of Israel, Eze 20:1. II. He is instructed by his God what answer to give them. He must, 1. Signify God's displeas...
 weight: 20
 ---
 

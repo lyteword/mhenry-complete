@@ -1,7 +1,8 @@
 ---
 title: "Job 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "In this and the two following chapters we have Job\'s answer to Zophar\'s discourse, in which, as before, he first reasons with his friends (see Job 13:19) and then turns to his God,..."
+description: >
+  In this and the two following chapters we have Job's answer to Zophar's discourse, in which, as before, he first reasons with his friends (see Job 13:19) and then turns to his God,...
 weight: 12
 ---
 

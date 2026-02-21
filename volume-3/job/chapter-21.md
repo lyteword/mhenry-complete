@@ -1,7 +1,8 @@
 ---
 title: "Job 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "This is Job\'s reply to Zophar\'s discourse, in which he complains less of his own miseries than he had done in his former discourses (finding that his friends were not moved by his ..."
+description: >
+  This is Job's reply to Zophar's discourse, in which he complains less of his own miseries than he had done in his former discourses (finding that his friends were not moved by his ...
 weight: 21
 ---
 

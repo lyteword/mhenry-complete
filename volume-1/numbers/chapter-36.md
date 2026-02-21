@@ -1,7 +1,8 @@
 ---
 title: "Numbers 36 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "36"
-description: "We have in this chapter the determination of another question that arose upon the case of the daughters of Zelophehad. God had appointed that they should inherit, Nu 27:7. Now here..."
+description: >
+  We have in this chapter the determination of another question that arose upon the case of the daughters of Zelophehad. God had appointed that they should inherit, Nu 27:7. Now here...
 weight: 36
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Matthew 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "In this chapter, we have, I. Christ changing his quarters, leaving Galilee, and coming into the coasts of Judea, Mt 19:1,2. II. His dispute with the Pharisees about divorce, and hi..."
+description: >
+  In this chapter, we have, I. Christ changing his quarters, leaving Galilee, and coming into the coasts of Judea, Mt 19:1,2. II. His dispute with the Pharisees about divorce, and hi...
 weight: 19
 ---
 

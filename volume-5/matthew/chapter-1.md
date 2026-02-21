@@ -1,7 +1,8 @@
 ---
 title: "Matthew 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "This evangelist begins with the account of Christ\'s parentage and birth, the ancestors from whom he descended, and the manner of his entry into the world, to make it appear that he..."
+description: >
+  This evangelist begins with the account of Christ's parentage and birth, the ancestors from whom he descended, and the manner of his entry into the world, to make it appear that he...
 weight: 1
 ---
 

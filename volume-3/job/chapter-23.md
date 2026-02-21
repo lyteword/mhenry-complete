@@ -1,7 +1,8 @@
 ---
 title: "Job 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "This chapter begins Job\'s reply to Eliphaz. In this reply he takes no notice of his friends, either because he saw it was to no purpose or because he liked the good counsel Eliphaz..."
+description: >
+  This chapter begins Job's reply to Eliphaz. In this reply he takes no notice of his friends, either because he saw it was to no purpose or because he liked the good counsel Eliphaz...
 weight: 23
 ---
 

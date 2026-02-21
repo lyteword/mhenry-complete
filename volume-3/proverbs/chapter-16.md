@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "## The Sovereignty of Divine Providence
+description: >
+  "## The Sovereignty of Divine Providence
 "
 weight: 16
 ---

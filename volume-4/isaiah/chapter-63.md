@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 63 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "63"
-description: "In this chapter we have, I. God coming towards his people in ways of mercy and deliverance, and this is to be joined to the close of the foregoing chapter, where it was said to Zio..."
+description: >
+  In this chapter we have, I. God coming towards his people in ways of mercy and deliverance, and this is to be joined to the close of the foregoing chapter, where it was said to Zio...
 weight: 63
 ---
 

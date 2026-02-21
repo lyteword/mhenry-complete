@@ -1,7 +1,8 @@
 ---
 title: "1 John 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "The apostle here magnifies the love of God in our adoption, 1Jo 3:1,2. He thereupon argues for holiness (1Jo 3:3), and against sin, 1Jo 3:4-19. He presses brotherly love, 1Jo 3:11-..."
+description: >
+  The apostle here magnifies the love of God in our adoption, 1Jo 3:1,2. He thereupon argues for holiness (1Jo 3:3), and against sin, 1Jo 3:4-19. He presses brotherly love, 1Jo 3:11-...
 weight: 3
 ---
 

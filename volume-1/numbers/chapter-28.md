@@ -1,7 +1,8 @@
 ---
 title: "Numbers 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "Now that the people were numbered, orders given for the dividing of the land, and a general of the forces nominated and commissioned, one would have expected that the next chapter ..."
+description: >
+  Now that the people were numbered, orders given for the dividing of the land, and a general of the forces nominated and commissioned, one would have expected that the next chapter ...
 weight: 28
 ---
 

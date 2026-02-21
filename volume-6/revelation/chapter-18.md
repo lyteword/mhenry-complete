@@ -1,7 +1,8 @@
 ---
 title: "Revelation 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "We have here, I. An angel proclaiming the fall of Babylon, Re 18:1,2. II. Assigning the reasons of her fall, Re 18:3. III. Giving warning to all who belonged to God to come out of ..."
+description: >
+  We have here, I. An angel proclaiming the fall of Babylon, Re 18:1,2. II. Assigning the reasons of her fall, Re 18:3. III. Giving warning to all who belonged to God to come out of ...
 weight: 18
 ---
 

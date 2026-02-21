@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 49 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "49"
-description: "Glorious things had been spoken in the previous chapters concerning the deliverance of the Jews out of Babylon; but lest any should think, when it was accomplished, that it looked ..."
+description: >
+  Glorious things had been spoken in the previous chapters concerning the deliverance of the Jews out of Babylon; but lest any should think, when it was accomplished, that it looked ...
 weight: 49
 ---
 

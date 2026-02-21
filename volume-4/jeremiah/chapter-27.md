@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
-description: "Jeremiah the prophet, since he cannot persuade people to submit to God\'s precept, and so to prevent the destruction of their country by the king of Babylon, is here persuading them..."
+description: >
+  Jeremiah the prophet, since he cannot persuade people to submit to God's precept, and so to prevent the destruction of their country by the king of Babylon, is here persuading them...
 weight: 27
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Mark 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "In this chapter begins the account which this evangelist gives of the death and sufferings of our Lord Jesus, which we are all concerned to be acquainted, not only with the history..."
+description: >
+  In this chapter begins the account which this evangelist gives of the death and sufferings of our Lord Jesus, which we are all concerned to be acquainted, not only with the history...
 weight: 14
 ---
 

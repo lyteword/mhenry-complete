@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 43 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "43"
-description: "Jeremiah had faithfully delivered his message from God in the foregoing chapter, and the case was made so very plain by it that one would have thought there needed no more words ab..."
+description: >
+  Jeremiah had faithfully delivered his message from God in the foregoing chapter, and the case was made so very plain by it that one would have thought there needed no more words ab...
 weight: 43
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 67 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "67"
-description: "This psalm relates to the church and is calculated for the public. Here is, I. A prayer for the prosperity of the church of Israel, Ps 67:1. II. A prayer for the conversion of the ..."
+description: >
+  This psalm relates to the church and is calculated for the public. Here is, I. A prayer for the prosperity of the church of Israel, Ps 67:1. II. A prayer for the conversion of the ...
 weight: 67
 ---
 

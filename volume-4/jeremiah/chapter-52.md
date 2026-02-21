@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 52 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "52"
-description: "History is the best expositor of prophecy; and therefore, for the better understanding of the prophecies of this book which relate to the destruction of Jerusalem and the kingdom o..."
+description: >
+  History is the best expositor of prophecy; and therefore, for the better understanding of the prophecies of this book which relate to the destruction of Jerusalem and the kingdom o...
 weight: 52
 ---
 

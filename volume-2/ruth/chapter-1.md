@@ -1,7 +1,8 @@
 ---
 title: "Ruth 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have Naomi\'s afflictions. I. As a distressed housekeeper, forced by famine to remove into the land of Moab, Ru 1:1,2. II. As a mournful widow and mother, bewaili..."
+description: >
+  In this chapter we have Naomi's afflictions. I. As a distressed housekeeper, forced by famine to remove into the land of Moab, Ru 1:1,2. II. As a mournful widow and mother, bewaili...
 weight: 1
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 33 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "33"
-description: "In this chapter we have the history of the reign, I. Of Manasseh, who reigned long. 1. His wretched apostasy from God, and revolt to idolatry and all wickedness, 2Ch 33:1-10. 2. Hi..."
+description: >
+  In this chapter we have the history of the reign, I. Of Manasseh, who reigned long. 1. His wretched apostasy from God, and revolt to idolatry and all wickedness, 2Ch 33:1-10. 2. Hi...
 weight: 33
 ---
 

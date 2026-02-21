@@ -1,7 +1,8 @@
 ---
 title: "Psalm 69 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "69"
-description: "David penned this psalm when he was in affliction; and in it, I. He complains of the great distress and trouble he was in and earnestly begs of God to relieve and succour him, Ps 6..."
+description: >
+  David penned this psalm when he was in affliction; and in it, I. He complains of the great distress and trouble he was in and earnestly begs of God to relieve and succour him, Ps 6...
 weight: 69
 ---
 

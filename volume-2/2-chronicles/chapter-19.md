@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "We have here a further account of the good reign of Jehoshaphat, I. His return in peace to Jerusalem, 2Ch 19:1. II. The reproof given him for his league with Ahab, and his acting i..."
+description: >
+  We have here a further account of the good reign of Jehoshaphat, I. His return in peace to Jerusalem, 2Ch 19:1. II. The reproof given him for his league with Ahab, and his acting i...
 weight: 19
 ---
 

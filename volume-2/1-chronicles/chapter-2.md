@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "We have now come to what was principally intended, the register of the children of Israel, that distinguished people, that were to \"dwell alone, and not be reckoned among the natio..."
+description: >
+  We have now come to what was principally intended, the register of the children of Israel, that distinguished people, that were to "dwell alone, and not be reckoned among the natio...
 weight: 2
 ---
 

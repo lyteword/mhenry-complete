@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "When Abner was slain David was at a loss for a friend to perfect the reduction of those tribes that were yet in Ish-bosheth\'s interest. Which way to adopt for the accomplishment of..."
+description: >
+  When Abner was slain David was at a loss for a friend to perfect the reduction of those tribes that were yet in Ish-bosheth's interest. Which way to adopt for the accomplishment of...
 weight: 4
 ---
 

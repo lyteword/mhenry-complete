@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 33 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "33"
-description: "This chapter relates to the same events as the foregoing chapter, the distress of Judah and Jerusalem by Sennacherib\'s invasion and their deliverance out of that distress by the de..."
+description: >
+  This chapter relates to the same events as the foregoing chapter, the distress of Judah and Jerusalem by Sennacherib's invasion and their deliverance out of that distress by the de...
 weight: 33
 ---
 

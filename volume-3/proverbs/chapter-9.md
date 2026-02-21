@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "Christ and sin are rivals for the soul of man, and here we are told how they both make their court to it, to have the innermost and uppermost place in it. The design of this repres..."
+description: >
+  Christ and sin are rivals for the soul of man, and here we are told how they both make their court to it, to have the innermost and uppermost place in it. The design of this repres...
 weight: 9
 ---
 

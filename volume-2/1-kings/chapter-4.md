@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "An instance of the wisdom God granted to Solomon we had in the close of the foregoing chapter. In this we have an account of his wealth and prosperity, the other branch of the prom..."
+description: >
+  An instance of the wisdom God granted to Solomon we had in the close of the foregoing chapter. In this we have an account of his wealth and prosperity, the other branch of the prom...
 weight: 4
 ---
 

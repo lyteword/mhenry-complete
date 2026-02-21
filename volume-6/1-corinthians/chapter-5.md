@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter the apostle, I. Blames them for their indulgence in the case of the incestuous person, and orders him to be excommunicated, and delivered to Satan, 1Co 5:1-6. II. H..."
+description: >
+  In this chapter the apostle, I. Blames them for their indulgence in the case of the incestuous person, and orders him to be excommunicated, and delivered to Satan, 1Co 5:1-6. II. H...
 weight: 5
 ---
 

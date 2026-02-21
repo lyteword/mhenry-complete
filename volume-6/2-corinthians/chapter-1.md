@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "After the introduction (2Co 1:1,2) the apostle begins with the narrative of his troubles and God\'s goodness, which he had met with in Asia, by way of thanksgiving to God (2Co 1:3-6..."
+description: >
+  After the introduction (2Co 1:1,2) the apostle begins with the narrative of his troubles and God's goodness, which he had met with in Asia, by way of thanksgiving to God (2Co 1:3-6...
 weight: 1
 ---
 

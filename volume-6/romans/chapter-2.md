@@ -1,7 +1,8 @@
 ---
 title: "Romans 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "The scope of the first two chapters of this epistle may be gathered from Ro 3:9, \"We have before proved both Jews and Gentiles that they are all under sin.\" This we have proved upo..."
+description: >
+  The scope of the first two chapters of this epistle may be gathered from Ro 3:9, "We have before proved both Jews and Gentiles that they are all under sin." This we have proved upo...
 weight: 2
 ---
 

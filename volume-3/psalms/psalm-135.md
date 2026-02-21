@@ -1,7 +1,8 @@
 ---
 title: "Psalm 135 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "135"
-description: "This is one of the Hallelujah-psalms; that is the title of it, and that is the Amen of it, both its Alpha and its Omega. I. It begins with a call to praise God, particularly a call..."
+description: >
+  This is one of the Hallelujah-psalms; that is the title of it, and that is the Amen of it, both its Alpha and its Omega. I. It begins with a call to praise God, particularly a call...
 weight: 135
 ---
 

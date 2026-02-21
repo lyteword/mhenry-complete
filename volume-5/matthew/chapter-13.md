@@ -1,7 +1,8 @@
 ---
 title: "Matthew 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "In this chapter, we have, I. The favour which Christ did to his countrymen in preaching the kingdom of heaven to them, Mt 13:1-2. He preached to them in parables, and here gives th..."
+description: >
+  In this chapter, we have, I. The favour which Christ did to his countrymen in preaching the kingdom of heaven to them, Mt 13:1-2. He preached to them in parables, and here gives th...
 weight: 13
 ---
 

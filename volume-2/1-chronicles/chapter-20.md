@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "Here is a repetition of the story of David\'s wars, I. With the Ammonites, and the taking of Rabbah, 1Ch 20:1-3. II. With the giants of the Philistines, 1Ch 20:4-8.
+description: >
+  "Here is a repetition of the story of David's wars, I. With the Ammonites, and the taking of Rabbah, 1Ch 20:1-3. II. With the giants of the Philistines, 1Ch 20:4-8.
 "
 weight: 20
 ---

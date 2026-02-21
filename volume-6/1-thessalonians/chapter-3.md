@@ -1,7 +1,8 @@
 ---
 title: "1 Thessalonians 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In this chapter the apostle gives further evidence of his love to the Thessalonians, reminding them of his sending Timothy to them, with the mention of his design therein and his i..."
+description: >
+  In this chapter the apostle gives further evidence of his love to the Thessalonians, reminding them of his sending Timothy to them, with the mention of his design therein and his i...
 weight: 3
 ---
 

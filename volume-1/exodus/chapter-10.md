@@ -1,7 +1,8 @@
 ---
 title: "Exodus 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "The eighth and ninth of the plagues of Egypt, that of locusts and that of darkness, are recorded in this chapter. I. Concerning the plague of locusts, 1. God instructs Moses in the..."
+description: >
+  The eighth and ninth of the plagues of Egypt, that of locusts and that of darkness, are recorded in this chapter. I. Concerning the plague of locusts, 1. God instructs Moses in the...
 weight: 10
 ---
 

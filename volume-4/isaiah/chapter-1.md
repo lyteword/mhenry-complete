@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "The first verse of this chapter is intended for a title to the whole book, and it is probable that this was the first sermon that this prophet was appointed to publish and to affix..."
+description: >
+  The first verse of this chapter is intended for a title to the whole book, and it is probable that this was the first sermon that this prophet was appointed to publish and to affix...
 weight: 1
 ---
 

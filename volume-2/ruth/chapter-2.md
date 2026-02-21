@@ -1,7 +1,8 @@
 ---
 title: "Ruth 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "There is scarcely any chapter in all the sacred history that stoops so low as this to take cognizance of so mean a person as Ruth, a poor Moabitish widow, so mean an action as her ..."
+description: >
+  There is scarcely any chapter in all the sacred history that stoops so low as this to take cognizance of so mean a person as Ruth, a poor Moabitish widow, so mean an action as her ...
 weight: 2
 ---
 

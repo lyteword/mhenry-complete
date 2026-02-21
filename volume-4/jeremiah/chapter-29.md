@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
-description: "The contest between Jeremiah and the false prophets was carried on before by preaching, here by writing; there we had sermon against sermon, here we have letter against letter, for..."
+description: >
+  The contest between Jeremiah and the false prophets was carried on before by preaching, here by writing; there we had sermon against sermon, here we have letter against letter, for...
 weight: 29
 ---
 

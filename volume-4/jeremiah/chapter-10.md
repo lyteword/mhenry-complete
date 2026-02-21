@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "We may conjecture that the prophecy of this chapter was delivered after the first captivity, in the time of Jeconiah or Jehoiachin, when many were carried away to Babylon; for it h..."
+description: >
+  We may conjecture that the prophecy of this chapter was delivered after the first captivity, in the time of Jeconiah or Jehoiachin, when many were carried away to Babylon; for it h...
 weight: 10
 ---
 

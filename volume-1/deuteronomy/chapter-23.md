@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "The laws of this chapter provide, I. For the preserving of the purity and honour of the families of Israel, by excluding such as would be a disgrace to them, De 23:1-8. II. For the..."
+description: >
+  The laws of this chapter provide, I. For the preserving of the purity and honour of the families of Israel, by excluding such as would be a disgrace to them, De 23:1-8. II. For the...
 weight: 23
 ---
 

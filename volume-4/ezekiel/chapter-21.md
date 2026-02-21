@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "In this chapter we have, I. An explication of the prophecy in the close of the foregoing chapter concerning the fire in the forest, which the people complained they could not under..."
+description: >
+  In this chapter we have, I. An explication of the prophecy in the close of the foregoing chapter concerning the fire in the forest, which the people complained they could not under...
 weight: 21
 ---
 

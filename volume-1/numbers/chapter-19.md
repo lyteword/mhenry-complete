@@ -1,7 +1,8 @@
 ---
 title: "Numbers 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "This chapter is only concerning the preparing and using of the ashes which were to impregnate the water of purification. The people had complained of the strictness of the law, whi..."
+description: >
+  This chapter is only concerning the preparing and using of the ashes which were to impregnate the water of purification. The people had complained of the strictness of the law, whi...
 weight: 19
 ---
 

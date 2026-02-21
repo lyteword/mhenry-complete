@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "The glory of the Lord, in the vehicle of a thick cloud, having filled the house which Solomon built, by which God manifested his presence there, he immediately improves the opportu..."
+description: >
+  The glory of the Lord, in the vehicle of a thick cloud, having filled the house which Solomon built, by which God manifested his presence there, he immediately improves the opportu...
 weight: 6
 ---
 

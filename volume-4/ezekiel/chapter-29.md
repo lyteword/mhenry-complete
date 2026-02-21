@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
-description: "Three chapters we had concerning Tyre and its king; next follow four chapters concerning Egypt and its king. This is the first of them. Egypt had formerly been a house of bondage t..."
+description: >
+  Three chapters we had concerning Tyre and its king; next follow four chapters concerning Egypt and its king. This is the first of them. Egypt had formerly been a house of bondage t...
 weight: 29
 ---
 

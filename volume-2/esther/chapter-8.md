@@ -1,7 +1,8 @@
 ---
 title: "Esther 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "We left the plotter hanging, and are now to see what becomes of his plot. I. His plot was to raise an estate for himself; and all his estate, being confiscated for treason, is give..."
+description: >
+  We left the plotter hanging, and are now to see what becomes of his plot. I. His plot was to raise an estate for himself; and all his estate, being confiscated for treason, is give...
 weight: 8
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this chapter the prophet goes on faithfully to reprove sin and to threaten God\'s judgments for it, and yet bitterly to lament both, as one that neither rejoiced at iniquity nor ..."
+description: >
+  In this chapter the prophet goes on faithfully to reprove sin and to threaten God's judgments for it, and yet bitterly to lament both, as one that neither rejoiced at iniquity nor ...
 weight: 9
 ---
 

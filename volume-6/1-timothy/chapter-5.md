@@ -1,7 +1,8 @@
 ---
 title: "1 Timothy 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "Here the apostle, I. Directs Timothy how to reprove, 1Ti 5:1,2. II. Adverts to widows, both elder and younger, 1Ti 5:3-16. III. To elders, 1Ti 5:17-19. IV. Treats of public reproof..."
+description: >
+  Here the apostle, I. Directs Timothy how to reprove, 1Ti 5:1,2. II. Adverts to widows, both elder and younger, 1Ti 5:3-16. III. To elders, 1Ti 5:17-19. IV. Treats of public reproof...
 weight: 5
 ---
 

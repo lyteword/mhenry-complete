@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "This chapter gives us some account of the two tribes and a half that were seated on the other side Jordan. I. Of Reuben, 1Ch 5:1-10. II. Of Gad, 1Ch 5:11-17. III. Of the half-tribe..."
+description: >
+  This chapter gives us some account of the two tribes and a half that were seated on the other side Jordan. I. Of Reuben, 1Ch 5:1-10. II. Of Gad, 1Ch 5:11-17. III. Of the half-tribe...
 weight: 5
 ---
 

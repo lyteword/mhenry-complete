@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "In the foregoing chapter we have David made king, by which the civil government was happily settled. In this chapter care is taken about religion. I. David consults with the repres..."
+description: >
+  In the foregoing chapter we have David made king, by which the civil government was happily settled. In this chapter care is taken about religion. I. David consults with the repres...
 weight: 13
 ---
 

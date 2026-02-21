@@ -1,7 +1,8 @@
 ---
 title: "Judges 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "All agree that what is related in this and the rest of the chapters to the end of this book was not done, as the narrative occurs, after Samson, but long before, even soon after th..."
+description: >
+  All agree that what is related in this and the rest of the chapters to the end of this book was not done, as the narrative occurs, after Samson, but long before, even soon after th...
 weight: 17
 ---
 

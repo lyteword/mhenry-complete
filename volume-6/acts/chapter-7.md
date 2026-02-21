@@ -1,7 +1,8 @@
 ---
 title: "Acts 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "When our Lord Jesus called his apostles out to be employed in services and sufferings for him, he told them that yet the last should be first, and the first last, which was remarka..."
+description: >
+  When our Lord Jesus called his apostles out to be employed in services and sufferings for him, he told them that yet the last should be first, and the first last, which was remarka...
 weight: 7
 ---
 

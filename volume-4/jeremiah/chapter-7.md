@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "The prophet having in God\'s name reproved the people for their sins, and given them warning of the judgments of God that were coming upon them, in this chapter prosecutes the same ..."
+description: >
+  The prophet having in God's name reproved the people for their sins, and given them warning of the judgments of God that were coming upon them, in this chapter prosecutes the same ...
 weight: 7
 ---
 

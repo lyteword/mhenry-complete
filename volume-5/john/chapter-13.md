@@ -1,7 +1,8 @@
 ---
 title: "John 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "Our Saviour having finished his public discourses, in which he \"endured the contradiction of sinners,\" now applies himself to a private conversation with his friends, in which he d..."
+description: >
+  Our Saviour having finished his public discourses, in which he "endured the contradiction of sinners," now applies himself to a private conversation with his friends, in which he d...
 weight: 13
 ---
 

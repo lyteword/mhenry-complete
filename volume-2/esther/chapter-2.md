@@ -1,7 +1,8 @@
 ---
 title: "Esther 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "Two things are recorded in this chapter, which were working towards the deliverance of the Jews from Haman\'s conspiracy:—I. The advancement of Esther to be queen instead of Vashti...."
+description: >
+  Two things are recorded in this chapter, which were working towards the deliverance of the Jews from Haman's conspiracy:—I. The advancement of Esther to be queen instead of Vashti....
 weight: 2
 ---
 

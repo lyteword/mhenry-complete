@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "The only thing recorded in this chapter is the kindness David showed to Jonathan\'s seed for his sake. I. The kind enquiry he made after the remains of the house of Saul, and his di..."
+description: >
+  The only thing recorded in this chapter is the kindness David showed to Jonathan's seed for his sake. I. The kind enquiry he made after the remains of the house of Saul, and his di...
 weight: 9
 ---
 

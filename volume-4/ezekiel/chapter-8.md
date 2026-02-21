@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "God, having given the prophet a clear foresight of the people\'s miseries that were hastening on, here gives him a clear insight into the people\'s wickedness, by which God was provo..."
+description: >
+  God, having given the prophet a clear foresight of the people's miseries that were hastening on, here gives him a clear insight into the people's wickedness, by which God was provo...
 weight: 8
 ---
 

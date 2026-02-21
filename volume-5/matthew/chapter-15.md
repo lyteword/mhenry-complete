@@ -1,7 +1,8 @@
 ---
 title: "Matthew 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "In this chapter, we have our Lord Jesus, as the great Prophet teaching, as the great Physician healing, and as the great Shepherd of the sheep feeding; as the Father of spirits ins..."
+description: >
+  In this chapter, we have our Lord Jesus, as the great Prophet teaching, as the great Physician healing, and as the great Shepherd of the sheep feeding; as the Father of spirits ins...
 weight: 15
 ---
 

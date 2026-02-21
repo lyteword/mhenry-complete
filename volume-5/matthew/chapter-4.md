@@ -1,7 +1,8 @@
 ---
 title: "Matthew 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "John Baptist said concerning Christ, He must increase, but I must decrease; and so it proved. For, after John had baptized Christ, and borne his testimony to him, we hear little mo..."
+description: >
+  John Baptist said concerning Christ, He must increase, but I must decrease; and so it proved. For, after John had baptized Christ, and borne his testimony to him, we hear little mo...
 weight: 4
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "The first seven verses of this chapter might fitly have been added to the foregoing chapter, being a continuation of the law of the trespass-offering, and the putting of other case..."
+description: >
+  The first seven verses of this chapter might fitly have been added to the foregoing chapter, being a continuation of the law of the trespass-offering, and the putting of other case...
 weight: 6
 ---
 

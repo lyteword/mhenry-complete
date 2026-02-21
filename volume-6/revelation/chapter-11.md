@@ -1,7 +1,8 @@
 ---
 title: "Revelation 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "In this chapter we have an account, I. Of the measuring—reed given to the apostle, to take the dimensions of the temple, Re 11:1,2. II. Of the two witnesses of God, Re 11:3-13. III..."
+description: >
+  In this chapter we have an account, I. Of the measuring—reed given to the apostle, to take the dimensions of the temple, Re 11:1,2. II. Of the two witnesses of God, Re 11:3-13. III...
 weight: 11
 ---
 

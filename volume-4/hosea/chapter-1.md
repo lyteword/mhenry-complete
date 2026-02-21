@@ -1,7 +1,8 @@
 ---
 title: "Hosea 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "The mind of God is revealed to this prophet, and by him to the people, in the first three chapters, by signs and types, but afterwards only by discourse. In this chapter we have, I..."
+description: >
+  The mind of God is revealed to this prophet, and by him to the people, in the first three chapters, by signs and types, but afterwards only by discourse. In this chapter we have, I...
 weight: 1
 ---
 

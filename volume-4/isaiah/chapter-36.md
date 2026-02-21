@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 36 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "36"
-description: "The prophet Isaiah is, in this and the three following chapters, an historian; for the scripture history, as well as the scripture prophecy, is given by inspiration of God, and was..."
+description: >
+  The prophet Isaiah is, in this and the three following chapters, an historian; for the scripture history, as well as the scripture prophecy, is given by inspiration of God, and was...
 weight: 36
 ---
 

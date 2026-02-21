@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "It should seem that the Jer 3:29-37,4:1-2 of this chapter might better have been joined to the close of the foregoing chapter, for they are directed to Israel, the ten tribes, by w..."
+description: >
+  It should seem that the Jer 3:29-37,4:1-2 of this chapter might better have been joined to the close of the foregoing chapter, for they are directed to Israel, the ten tribes, by w...
 weight: 4
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Matthew 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "This chapter, and the two that follow it, are a sermon; a famous sermon; the sermon upon the mount. It is the longest and fullest continued discourse of our Saviour that we have up..."
+description: >
+  This chapter, and the two that follow it, are a sermon; a famous sermon; the sermon upon the mount. It is the longest and fullest continued discourse of our Saviour that we have up...
 weight: 5
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Acts 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "In the close of the foregoing chapter we had Paul bound, according to Agabus\'s prophecy of the hard usage he should receive from the Jews at Jerusalem, yet he had his tongue set at..."
+description: >
+  In the close of the foregoing chapter we had Paul bound, according to Agabus's prophecy of the hard usage he should receive from the Jews at Jerusalem, yet he had his tongue set at...
 weight: 22
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Numbers 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "Hitherto things had gone pretty well in Israel; little interruption had been given to the methods of God\'s favour to them since the matter of the golden calf; the people seemed tea..."
+description: >
+  Hitherto things had gone pretty well in Israel; little interruption had been given to the methods of God's favour to them since the matter of the golden calf; the people seemed tea...
 weight: 11
 ---
 

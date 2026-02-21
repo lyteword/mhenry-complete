@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "We are now called to attend the public affairs of Israel, in which we shall find Elisha concerned. Here is, I. The general character of Jehoram, king of Israel, 2Ki 3:1-3. II. A wa..."
+description: >
+  We are now called to attend the public affairs of Israel, in which we shall find Elisha concerned. Here is, I. The general character of Jehoram, king of Israel, 2Ki 3:1-3. II. A wa...
 weight: 3
 ---
 

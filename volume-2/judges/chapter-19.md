@@ -1,7 +1,8 @@
 ---
 title: "Judges 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "The three remaining chapters of this book contain a most tragical story of the wickedness of the men of Gibeah, patronised by the tribe of Benjamin, for which that tribe was severe..."
+description: >
+  The three remaining chapters of this book contain a most tragical story of the wickedness of the men of Gibeah, patronised by the tribe of Benjamin, for which that tribe was severe...
 weight: 19
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Acts 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "We have, with a great deal of pleasure, attended the apostle in his travels throughout the Gentile nations to preach the gospel, and have seen a great harvest of souls gathered in ..."
+description: >
+  We have, with a great deal of pleasure, attended the apostle in his travels throughout the Gentile nations to preach the gospel, and have seen a great harvest of souls gathered in ...
 weight: 21
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Mark 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "What we read of the sufferings of Christ, in the foregoing chapter, was but the prologue or introduction; here we have the completing of them. We left him condemned by the chief pr..."
+description: >
+  What we read of the sufferings of Christ, in the foregoing chapter, was but the prologue or introduction; here we have the completing of them. We left him condemned by the chief pr...
 weight: 15
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Obadiah 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "This book is wholly concerning Edom, a nation nearly allied and near adjoining to Israel, and yet an enemy to the seed of Jacob, inheriting the enmity of their father Esau to Jacob..."
+description: >
+  This book is wholly concerning Edom, a nation nearly allied and near adjoining to Israel, and yet an enemy to the seed of Jacob, inheriting the enmity of their father Esau to Jacob...
 weight: 1
 ---
 

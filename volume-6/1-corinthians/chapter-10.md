@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "In this chapter the apostle prosecutes the argument at the close of the last, and, I. Warns the Corinthians against security, by the example of the Jews, who, notwithstanding their..."
+description: >
+  In this chapter the apostle prosecutes the argument at the close of the last, and, I. Warns the Corinthians against security, by the example of the Jews, who, notwithstanding their...
 weight: 10
 ---
 

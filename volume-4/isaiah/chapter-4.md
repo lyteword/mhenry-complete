@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter we have, I. A threatening of the paucity and scarceness of man (Isa 4:1), which might fitly enough have been added to the close of the foregoing chapter, to which i..."
+description: >
+  In this chapter we have, I. A threatening of the paucity and scarceness of man (Isa 4:1), which might fitly enough have been added to the close of the foregoing chapter, to which i...
 weight: 4
 ---
 

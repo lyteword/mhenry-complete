@@ -1,7 +1,8 @@
 ---
 title: "Psalm 34 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "34"
-description: "This psalm was penned upon a particular occasion, as appears by the title, and yet there is little in it peculiar to that occasion, but that which is general, both by way of thanks..."
+description: >
+  This psalm was penned upon a particular occasion, as appears by the title, and yet there is little in it peculiar to that occasion, but that which is general, both by way of thanks...
 weight: 34
 ---
 

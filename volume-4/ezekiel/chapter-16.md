@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "Still God is justifying himself in the desolations he is about to bring upon Jerusalem; and very largely, in this chapter, he shows the prophet, and orders him to show the people, ..."
+description: >
+  Still God is justifying himself in the desolations he is about to bring upon Jerusalem; and very largely, in this chapter, he shows the prophet, and orders him to show the people, ...
 weight: 16
 ---
 

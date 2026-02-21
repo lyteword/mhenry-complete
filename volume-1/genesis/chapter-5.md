@@ -1,7 +1,8 @@
 ---
 title: "Genesis 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "This chapter is the only authentic history extant of the first age of the world from the creation to the flood, containing (according to the verity of the Hebrew text) 1656 years, ..."
+description: >
+  This chapter is the only authentic history extant of the first age of the world from the creation to the flood, containing (according to the verity of the Hebrew text) 1656 years, ...
 weight: 5
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 34 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "34"
-description: "Having read how Moses finished his testimony, we are told here how he immediately after finished his life. This chapter could not be written by Moses himself, but was added by Josh..."
+description: >
+  Having read how Moses finished his testimony, we are told here how he immediately after finished his life. This chapter could not be written by Moses himself, but was added by Josh...
 weight: 34
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Genesis 44 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "44"
-description: "Joseph, having entertained his brethren, dismissed them; but here we have them brought back in a greater fright than any they had been in yet. Observe, I. What method he took both ..."
+description: >
+  Joseph, having entertained his brethren, dismissed them; but here we have them brought back in a greater fright than any they had been in yet. Observe, I. What method he took both ...
 weight: 44
 ---
 

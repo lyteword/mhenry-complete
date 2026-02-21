@@ -1,7 +1,8 @@
 ---
 title: "Exodus 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "Three more of the plagues of Egypt are related in this chapter, I. That of the frogs, which is, 1. Threatened, Ex 8:1-4. 2. Inflicted, Ex 8:5,6. 3. Mimicked by the magicians, Ex 8:..."
+description: >
+  Three more of the plagues of Egypt are related in this chapter, I. That of the frogs, which is, 1. Threatened, Ex 8:1-4. 2. Inflicted, Ex 8:5,6. 3. Mimicked by the magicians, Ex 8:...
 weight: 8
 ---
 

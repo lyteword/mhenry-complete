@@ -1,7 +1,8 @@
 ---
 title: "Judges 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "Samson\'s name (we have observed before) signifies a little sun (sol parvus); we have seen this sun rising very bright, and his morning ray strong and clear; and, nothing appearing ..."
+description: >
+  Samson's name (we have observed before) signifies a little sun (sol parvus); we have seen this sun rising very bright, and his morning ray strong and clear; and, nothing appearing ...
 weight: 16
 ---
 

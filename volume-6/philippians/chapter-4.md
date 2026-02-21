@@ -1,7 +1,8 @@
 ---
 title: "Philippians 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "Exhortations to several Christian duties, as stedfastness, unanimity, joy, etc., Php 4:1-9. The apostle\'s grateful acknowledgments of the Philippians\' kindness to him, with express..."
+description: >
+  Exhortations to several Christian duties, as stedfastness, unanimity, joy, etc., Php 4:1-9. The apostle's grateful acknowledgments of the Philippians' kindness to him, with express...
 weight: 4
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 30 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "30"
-description: "This and the following chapter are an appendix to Solomon\'s proverbs; but they are both expressly called prophecies in the Pr 30:1,31:1, by which it appears that the penmen of them..."
+description: >
+  This and the following chapter are an appendix to Solomon's proverbs; but they are both expressly called prophecies in the Pr 30:1,31:1, by which it appears that the penmen of them...
 weight: 30
 ---
 

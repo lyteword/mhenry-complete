@@ -1,7 +1,8 @@
 ---
 title: "Psalm 58 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "58"
-description: "It is the probable conjecture of some (Amyraldus particularly) that before Saul began to persecute David by force of arms, and raised the militia to seize him, he formed a process ..."
+description: >
+  It is the probable conjecture of some (Amyraldus particularly) that before Saul began to persecute David by force of arms, and raised the militia to seize him, he formed a process ...
 weight: 58
 ---
 

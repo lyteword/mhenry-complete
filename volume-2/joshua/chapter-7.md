@@ -1,7 +1,8 @@
 ---
 title: "Joshua 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "More than once we have found the affairs of Israel, even when they were in the happiest posture and gave the most hopeful prospects, perplexed and embarrassed by sin, and a stop th..."
+description: >
+  More than once we have found the affairs of Israel, even when they were in the happiest posture and gave the most hopeful prospects, perplexed and embarrassed by sin, and a stop th...
 weight: 7
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Daniel 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "The angel Gabriel, in this chapter, performs his promise made to Daniel in the foregoing chapter, that he would \"show him what should befal his people in the latter days,\" accordin..."
+description: >
+  The angel Gabriel, in this chapter, performs his promise made to Daniel in the foregoing chapter, that he would "show him what should befal his people in the latter days," accordin...
 weight: 11
 ---
 

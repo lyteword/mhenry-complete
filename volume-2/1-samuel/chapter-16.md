@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "At this chapter begins the story of David, one that makes as great a figure in the sacred story as almost any of the worthies of the Old Testament, one that both with his sword and..."
+description: >
+  At this chapter begins the story of David, one that makes as great a figure in the sacred story as almost any of the worthies of the Old Testament, one that both with his sword and...
 weight: 16
 ---
 

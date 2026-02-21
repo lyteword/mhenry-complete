@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have, I. The general inscription or title of this book, with the time of the continuance of Jeremiah\'s public ministry, Jer 1:1-3. II. The call of Jeremiah to th..."
+description: >
+  In this chapter we have, I. The general inscription or title of this book, with the time of the continuance of Jeremiah's public ministry, Jer 1:1-3. II. The call of Jeremiah to th...
 weight: 1
 ---
 

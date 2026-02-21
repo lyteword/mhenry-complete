@@ -1,7 +1,8 @@
 ---
 title: "Job 33 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "33"
-description: "Pompous prefaces, like the teeming mountain, often introduce poor performances; but Elihu\'s discourse here does not disappoint the expectations which his preface had raised. It is ..."
+description: >
+  Pompous prefaces, like the teeming mountain, often introduce poor performances; but Elihu's discourse here does not disappoint the expectations which his preface had raised. It is ...
 weight: 33
 ---
 

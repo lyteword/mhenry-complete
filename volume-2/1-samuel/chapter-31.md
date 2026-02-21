@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 31 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "31"
-description: "In the foregoing chapter we had David conquering, yea, more than a conqueror. In this chapter we have Saul conquered and worse than a captive. Providence ordered it that both these..."
+description: >
+  In the foregoing chapter we had David conquering, yea, more than a conqueror. In this chapter we have Saul conquered and worse than a captive. Providence ordered it that both these...
 weight: 31
 ---
 

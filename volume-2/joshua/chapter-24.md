@@ -1,7 +1,8 @@
 ---
 title: "Joshua 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "This chapter concludes the life and reign of Joshua, in which we have, I. The great care and pains he took to confirm the people of Israel in the true faith and worship of God, tha..."
+description: >
+  This chapter concludes the life and reign of Joshua, in which we have, I. The great care and pains he took to confirm the people of Israel in the true faith and worship of God, tha...
 weight: 24
 ---
 

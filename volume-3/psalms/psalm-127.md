@@ -1,7 +1,8 @@
 ---
 title: "Psalm 127 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "127"
-description: "This is a family-psalm, as divers before were state-poems and church-poems. It is entitled (as we read it) \"for Solomon,\" dedicated to him by his father. He having a house to build..."
+description: >
+  This is a family-psalm, as divers before were state-poems and church-poems. It is entitled (as we read it) "for Solomon," dedicated to him by his father. He having a house to build...
 weight: 127
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter we have, I. Another vision which the prophet saw, not for his own entertainment, but for his satisfaction and the edification of those to whom he was sent, Zec 2:1,..."
+description: >
+  In this chapter we have, I. Another vision which the prophet saw, not for his own entertainment, but for his satisfaction and the edification of those to whom he was sent, Zec 2:1,...
 weight: 2
 ---
 

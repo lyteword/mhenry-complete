@@ -1,7 +1,8 @@
 ---
 title: "Job 32 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "32"
-description: "The stage is clear, for Job and his three friends have sat down, and neither he nor they have any thing more to say; it is therefore very seasonable for a moderator to interpose, a..."
+description: >
+  The stage is clear, for Job and his three friends have sat down, and neither he nor they have any thing more to say; it is therefore very seasonable for a moderator to interpose, a...
 weight: 32
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Philippians 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "He begins with the inscription and benediction, Php 1:1,2. He gives thanks for the saints at Philippi, Php 1:3-6. He speaks of his great affection and concern for their spiritual w..."
+description: >
+  He begins with the inscription and benediction, Php 1:1,2. He gives thanks for the saints at Philippi, Php 1:3-6. He speaks of his great affection and concern for their spiritual w...
 weight: 1
 ---
 

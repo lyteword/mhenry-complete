@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "In this chapter provision is made, I. For the putting away of the guilt of blood from the land, when he that shed it had fled from justice, De 21:1-9. II. For the preserving of the..."
+description: >
+  In this chapter provision is made, I. For the putting away of the guilt of blood from the land, when he that shed it had fled from justice, De 21:1-9. II. For the preserving of the...
 weight: 21
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Luke 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "Nothing is related concerning our Lord Jesus from his twelfth year to his entrance on his thirtieth year. We often think it would have been a pleasure and advantage to us if we had..."
+description: >
+  Nothing is related concerning our Lord Jesus from his twelfth year to his entrance on his thirtieth year. We often think it would have been a pleasure and advantage to us if we had...
 weight: 3
 ---
 

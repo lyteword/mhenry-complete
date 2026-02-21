@@ -1,7 +1,8 @@
 ---
 title: "Acts 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "In this chapter we have, I. Paul\'s coming to Corinth, his private converse with Aquila and Priscilla, and his public reasonings with the Jews, from whom, when they rejected him, he..."
+description: >
+  In this chapter we have, I. Paul's coming to Corinth, his private converse with Aquila and Priscilla, and his public reasonings with the Jews, from whom, when they rejected him, he...
 weight: 18
 ---
 

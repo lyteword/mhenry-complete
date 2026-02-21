@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "David is the man whom God now delights to honour, for he is a man after his own heart. We read in the foregoing chapter how, after he was anointed, Providence made him famous in th..."
+description: >
+  David is the man whom God now delights to honour, for he is a man after his own heart. We read in the foregoing chapter how, after he was anointed, Providence made him famous in th...
 weight: 17
 ---
 

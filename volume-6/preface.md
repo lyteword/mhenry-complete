@@ -1,7 +1,8 @@
 ---
 title: "Preface - Volume 6 | Read the Matthew Henry Concise Bible Commentary Online"
 linkTitle: "Preface"
-description: "After much expectation, and many enquiries, the last volume of the late reverend Mr. Henry's Exposition now appears in the world..."
+description: >
+  After much expectation, and many enquiries, the last volume of the late reverend Mr. Henry's Exposition now appears in the world...
 weight: 1
 ---
 

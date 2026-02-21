@@ -1,7 +1,8 @@
 ---
 title: "Judges 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "The ruins of the tribe of Benjamin we read of in the foregoing chapter; now here we have, I. The lamentation which Israel made over these ruins, Jdg 21:1-4,6,15. II. The provision ..."
+description: >
+  The ruins of the tribe of Benjamin we read of in the foregoing chapter; now here we have, I. The lamentation which Israel made over these ruins, Jdg 21:1-4,6,15. II. The provision ...
 weight: 21
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Matthew 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "None of Christ\'s miracles are recorded in this chapter, but four of his discourses. Here is, I. A conference with the Pharisees, who challenged him to show them a sign from heaven,..."
+description: >
+  None of Christ's miracles are recorded in this chapter, but four of his discourses. Here is, I. A conference with the Pharisees, who challenged him to show them a sign from heaven,...
 weight: 16
 ---
 

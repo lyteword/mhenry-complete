@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "We have hitherto had Saul seeking an opportunity to destroy David, and, to his shame, he could never find it. In this chapter David had a fair opportunity to destroy Saul, and, to ..."
+description: >
+  We have hitherto had Saul seeking an opportunity to destroy David, and, to his shame, he could never find it. In this chapter David had a fair opportunity to destroy Saul, and, to ...
 weight: 24
 ---
 

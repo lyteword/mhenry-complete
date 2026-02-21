@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
-description: "How Saul, who was forsaken of God, when he was in a strait was more and more perplexed and embarrassed with his own counsels, we read in the foregoing chapter. In this chapter we f..."
+description: >
+  How Saul, who was forsaken of God, when he was in a strait was more and more perplexed and embarrassed with his own counsels, we read in the foregoing chapter. In this chapter we f...
 weight: 29
 ---
 

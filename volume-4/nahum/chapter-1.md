@@ -1,7 +1,8 @@
 ---
 title: "Nahum 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have, I. The inscription of the book, Na 1:1. II. A magnificent display of the glory of God, in a mixture of wrath and justice against the wicked, and mercy and ..."
+description: >
+  In this chapter we have, I. The inscription of the book, Na 1:1. II. A magnificent display of the glory of God, in a mixture of wrath and justice against the wicked, and mercy and ...
 weight: 1
 ---
 

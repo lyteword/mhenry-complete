@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 47 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "47"
-description: "Infinite Wisdom could have ordered things so that Israel might have been released and yet Babylon unhurt; but if they will harden their hearts, and will not let the people go, they..."
+description: >
+  Infinite Wisdom could have ordered things so that Israel might have been released and yet Babylon unhurt; but if they will harden their hearts, and will not let the people go, they...
 weight: 47
 ---
 

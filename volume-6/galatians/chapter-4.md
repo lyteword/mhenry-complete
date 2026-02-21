@@ -1,7 +1,8 @@
 ---
 title: "Galatians 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "The apostle, in this chapter, is still carrying on the same general design as in the former—to recover these Christians from the impressions made upon them by the judaizing teacher..."
+description: >
+  The apostle, in this chapter, is still carrying on the same general design as in the former—to recover these Christians from the impressions made upon them by the judaizing teacher...
 weight: 4
 ---
 

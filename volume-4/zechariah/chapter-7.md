@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "We have done with the visions, but not with the revelations of this book; the prophet sees no more such signs as he had seen, but still \"the word of the Lord came to him.\" In this ..."
+description: >
+  We have done with the visions, but not with the revelations of this book; the prophet sees no more such signs as he had seen, but still "the word of the Lord came to him." In this ...
 weight: 7
 ---
 

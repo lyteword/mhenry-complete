@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "The prophet, in this chapter, goes on to foretel the desolations that were coming upon Judah and Jerusalem for their sins, both that by the Babylonians and that which completed the..."
+description: >
+  The prophet, in this chapter, goes on to foretel the desolations that were coming upon Judah and Jerusalem for their sins, both that by the Babylonians and that which completed the...
 weight: 3
 ---
 

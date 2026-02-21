@@ -1,7 +1,8 @@
 ---
 title: "1 Chronicles 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "The account we have of David\'s exit, in the beginning of the first book of Kings, does not make his sun nearly so bright as that given in this and the following chapter, where we h..."
+description: >
+  The account we have of David's exit, in the beginning of the first book of Kings, does not make his sun nearly so bright as that given in this and the following chapter, where we h...
 weight: 28
 ---
 

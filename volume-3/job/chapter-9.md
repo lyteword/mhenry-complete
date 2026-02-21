@@ -1,7 +1,8 @@
 ---
 title: "Job 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this and the following chapter we have Job\'s answer to Bildad\'s discourse, wherein he speaks honourably of God, humbly of himself, and feelingly of his troubles; but not one wor..."
+description: >
+  In this and the following chapter we have Job's answer to Bildad's discourse, wherein he speaks honourably of God, humbly of himself, and feelingly of his troubles; but not one wor...
 weight: 9
 ---
 

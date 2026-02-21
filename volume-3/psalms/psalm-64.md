@@ -1,7 +1,8 @@
 ---
 title: "Psalm 64 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "64"
-description: "This whole psalm has reference to David\'s enemies, persecutors, and slanderers; many such there were, and a great deal of trouble they gave him, almost all his days, so that we nee..."
+description: >
+  This whole psalm has reference to David's enemies, persecutors, and slanderers; many such there were, and a great deal of trouble they gave him, almost all his days, so that we nee...
 weight: 64
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Job 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "One would have thought that such an excellent confession of faith as Job made, in the close of the foregoing chapter, would satisfy his friends, or at least mollify them; but they ..."
+description: >
+  One would have thought that such an excellent confession of faith as Job made, in the close of the foregoing chapter, would satisfy his friends, or at least mollify them; but they ...
 weight: 20
 ---
 

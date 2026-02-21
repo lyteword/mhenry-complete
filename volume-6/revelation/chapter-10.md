@@ -1,7 +1,8 @@
 ---
 title: "Revelation 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "This chapter is an introduction to the latter part of the prophecies of this book. Whether what is contained between this and the sounding of the seventh trumpet (Re 11:15) be a di..."
+description: >
+  This chapter is an introduction to the latter part of the prophecies of this book. Whether what is contained between this and the sounding of the seventh trumpet (Re 11:15) be a di...
 weight: 10
 ---
 

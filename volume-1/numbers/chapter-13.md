@@ -1,7 +1,8 @@
 ---
 title: "Numbers 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "It is a memorable and very melancholy story which is related in this and the following chapter, of the turning back of Israel from the borders of Canaan, when they were just ready ..."
+description: >
+  It is a memorable and very melancholy story which is related in this and the following chapter, of the turning back of Israel from the borders of Canaan, when they were just ready ...
 weight: 13
 ---
 

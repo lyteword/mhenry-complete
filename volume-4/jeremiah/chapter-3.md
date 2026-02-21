@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "The foregoing chapter was wholly taken up with reproofs and threatenings against the people of God, for their apostasies from him; but in this chapter gracious invitations and enco..."
+description: >
+  The foregoing chapter was wholly taken up with reproofs and threatenings against the people of God, for their apostasies from him; but in this chapter gracious invitations and enco...
 weight: 3
 ---
 

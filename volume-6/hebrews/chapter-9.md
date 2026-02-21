@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "The apostle, having declared the Old-Testament dispensation antiquated and vanishing away, proceeds to let the Hebrews see the correspondence there was between the Old Testament an..."
+description: >
+  The apostle, having declared the Old-Testament dispensation antiquated and vanishing away, proceeds to let the Hebrews see the correspondence there was between the Old Testament an...
 weight: 9
 ---
 

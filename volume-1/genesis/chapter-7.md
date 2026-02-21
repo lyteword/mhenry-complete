@@ -1,7 +1,8 @@
 ---
 title: "Genesis 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter we have the performance of what was foretold in the foregoing chapter, both concerning the destruction of the old world and the salvation of Noah; for we may be sur..."
+description: >
+  In this chapter we have the performance of what was foretold in the foregoing chapter, both concerning the destruction of the old world and the salvation of Noah; for we may be sur...
 weight: 7
 ---
 

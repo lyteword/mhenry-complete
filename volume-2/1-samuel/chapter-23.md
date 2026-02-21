@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "Saul, having made himself drunk with the blood of the priests of the Lord, is here, in this chapter, seeking David\'s life, who appears here doing good, and suffering ill, at the sa..."
+description: >
+  Saul, having made himself drunk with the blood of the priests of the Lord, is here, in this chapter, seeking David's life, who appears here doing good, and suffering ill, at the sa...
 weight: 23
 ---
 

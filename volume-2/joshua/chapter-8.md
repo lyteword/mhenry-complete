@@ -1,7 +1,8 @@
 ---
 title: "Joshua 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "The embarrassment which Achan\'s sin gave to the affairs of Israel being over, we have them here in a very good posture again, the affairs both of war and religion. Here is, I. The ..."
+description: >
+  The embarrassment which Achan's sin gave to the affairs of Israel being over, we have them here in a very good posture again, the affairs both of war and religion. Here is, I. The ...
 weight: 8
 ---
 

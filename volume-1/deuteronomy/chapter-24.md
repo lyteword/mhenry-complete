@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "In this chapter we have, I. The toleration of divorce, De 24:1-4. II. A discharge of new-married men from the war, De 24:5. III. Laws concerning pledges, De 24:6,10-13,17. IV. Agai..."
+description: >
+  In this chapter we have, I. The toleration of divorce, De 24:1-4. II. A discharge of new-married men from the war, De 24:5. III. Laws concerning pledges, De 24:6,10-13,17. IV. Agai...
 weight: 24
 ---
 

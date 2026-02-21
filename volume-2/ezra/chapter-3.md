@@ -1,7 +1,8 @@
 ---
 title: "Ezra 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In the close of the foregoing chapter we left Israel in their cities, but we may well imagine what a bad posture their affairs were in, the ground untilled, the cities in ruins, al..."
+description: >
+  In the close of the foregoing chapter we left Israel in their cities, but we may well imagine what a bad posture their affairs were in, the ground untilled, the cities in ruins, al...
 weight: 3
 ---
 

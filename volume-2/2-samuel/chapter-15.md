@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "Absalom\'s name signifies \"the peace of his father,\" yet he proves his greatest trouble; so often are we disappointed in our expectations from the creature. The sword entailed upon ..."
+description: >
+  Absalom's name signifies "the peace of his father," yet he proves his greatest trouble; so often are we disappointed in our expectations from the creature. The sword entailed upon ...
 weight: 15
 ---
 

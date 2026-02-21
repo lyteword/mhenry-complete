@@ -1,7 +1,8 @@
 ---
 title: "Judges 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "The apostasy of Israel after the death of Gideon is punished, not as the former apostasies by a foreign invasion, or the oppressions of any neighbouring power, but by intestine bro..."
+description: >
+  The apostasy of Israel after the death of Gideon is punished, not as the former apostasies by a foreign invasion, or the oppressions of any neighbouring power, but by intestine bro...
 weight: 9
 ---
 

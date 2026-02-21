@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "This chapter relates wholly to the kingdom of Israel, and the revolutions of that kingdom—many in a little time. The utter ruin of Jeroboam\'s family, after it had been twenty-four ..."
+description: >
+  This chapter relates wholly to the kingdom of Israel, and the revolutions of that kingdom—many in a little time. The utter ruin of Jeroboam's family, after it had been twenty-four ...
 weight: 16
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "The battle between Joab and Abner did not end the controversy between the two houses of Saul and David, but it is in this chapter working towards a period. Here is, I. The gradual ..."
+description: >
+  The battle between Joab and Abner did not end the controversy between the two houses of Saul and David, but it is in this chapter working towards a period. Here is, I. The gradual ...
 weight: 3
 ---
 

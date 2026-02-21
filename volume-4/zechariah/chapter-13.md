@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "In this chapter we have, I. Some further promises relating to gospel-times. Here is a promise of the remission of sins (Zec 13:1), of the reformation of manners (Zec 13:2), and par..."
+description: >
+  In this chapter we have, I. Some further promises relating to gospel-times. Here is a promise of the remission of sins (Zec 13:1), of the reformation of manners (Zec 13:2), and par...
 weight: 13
 ---
 

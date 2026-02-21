@@ -1,7 +1,8 @@
 ---
 title: "John 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In the close of the foregoing chapter we had an account of the first disciples whom Jesus called, Andrew and Peter, Philip and Nathanael. These were the first-fruits to God and to ..."
+description: >
+  In the close of the foregoing chapter we had an account of the first disciples whom Jesus called, Andrew and Peter, Philip and Nathanael. These were the first-fruits to God and to ...
 weight: 2
 ---
 

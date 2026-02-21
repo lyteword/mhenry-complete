@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "In this chapter, I. The history of two of the kings of Judah is briefly recorded:—1. Of Azariah, or Uzziah, 2Ki 15:1-7. 2. Of Jotham his son, 2Ki 15:32-38. II. The history of many ..."
+description: >
+  In this chapter, I. The history of two of the kings of Judah is briefly recorded:—1. Of Azariah, or Uzziah, 2Ki 15:1-7. 2. Of Jotham his son, 2Ki 15:32-38. II. The history of many ...
 weight: 15
 ---
 

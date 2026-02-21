@@ -1,7 +1,8 @@
 ---
 title: "John 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "In this chapter we have, I. Christ\'s parabolical discourse concerning himself as the door of the sheepfold, and the shepherd of the sheep, Joh 10:1-18. II. The various sentiments o..."
+description: >
+  In this chapter we have, I. Christ's parabolical discourse concerning himself as the door of the sheepfold, and the shepherd of the sheep, Joh 10:1-18. II. The various sentiments o...
 weight: 10
 ---
 

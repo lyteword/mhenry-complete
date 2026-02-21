@@ -1,7 +1,8 @@
 ---
 title: "Matthew 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "The death and resurrection of Jesus Christ are the two main hinges upon which the door of salvation turns. He came into the world on purpose to give his life a ransom; so he had la..."
+description: >
+  The death and resurrection of Jesus Christ are the two main hinges upon which the door of salvation turns. He came into the world on purpose to give his life a ransom; so he had la...
 weight: 21
 ---
 

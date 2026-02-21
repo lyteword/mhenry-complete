@@ -1,7 +1,8 @@
 ---
 title: "Mark 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "Mark\'s narrative does not take rise so early as those of Matthew and Luke do, from the birth of our Saviour, but from John\'s baptism, from which he soon passes to Christ\'s public m..."
+description: >
+  Mark's narrative does not take rise so early as those of Matthew and Luke do, from the birth of our Saviour, but from John's baptism, from which he soon passes to Christ's public m...
 weight: 1
 ---
 

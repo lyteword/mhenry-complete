@@ -1,7 +1,8 @@
 ---
 title: "Psalm 47 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "47"
-description: "The scope of this psalm is to stir us up to praise God, to stir up all people to do so; and, I. We are directed in what manner to do it, publicly, cheerfully, and intelligently, Ps..."
+description: >
+  The scope of this psalm is to stir us up to praise God, to stir up all people to do so; and, I. We are directed in what manner to do it, publicly, cheerfully, and intelligently, Ps...
 weight: 47
 ---
 

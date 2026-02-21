@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter, after the introduction (Zec 1:1), we have, I. An awakening call to a sinful people to repent of their sins and return to God, Zec 1:2-6. II. Great encouragement gi..."
+description: >
+  In this chapter, after the introduction (Zec 1:1), we have, I. An awakening call to a sinful people to repent of their sins and return to God, Zec 1:2-6. II. Great encouragement gi...
 weight: 1
 ---
 

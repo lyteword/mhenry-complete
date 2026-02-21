@@ -1,7 +1,8 @@
 ---
 title: "Exodus 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "This chapter begins the story of Moses, that man of renown, famed for his intimate acquaintance with Heaven and his eminent usefulness on earth, and the most remarkable type of Chr..."
+description: >
+  This chapter begins the story of Moses, that man of renown, famed for his intimate acquaintance with Heaven and his eminent usefulness on earth, and the most remarkable type of Chr...
 weight: 2
 ---
 

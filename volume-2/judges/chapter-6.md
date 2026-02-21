@@ -1,7 +1,8 @@
 ---
 title: "Judges 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "Nothing that occurred in the quiet and peaceable times of Israel is recorded; the forty years\' rest after the conquest of Jabin is passed over in silence; and here begins the story..."
+description: >
+  Nothing that occurred in the quiet and peaceable times of Israel is recorded; the forty years' rest after the conquest of Jabin is passed over in silence; and here begins the story...
 weight: 6
 ---
 

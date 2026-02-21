@@ -1,7 +1,8 @@
 ---
 title: "Exodus 31 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "31"
-description: "God is here drawing towards a conclusion of what he had to say to Moses upon the mount, where he had now been with him forty days and forty nights; and yet no more is recorded of w..."
+description: >
+  God is here drawing towards a conclusion of what he had to say to Moses upon the mount, where he had now been with him forty days and forty nights; and yet no more is recorded of w...
 weight: 31
 ---
 

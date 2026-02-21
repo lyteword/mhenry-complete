@@ -1,7 +1,8 @@
 ---
 title: "Psalm 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "David being in great distress and danger by the malice of his enemies, does, in this psalm, by prayer address himself to God, his tried refuge, and seeks shelter in him. I. He appe..."
+description: >
+  David being in great distress and danger by the malice of his enemies, does, in this psalm, by prayer address himself to God, his tried refuge, and seeks shelter in him. I. He appe...
 weight: 17
 ---
 

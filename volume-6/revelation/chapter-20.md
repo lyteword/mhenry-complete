@@ -1,7 +1,8 @@
 ---
 title: "Revelation 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
-description: "This chapter is thought by some to be the darkest part of all this prophecy: it is very probable that the things contained in it are not yet accomplished; and therefore it is the w..."
+description: >
+  This chapter is thought by some to be the darkest part of all this prophecy: it is very probable that the things contained in it are not yet accomplished; and therefore it is the w...
 weight: 20
 ---
 

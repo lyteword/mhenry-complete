@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "The last words of David, which we read in the chapter before, were admirably good, but in this chapter we read of some of his last works, which were none of the best; yet he repent..."
+description: >
+  The last words of David, which we read in the chapter before, were admirably good, but in this chapter we read of some of his last works, which were none of the best; yet he repent...
 weight: 24
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Joshua 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "It had been often said that the tribe of Levi should have \"no inheritance with their brethren,\" no particular part of the country assigned them, as the other tribes had, no, not th..."
+description: >
+  It had been often said that the tribe of Levi should have "no inheritance with their brethren," no particular part of the country assigned them, as the other tribes had, no, not th...
 weight: 21
 ---
 

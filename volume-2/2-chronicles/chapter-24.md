@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "We have here the history of the reign of Joash, the progress of which, and especially its termination, were not of a piece with its beginning, nor shone with so much lustre. How wo..."
+description: >
+  We have here the history of the reign of Joash, the progress of which, and especially its termination, were not of a piece with its beginning, nor shone with so much lustre. How wo...
 weight: 24
 ---
 

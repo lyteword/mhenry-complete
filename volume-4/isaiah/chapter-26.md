@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "This chapter is a song of holy joy and praise, in which the great things God had engaged, in the foregoing chapter, to do for his people against his enemies and their enemies are c..."
+description: >
+  This chapter is a song of holy joy and praise, in which the great things God had engaged, in the foregoing chapter, to do for his people against his enemies and their enemies are c...
 weight: 26
 ---
 

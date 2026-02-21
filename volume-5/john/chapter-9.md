@@ -1,7 +1,8 @@
 ---
 title: "John 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "After Christ\'s departure out of the temple, in the close of the foregoing chapter, and before this happened which is recorded in this chapter, he had been for some time abroad in t..."
+description: >
+  After Christ's departure out of the temple, in the close of the foregoing chapter, and before this happened which is recorded in this chapter, he had been for some time abroad in t...
 weight: 9
 ---
 

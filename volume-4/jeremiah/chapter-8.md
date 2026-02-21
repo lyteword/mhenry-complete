@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "The prophet proceeds, in this chapter, both to magnify and to justify the destruction that God was bringing upon this people, to show how grievous it would be and yet how righteous..."
+description: >
+  The prophet proceeds, in this chapter, both to magnify and to justify the destruction that God was bringing upon this people, to show how grievous it would be and yet how righteous...
 weight: 8
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "Jerusalem was walled round, but it was not as yet fully inhabited, and therefore was weak and despicable. Nehemiah\'s next care is to bring people into it; of that we have here an a..."
+description: >
+  Jerusalem was walled round, but it was not as yet fully inhabited, and therefore was weak and despicable. Nehemiah's next care is to bring people into it; of that we have here an a...
 weight: 11
 ---
 

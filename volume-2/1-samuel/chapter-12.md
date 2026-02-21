@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "We left the general assembly of the states together, in the close of the foregoing chapter; in this chapter we have Samuel\'s speech to them, when he resigned the government into th..."
+description: >
+  We left the general assembly of the states together, in the close of the foregoing chapter; in this chapter we have Samuel's speech to them, when he resigned the government into th...
 weight: 12
 ---
 

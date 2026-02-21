@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "The apostle knew very well that the Hebrews, to whom he wrote, were strangely fond of the Levitical dispensation, and therefore he fills his mouth with arguments to wean them from ..."
+description: >
+  The apostle knew very well that the Hebrews, to whom he wrote, were strangely fond of the Levitical dispensation, and therefore he fills his mouth with arguments to wean them from ...
 weight: 10
 ---
 

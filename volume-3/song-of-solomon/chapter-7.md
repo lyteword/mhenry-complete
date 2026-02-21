@@ -1,7 +1,8 @@
 ---
 title: "Song Of Solomon 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter, I. Christ, the royal bridegroom, goes on to describe the beauties of his spouse, the church, in many instances, and to express his love to her and the delight he h..."
+description: >
+  In this chapter, I. Christ, the royal bridegroom, goes on to describe the beauties of his spouse, the church, in many instances, and to express his love to her and the delight he h...
 weight: 7
 ---
 

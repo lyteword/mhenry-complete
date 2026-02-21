@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "In this chapter, I. More weight is added to the burden of Babylon, enough to sink it like a mill-stone; I. It is Israel\'s cause that is to be pleaded in this quarrel with Babylon, ..."
+description: >
+  In this chapter, I. More weight is added to the burden of Babylon, enough to sink it like a mill-stone; I. It is Israel's cause that is to be pleaded in this quarrel with Babylon, ...
 weight: 14
 ---
 

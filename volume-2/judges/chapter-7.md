@@ -1,7 +1,8 @@
 ---
 title: "Judges 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "This chapter presents us with Gideon in the field, commanding the army of Israel, and routing the army of the Midianites, for which great exploit we found in the former chapter how..."
+description: >
+  This chapter presents us with Gideon in the field, commanding the army of Israel, and routing the army of the Midianites, for which great exploit we found in the former chapter how...
 weight: 7
 ---
 

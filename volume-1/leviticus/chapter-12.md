@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "After the laws concerning clean and unclean food come the laws concerning clean and unclean persons; and the first is in this chapter concerning the ceremonial uncleanness of women..."
+description: >
+  After the laws concerning clean and unclean food come the laws concerning clean and unclean persons; and the first is in this chapter concerning the ceremonial uncleanness of women...
 weight: 12
 ---
 

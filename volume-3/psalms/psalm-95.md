@@ -1,7 +1,8 @@
 ---
 title: "Psalm 95 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "95"
-description: "For the expounding of this psalm we may borrow a great deal of light from the apostle\'s discourse, Heb 3:1-4:16, where it appears both to have been penned by David and to have been..."
+description: >
+  For the expounding of this psalm we may borrow a great deal of light from the apostle's discourse, Heb 3:1-4:16, where it appears both to have been penned by David and to have been...
 weight: 95
 ---
 

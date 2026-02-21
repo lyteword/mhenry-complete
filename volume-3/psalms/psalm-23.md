@@ -1,7 +1,8 @@
 ---
 title: "Psalm 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "Many of David\'s psalms are full of complaints, but this is full of comforts, and the expressions of delight in God\'s great goodness and dependence upon him. It is a psalm which has..."
+description: >
+  Many of David's psalms are full of complaints, but this is full of comforts, and the expressions of delight in God's great goodness and dependence upon him. It is a psalm which has...
 weight: 23
 ---
 

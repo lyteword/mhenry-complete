@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "The prophet had observed to us (Eze 8:4) that when he was in vision at Jerusalem he saw the same appearance of the glory of God there that he had seen by the river Chebar; now, in ..."
+description: >
+  The prophet had observed to us (Eze 8:4) that when he was in vision at Jerusalem he saw the same appearance of the glory of God there that he had seen by the river Chebar; now, in ...
 weight: 10
 ---
 

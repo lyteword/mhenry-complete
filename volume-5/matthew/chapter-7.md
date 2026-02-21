@@ -1,7 +1,8 @@
 ---
 title: "Matthew 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "This chapter continues and concludes Christ\'s sermon on the mount, which is purely practical, directing us to order our conversation aright, both toward God and man; for the design..."
+description: >
+  This chapter continues and concludes Christ's sermon on the mount, which is purely practical, directing us to order our conversation aright, both toward God and man; for the design...
 weight: 7
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Daniel 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "This chapter gives us a more particular account of the beginning of Daniel\'s life, his original and education, than we have of any other of the prophets. Isaiah, Jeremiah, and Ezek..."
+description: >
+  This chapter gives us a more particular account of the beginning of Daniel's life, his original and education, than we have of any other of the prophets. Isaiah, Jeremiah, and Ezek...
 weight: 1
 ---
 

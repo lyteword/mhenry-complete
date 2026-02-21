@@ -1,7 +1,8 @@
 ---
 title: "Psalm 144 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "144"
-description: "The four preceding psalms seem to have been penned by David before his accession to the crown, when he was persecuted by Saul; this seems to have been penned afterwards, when he wa..."
+description: >
+  The four preceding psalms seem to have been penned by David before his accession to the crown, when he was persecuted by Saul; this seems to have been penned afterwards, when he wa...
 weight: 144
 ---
 

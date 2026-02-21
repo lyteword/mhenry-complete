@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 58 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "58"
-description: "The prophet, in this chapter, has his commission and charge renewed to reprove the sinners in Zion, particularly the hypocrites, to show them their transgressions, Isa 58:1. It is ..."
+description: >
+  The prophet, in this chapter, has his commission and charge renewed to reprove the sinners in Zion, particularly the hypocrites, to show them their transgressions, Isa 58:1. It is ...
 weight: 58
 ---
 

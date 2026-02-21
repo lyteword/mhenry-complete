@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "The vision in the foregoing chapter gave assurances of the re-establishing of the civil interests of the Jewish nation, the promises of which terminated in Christ. Now the vision i..."
+description: >
+  The vision in the foregoing chapter gave assurances of the re-establishing of the civil interests of the Jewish nation, the promises of which terminated in Christ. Now the vision i...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Exodus 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "In this chapter we have, I. The commands God gave to Israel, 1. To sanctify all their firstborn to him, Ex 13:1,2. 2. To be sure to remember their deliverance out of Egypt (Ex 13:3..."
+description: >
+  In this chapter we have, I. The commands God gave to Israel, 1. To sanctify all their firstborn to him, Ex 13:1,2. 2. To be sure to remember their deliverance out of Egypt (Ex 13:3...
 weight: 13
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Chronicles 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "It was a much larger and more particular account of the building of the temple which we had in the book of Kings than is here in this book of Chronicles. In this chapter we have, I..."
+description: >
+  It was a much larger and more particular account of the building of the temple which we had in the book of Kings than is here in this book of Chronicles. In this chapter we have, I...
 weight: 3
 ---
 

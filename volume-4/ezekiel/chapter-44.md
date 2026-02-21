@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 44 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "44"
-description: "In this chapter we have, I. The appropriating of the east gate of the temple to the prince, Eze 44:1-3. II. A reproof sent to the house of Israel for their former profanations of G..."
+description: >
+  In this chapter we have, I. The appropriating of the east gate of the temple to the prince, Eze 44:1-3. II. A reproof sent to the house of Israel for their former profanations of G...
 weight: 44
 ---
 

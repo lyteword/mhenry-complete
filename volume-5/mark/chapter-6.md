@@ -1,7 +1,8 @@
 ---
 title: "Mark 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "A great variety of observable passages we have, in this chapter, concerning our Lord Jesus, the substance of all which we had before in Matthew, but divers circumstances we have, w..."
+description: >
+  A great variety of observable passages we have, in this chapter, concerning our Lord Jesus, the substance of all which we had before in Matthew, but divers circumstances we have, w...
 weight: 6
 ---
 

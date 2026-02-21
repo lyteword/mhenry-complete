@@ -1,7 +1,8 @@
 ---
 title: "Luke 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "In this chapter we have, I. The good improvement Christ made of a piece of news that was brought him concerning some Galileans, that were lately massacred by Pilate, as they were s..."
+description: >
+  In this chapter we have, I. The good improvement Christ made of a piece of news that was brought him concerning some Galileans, that were lately massacred by Pilate, as they were s...
 weight: 13
 ---
 

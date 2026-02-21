@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 31 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "31"
-description: "The prophecy of this chapter, as the two chapters before, is against Egypt, and designed for the humbling and mortifying of Pharaoh. In passing sentence upon great criminals it is ..."
+description: >
+  The prophecy of this chapter, as the two chapters before, is against Egypt, and designed for the humbling and mortifying of Pharaoh. In passing sentence upon great criminals it is ...
 weight: 31
 ---
 

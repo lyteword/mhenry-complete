@@ -1,7 +1,8 @@
 ---
 title: "Zephaniah 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "After the title of the book (Zep 1:1) here is, I. A threatening of the destruction of Judah and Jerusalem, an utter destruction, by the Chaldeans, Zep 1:2-4. II. A charge against t..."
+description: >
+  After the title of the book (Zep 1:1) here is, I. A threatening of the destruction of Judah and Jerusalem, an utter destruction, by the Chaldeans, Zep 1:2-4. II. A charge against t...
 weight: 1
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "In this chapter we have the institution of the annual solemnity of the day of atonement, or expiation, which had as much gospel in it as perhaps any of the appointments of the cere..."
+description: >
+  In this chapter we have the institution of the annual solemnity of the day of atonement, or expiation, which had as much gospel in it as perhaps any of the appointments of the cere...
 weight: 16
 ---
 

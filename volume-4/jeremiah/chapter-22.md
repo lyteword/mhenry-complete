@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "Upon occasion of the message sent in the foregoing chapter to the house of the king, we have here recorded some sermons which Jeremiah preached at court, in some preceding reigns, ..."
+description: >
+  Upon occasion of the message sent in the foregoing chapter to the house of the king, we have here recorded some sermons which Jeremiah preached at court, in some preceding reigns, ...
 weight: 22
 ---
 

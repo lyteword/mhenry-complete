@@ -1,7 +1,8 @@
 ---
 title: "Nehemiah 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "Here we first meet with Nehemiah at the Persian court, where we find him, I. Inquisitive concerning the state of the Jews and Jerusalem, Ne 1:1,2. II. Informed of their deplorable ..."
+description: >
+  Here we first meet with Nehemiah at the Persian court, where we find him, I. Inquisitive concerning the state of the Jews and Jerusalem, Ne 1:1,2. II. Informed of their deplorable ...
 weight: 1
 ---
 

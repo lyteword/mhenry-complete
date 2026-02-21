@@ -1,7 +1,8 @@
 ---
 title: "1 John 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter the apostle asserts, I. The dignity of believers, 1Jo 5:1. II. Their obligation to love, and the trial of it, 1Jo 5:1-3. III. Their victory, 1Jo 5:4,5. IV. The cred..."
+description: >
+  In this chapter the apostle asserts, I. The dignity of believers, 1Jo 5:1. II. Their obligation to love, and the trial of it, 1Jo 5:1-3. III. Their victory, 1Jo 5:4,5. IV. The cred...
 weight: 5
 ---
 

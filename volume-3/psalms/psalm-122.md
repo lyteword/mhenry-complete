@@ -1,7 +1,8 @@
 ---
 title: "Psalm 122 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "122"
-description: "This psalm seems to have been penned by David for the use of the people of Israel, when they came up to Jerusalem to worship at the three solemn feasts. It was in David\'s time that..."
+description: >
+  This psalm seems to have been penned by David for the use of the people of Israel, when they came up to Jerusalem to worship at the three solemn feasts. It was in David's time that...
 weight: 122
 ---
 

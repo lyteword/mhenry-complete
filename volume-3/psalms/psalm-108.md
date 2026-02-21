@@ -1,7 +1,8 @@
 ---
 title: "Psalm 108 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "108"
-description: "This psalm begins with praise and concludes with prayer, and faith is at work in both. I. David here gives thanks to God for mercies to himself, Ps 108:1-5. II. He prays to God for..."
+description: >
+  This psalm begins with praise and concludes with prayer, and faith is at work in both. I. David here gives thanks to God for mercies to himself, Ps 108:1-5. II. He prays to God for...
 weight: 108
 ---
 

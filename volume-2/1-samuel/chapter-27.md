@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
-description: "David was a man after God\'s own heart, and yet he had his faults, which are recorded, not for our imitation, but for our admonition; witness the story of this chapter, in which, th..."
+description: >
+  David was a man after God's own heart, and yet he had his faults, which are recorded, not for our imitation, but for our admonition; witness the story of this chapter, in which, th...
 weight: 27
 ---
 

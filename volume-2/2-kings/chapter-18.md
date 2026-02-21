@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
-description: "When the prophet had condemned Ephraim for lies and deceit he comforted himself with this, that Judah yet \"ruled with God, and was faithful with the Most Holy,\" Ho 11:12. It was a ..."
+description: >
+  When the prophet had condemned Ephraim for lies and deceit he comforted himself with this, that Judah yet "ruled with God, and was faithful with the Most Holy," Ho 11:12. It was a ...
 weight: 18
 ---
 

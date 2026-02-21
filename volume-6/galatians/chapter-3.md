@@ -1,7 +1,8 @@
 ---
 title: "Galatians 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "The apostle in this chapter, I. Reproves the Galatians for their folly, in suffering themselves to be drawn away from the faith of the gospel, and endeavours, from several consider..."
+description: >
+  The apostle in this chapter, I. Reproves the Galatians for their folly, in suffering themselves to be drawn away from the faith of the gospel, and endeavours, from several consider...
 weight: 3
 ---
 

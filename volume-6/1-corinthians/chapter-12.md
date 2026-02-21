@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "In this chapter the apostle, I. Considers the case of spiritual gifts, which were very plentifully poured out on the Corinthian church. He considers their original, that they are f..."
+description: >
+  In this chapter the apostle, I. Considers the case of spiritual gifts, which were very plentifully poured out on the Corinthian church. He considers their original, that they are f...
 weight: 12
 ---
 

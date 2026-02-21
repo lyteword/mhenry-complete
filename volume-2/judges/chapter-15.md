@@ -1,7 +1,8 @@
 ---
 title: "Judges 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "Samson, when he courted an alliance with the Philistines, did but seek an occasion against them, Jdg 14:4. Now here we have a further account of the occasions he took to weaken the..."
+description: >
+  Samson, when he courted an alliance with the Philistines, did but seek an occasion against them, Jdg 14:4. Now here we have a further account of the occasions he took to weaken the...
 weight: 15
 ---
 

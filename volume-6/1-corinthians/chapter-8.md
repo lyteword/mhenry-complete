@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "The apostle, in this chapter, answers another case proposed to him by some of the Corinthians, about eating those things that had been sacrificed to idols. I. He hints at the occas..."
+description: >
+  The apostle, in this chapter, answers another case proposed to him by some of the Corinthians, about eating those things that had been sacrificed to idols. I. He hints at the occas...
 weight: 8
 ---
 

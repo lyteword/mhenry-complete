@@ -1,7 +1,8 @@
 ---
 title: "John 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "It was, more than any thing else, the glory of the land of Israel, that it was Emmanuel\'s land (Isa 8:8), not only the place of his birth, but the scene of his preaching and miracl..."
+description: >
+  It was, more than any thing else, the glory of the land of Israel, that it was Emmanuel's land (Isa 8:8), not only the place of his birth, but the scene of his preaching and miracl...
 weight: 4
 ---
 

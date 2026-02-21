@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 44 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "44"
-description: "In this chapter we have, I. An awakening sermon which Jeremiah preaches to the Jews in Egypt, to reprove them for their idolatry, notwithstanding the warnings given them both by th..."
+description: >
+  In this chapter we have, I. An awakening sermon which Jeremiah preaches to the Jews in Egypt, to reprove them for their idolatry, notwithstanding the warnings given them both by th...
 weight: 44
 ---
 

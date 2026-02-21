@@ -1,7 +1,8 @@
 ---
 title: "Exodus 30 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "30"
-description: "Moses is, in this chapter, further instructed, I. Concerning the altar of incense, Ex 30:1-10. II. Concerning the ransom-money which the Israelites were to pay, when they were numb..."
+description: >
+  Moses is, in this chapter, further instructed, I. Concerning the altar of incense, Ex 30:1-10. II. Concerning the ransom-money which the Israelites were to pay, when they were numb...
 weight: 30
 ---
 

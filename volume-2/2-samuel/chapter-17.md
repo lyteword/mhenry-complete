@@ -1,7 +1,8 @@
 ---
 title: "2 Samuel 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "The contest between David and Absalom is now hasting towards a crisis. It must be determined by the sword, and preparation is made accordingly in this chapter. I. Absalom calls a c..."
+description: >
+  The contest between David and Absalom is now hasting towards a crisis. It must be determined by the sword, and preparation is made accordingly in this chapter. I. Absalom calls a c...
 weight: 17
 ---
 

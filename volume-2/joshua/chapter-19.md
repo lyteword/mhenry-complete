@@ -1,7 +1,8 @@
 ---
 title: "Joshua 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "In the description of the lots of Judah and Benjamin we have an account both of the borders that surrounded them and of the cities contained in them. In that of Ephraim and Manasse..."
+description: >
+  In the description of the lots of Judah and Benjamin we have an account both of the borders that surrounded them and of the cities contained in them. In that of Ephraim and Manasse...
 weight: 19
 ---
 

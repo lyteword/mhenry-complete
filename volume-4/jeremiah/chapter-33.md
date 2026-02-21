@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 33 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "33"
-description: "The scope of this chapter is much the same with that of the foregoing chapter—to confirm the promise of the restoration of the Jews, notwithstanding the present desolations of thei..."
+description: >
+  The scope of this chapter is much the same with that of the foregoing chapter—to confirm the promise of the restoration of the Jews, notwithstanding the present desolations of thei...
 weight: 33
 ---
 

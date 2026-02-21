@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "Great service Elisha had done, in the foregoing chapter, for the three kings: to his prayers and prophecies they owed their lives and triumphs. One would have expected that the nex..."
+description: >
+  Great service Elisha had done, in the foregoing chapter, for the three kings: to his prayers and prophecies they owed their lives and triumphs. One would have expected that the nex...
 weight: 4
 ---
 

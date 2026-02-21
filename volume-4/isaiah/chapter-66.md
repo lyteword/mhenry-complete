@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 66 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "66"
-description: "The scope of this chapter is much the same as that of the foregoing chapter and many expressions of it are the same; it therefore looks the same way, to the different state of the ..."
+description: >
+  The scope of this chapter is much the same as that of the foregoing chapter and many expressions of it are the same; it therefore looks the same way, to the different state of the ...
 weight: 66
 ---
 

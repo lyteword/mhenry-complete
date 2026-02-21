@@ -1,7 +1,8 @@
 ---
 title: "Psalm 138 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "138"
-description: "It does not appear, nor is it material to enquire, upon what occasion David penned this psalm; but in it, I. He looks back with thankfulness upon the experiences he had had of God\'..."
+description: >
+  It does not appear, nor is it material to enquire, upon what occasion David penned this psalm; but in it, I. He looks back with thankfulness upon the experiences he had had of God'...
 weight: 138
 ---
 

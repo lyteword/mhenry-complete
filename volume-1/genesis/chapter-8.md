@@ -1,7 +1,8 @@
 ---
 title: "Genesis 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "In the close of the foregoing chapter we left the world in ruins and the church in straits; but in this chapter we have the repair of the one and the enlargement of the other. Now ..."
+description: >
+  In the close of the foregoing chapter we left the world in ruins and the church in straits; but in this chapter we have the repair of the one and the enlargement of the other. Now ...
 weight: 8
 ---
 

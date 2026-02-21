@@ -1,7 +1,8 @@
 ---
 title: "Joshua 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "Though the land was not completely conquered, yet being (as was said in the close of the foregoing chapter) as rest from war for the present, and their armies all drawn out of the ..."
+description: >
+  Though the land was not completely conquered, yet being (as was said in the close of the foregoing chapter) as rest from war for the present, and their armies all drawn out of the ...
 weight: 15
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "In this chapter we have, I. A repetition of the laws concerning the lamps and the show-bread, Le 24:1-9. II. A violation of the law against blasphemy, with the imprisonment, trial,..."
+description: >
+  In this chapter we have, I. A repetition of the laws concerning the lamps and the show-bread, Le 24:1-9. II. A violation of the law against blasphemy, with the imprisonment, trial,...
 weight: 24
 ---
 

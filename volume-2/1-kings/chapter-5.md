@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "The great work which Solomon was raised up to do was the building of the temple; his wealth and wisdom were given him to qualify him for that. In this, especially, he was to be a t..."
+description: >
+  The great work which Solomon was raised up to do was the building of the temple; his wealth and wisdom were given him to qualify him for that. In this, especially, he was to be a t...
 weight: 5
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Luke 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter we have Christ\'s exposition of the moral law, which he came not to destroy, but to fulfil, and to fill up, by his gospel. I. Here is a proof of the lawfulness of wo..."
+description: >
+  In this chapter we have Christ's exposition of the moral law, which he came not to destroy, but to fulfil, and to fill up, by his gospel. I. Here is a proof of the lawfulness of wo...
 weight: 6
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Esther 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "Several things in this chapter itself are very instructive and of great use; but the design of recording the story of it is to show how way was made for Esther to the crown, in ord..."
+description: >
+  Several things in this chapter itself are very instructive and of great use; but the design of recording the story of it is to show how way was made for Esther to the crown, in ord...
 weight: 1
 ---
 

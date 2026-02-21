@@ -1,7 +1,8 @@
 ---
 title: "Romans 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "The great gospel doctrine of justification by faith without the works of the law was so very contrary to the notions the Jews had learnt from those that sat in Moses\' chair, that i..."
+description: >
+  The great gospel doctrine of justification by faith without the works of the law was so very contrary to the notions the Jews had learnt from those that sat in Moses' chair, that i...
 weight: 4
 ---
 

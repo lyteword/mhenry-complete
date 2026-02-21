@@ -1,7 +1,8 @@
 ---
 title: "Numbers 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "Israel, having escaped the curse of Balaam, here sustains a great deal of damage and reproach by the counsel of Balaam, who, it seems, before he left Balak, put him into a more eff..."
+description: >
+  Israel, having escaped the curse of Balaam, here sustains a great deal of damage and reproach by the counsel of Balaam, who, it seems, before he left Balak, put him into a more eff...
 weight: 25
 ---
 

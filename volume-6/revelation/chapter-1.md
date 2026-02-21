@@ -1,7 +1,8 @@
 ---
 title: "Revelation 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "This chapter is a general preface to the whole book, and contains, I. An inscription, declaring the original and the design of it, Re 1:1,2. II. The apostolic benediction pronounce..."
+description: >
+  This chapter is a general preface to the whole book, and contains, I. An inscription, declaring the original and the design of it, Re 1:1,2. II. The apostolic benediction pronounce...
 weight: 1
 ---
 

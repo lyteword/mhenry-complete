@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "Divers things were foretold, in the two foregoing chapters, which should come to pass \"in that day;\" this chapter speaks of a \"day of the Lord that cometh,\" a day of his judgment, ..."
+description: >
+  Divers things were foretold, in the two foregoing chapters, which should come to pass "in that day;" this chapter speaks of a "day of the Lord that cometh," a day of his judgment, ...
 weight: 14
 ---
 

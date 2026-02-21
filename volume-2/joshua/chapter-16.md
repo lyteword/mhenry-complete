@@ -1,7 +1,8 @@
 ---
 title: "Joshua 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "It is a pity that this and the following chapter should be separated, for both of them give us the lot of the children of Joseph, Ephraim and Manasseh, who, next to Judah, were to ..."
+description: >
+  It is a pity that this and the following chapter should be separated, for both of them give us the lot of the children of Joseph, Ephraim and Manasseh, who, next to Judah, were to ...
 weight: 16
 ---
 

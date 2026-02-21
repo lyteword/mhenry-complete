@@ -1,7 +1,8 @@
 ---
 title: "Psalm 119 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "119"
-description: "This is a psalm by itself, like none of the rest; it excels them all, and shines brightest in this constellation. It is much longer than any of them more than twice as long as any ..."
+description: >
+  This is a psalm by itself, like none of the rest; it excels them all, and shines brightest in this constellation. It is much longer than any of them more than twice as long as any ...
 weight: 119
 ---
 

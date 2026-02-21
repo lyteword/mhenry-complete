@@ -1,7 +1,8 @@
 ---
 title: "Psalm 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "As the foregoing psalm, in the type of David in preferment, showed us the royal dignity of the Redeemer, so this, by the example of David in distress, shows us the peace and holy s..."
+description: >
+  As the foregoing psalm, in the type of David in preferment, showed us the royal dignity of the Redeemer, so this, by the example of David in distress, shows us the peace and holy s...
 weight: 3
 ---
 

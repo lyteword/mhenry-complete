@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 41 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "41"
-description: "It is a very tragical story that is related in this chapter, and shows that evil pursues sinners. The black cloud that was gathering in the foregoing chapter here bursts in a dread..."
+description: >
+  It is a very tragical story that is related in this chapter, and shows that evil pursues sinners. The black cloud that was gathering in the foregoing chapter here bursts in a dread...
 weight: 41
 ---
 

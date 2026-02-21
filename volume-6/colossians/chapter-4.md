@@ -1,7 +1,8 @@
 ---
 title: "Colossians 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "I\\. He continues his account of the duty of masters, from the close of the former chapter, Col 4:1. II. He exhorts to the duty of prayer (Col 4:2-4), and to a prudent and decent co..."
+description: >
+  I\\. He continues his account of the duty of masters, from the close of the former chapter, Col 4:1. II. He exhorts to the duty of prayer (Col 4:2-4), and to a prudent and decent co...
 weight: 4
 ---
 

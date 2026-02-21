@@ -1,7 +1,8 @@
 ---
 title: "Exodus 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "Moses here receives instructions, I. Concerning the inner curtains of the tent or tabernacle, and the coupling of those curtains, Ex 26:1-6. II. Concerning the outer curtains which..."
+description: >
+  Moses here receives instructions, I. Concerning the inner curtains of the tent or tabernacle, and the coupling of those curtains, Ex 26:1-6. II. Concerning the outer curtains which...
 weight: 26
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 50 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "50"
-description: "In this chapter, I. Those to whom God sends are justly charged with bringing all the troubles they were in upon themselves, by their own wilfulness and obstinacy, it being made to ..."
+description: >
+  In this chapter, I. Those to whom God sends are justly charged with bringing all the troubles they were in upon themselves, by their own wilfulness and obstinacy, it being made to ...
 weight: 50
 ---
 

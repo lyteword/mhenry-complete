@@ -1,7 +1,8 @@
 ---
 title: "Genesis 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "The pedigree and family of Abram we had an account of in the foregoing chapter; here the Holy Ghost enters upon his story, and henceforward Abram and his seed are almost the only s..."
+description: >
+  The pedigree and family of Abram we had an account of in the foregoing chapter; here the Holy Ghost enters upon his story, and henceforward Abram and his seed are almost the only s...
 weight: 12
 ---
 

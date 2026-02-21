@@ -1,7 +1,8 @@
 ---
 title: "Genesis 41 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "41"
-description: "Two things Providence is here bringing about:—I. The advancement of Joseph. II. The maintenance of Jacob and his family in a time of famine; for the eyes of the Lord run to and fro..."
+description: >
+  Two things Providence is here bringing about:—I. The advancement of Joseph. II. The maintenance of Jacob and his family in a time of famine; for the eyes of the Lord run to and fro...
 weight: 41
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Matthew 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "We have in this chapter remarkable instances of the power and pity of the Lord Jesus, sufficient to convince us that he is both able to save to the uttermost all that come to God b..."
+description: >
+  We have in this chapter remarkable instances of the power and pity of the Lord Jesus, sufficient to convince us that he is both able to save to the uttermost all that come to God b...
 weight: 9
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
-description: "In this chapter we have a short but sad account of the reigns of two of the kings of Judah, Manasseh and Amon. I. Concerning Manasseh, all the account we have of him here is, 1. Th..."
+description: >
+  In this chapter we have a short but sad account of the reigns of two of the kings of Judah, Manasseh and Amon. I. Concerning Manasseh, all the account we have of him here is, 1. Th...
 weight: 21
 ---
 

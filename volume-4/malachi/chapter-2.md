@@ -1,7 +1,8 @@
 ---
 title: "Malachi 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "There are two great ordinances which divine wisdom has instituted, the wretched profanation of both of which is complained of and sharply reproved in this chapter. I. The ordinance..."
+description: >
+  There are two great ordinances which divine wisdom has instituted, the wretched profanation of both of which is complained of and sharply reproved in this chapter. I. The ordinance...
 weight: 2
 ---
 

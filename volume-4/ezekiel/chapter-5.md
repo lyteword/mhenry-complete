@@ -1,7 +1,8 @@
 ---
 title: "Ezekiel 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter we have a further, and no less terrible, denunciation of the judgments of God, which were coming with all speed and force upon the Jewish nation, which would utterl..."
+description: >
+  In this chapter we have a further, and no less terrible, denunciation of the judgments of God, which were coming with all speed and force upon the Jewish nation, which would utterl...
 weight: 5
 ---
 

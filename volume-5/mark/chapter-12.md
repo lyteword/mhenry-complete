@@ -1,7 +1,8 @@
 ---
 title: "Mark 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "In this chapter, we have, I. The parable of the vineyard let out to unthankful husbandmen, representing the sin and ruin of the Jewish church, Mk 12:1-12. II. Christ\'s silencing th..."
+description: >
+  In this chapter, we have, I. The parable of the vineyard let out to unthankful husbandmen, representing the sin and ruin of the Jewish church, Mk 12:1-12. II. Christ's silencing th...
 weight: 12
 ---
 

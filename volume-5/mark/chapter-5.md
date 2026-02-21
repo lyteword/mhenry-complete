@@ -1,7 +1,8 @@
 ---
 title: "Mark 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter, we have, I. Christ\'s casting the legion of devils out of the man possessed, and suffering them to enter into the swine, Mk 5:1-20. II. Christ\'s healing the woman w..."
+description: >
+  In this chapter, we have, I. Christ's casting the legion of devils out of the man possessed, and suffering them to enter into the swine, Mk 5:1-20. II. Christ's healing the woman w...
 weight: 5
 ---
 

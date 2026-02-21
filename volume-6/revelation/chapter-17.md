@@ -1,7 +1,8 @@
 ---
 title: "Revelation 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "This chapter contains another representation of those things that had been revealed before concerning the wickedness and ruin of antichrist. This antichrist had been before represe..."
+description: >
+  This chapter contains another representation of those things that had been revealed before concerning the wickedness and ruin of antichrist. This antichrist had been before represe...
 weight: 17
 ---
 

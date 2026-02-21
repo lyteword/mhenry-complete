@@ -1,7 +1,8 @@
 ---
 title: "Romans 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "The apostle, in this chapter, carries on his discourse concerning justification. He had already proved the guilt both of Gentiles and Jews. Now in this chapter, I. He answers some ..."
+description: >
+  The apostle, in this chapter, carries on his discourse concerning justification. He had already proved the guilt both of Gentiles and Jews. Now in this chapter, I. He answers some ...
 weight: 3
 ---
 

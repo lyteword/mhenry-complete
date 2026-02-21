@@ -1,7 +1,8 @@
 ---
 title: "Psalm 136 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "136"
-description: "The scope of this psalm is the same with that of the Ps 135:1-21, but there is something very singular in the composition of it; for the latter half of each verse is the same, repe..."
+description: >
+  The scope of this psalm is the same with that of the Ps 135:1-21, but there is something very singular in the composition of it; for the latter half of each verse is the same, repe...
 weight: 136
 ---
 

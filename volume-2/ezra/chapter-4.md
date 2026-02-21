@@ -1,7 +1,8 @@
 ---
 title: "Ezra 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "The good work of rebuilding the temple was no sooner begun than it met with opposition from those that bore ill will to it; the Samaritans were enemies to the Jews and their religi..."
+description: >
+  The good work of rebuilding the temple was no sooner begun than it met with opposition from those that bore ill will to it; the Samaritans were enemies to the Jews and their religi...
 weight: 4
 ---
 

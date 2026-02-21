@@ -1,7 +1,8 @@
 ---
 title: "1 Thessalonians 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter the apostle puts the Thessalonians in mind of the manner of his preaching among them, 1Th 2:1-6. Then of the manner of his conversation among them, 1Th 2:7-12. Afte..."
+description: >
+  In this chapter the apostle puts the Thessalonians in mind of the manner of his preaching among them, 1Th 2:1-6. Then of the manner of his conversation among them, 1Th 2:7-12. Afte...
 weight: 2
 ---
 

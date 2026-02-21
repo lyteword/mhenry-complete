@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "## Miscellaneous Maxims
+description: >
+  "## Miscellaneous Maxims
 "
 weight: 28
 ---

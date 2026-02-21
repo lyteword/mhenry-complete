@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "In this chapter the apostle pursues his former subject, the priesthood of Christ. And, I. He sums up what he had already said, Heb 8:1,2. II. He sets before them the necessary part..."
+description: >
+  In this chapter the apostle pursues his former subject, the priesthood of Christ. And, I. He sums up what he had already said, Heb 8:1,2. II. He sets before them the necessary part...
 weight: 8
 ---
 

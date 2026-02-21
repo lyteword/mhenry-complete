@@ -1,7 +1,8 @@
 ---
 title: "Genesis 35 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "35"
-description: "In this chapter we have three communions and three funerals. I. Three communions between God and Jacob. 1. God ordered Jacob to Beth-el; and, in obedience to that order, he purged ..."
+description: >
+  In this chapter we have three communions and three funerals. I. Three communions between God and Jacob. 1. God ordered Jacob to Beth-el; and, in obedience to that order, he purged ...
 weight: 35
 ---
 

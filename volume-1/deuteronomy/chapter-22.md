@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "The laws of this chapter provide, I. For the preservation of charity and good neighbourship, in the care of strayed or fallen cattle, De 22:1-4. II. For the preservation of order a..."
+description: >
+  The laws of this chapter provide, I. For the preservation of charity and good neighbourship, in the care of strayed or fallen cattle, De 22:1-4. II. For the preservation of order a...
 weight: 22
 ---
 

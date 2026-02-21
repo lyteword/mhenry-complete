@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "This chapter is a solemn conclusion of the main body of the levitical law. The precepts that follow in this and the following book either relate to some particular matters or are r..."
+description: >
+  This chapter is a solemn conclusion of the main body of the levitical law. The precepts that follow in this and the following book either relate to some particular matters or are r...
 weight: 26
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "Some ceremonial precepts there are in this chapter, but most of them are moral. One would wonder that when some of the lighter matters of the law are greatly enlarged upon (witness..."
+description: >
+  Some ceremonial precepts there are in this chapter, but most of them are moral. One would wonder that when some of the lighter matters of the law are greatly enlarged upon (witness...
 weight: 19
 ---
 

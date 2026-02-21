@@ -1,7 +1,8 @@
 ---
 title: "2 Kings 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "We have in this chapter, I. A further account of Jehu\'s execution of his commission. He cut off, 1. All Ahab\'s sons, 2Ki 10:1-10. 2. All Ahab\'s kindred, 2Ki 10:11-14,17. 3. Ahab\'s ..."
+description: >
+  We have in this chapter, I. A further account of Jehu's execution of his commission. He cut off, 1. All Ahab's sons, 2Ki 10:1-10. 2. All Ahab's kindred, 2Ki 10:11-14,17. 3. Ahab's ...
 weight: 10
 ---
 

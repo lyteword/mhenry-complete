@@ -1,7 +1,8 @@
 ---
 title: "Revelation 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this chapter we have an account of the sounding of the fifth and sixth trumpets, the appearances that attended them, and the events that were to follow; the fifth trumpet (Re 9:..."
+description: >
+  In this chapter we have an account of the sounding of the fifth and sixth trumpets, the appearances that attended them, and the events that were to follow; the fifth trumpet (Re 9:...
 weight: 9
 ---
 

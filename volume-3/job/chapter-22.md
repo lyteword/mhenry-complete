@@ -1,7 +1,8 @@
 ---
 title: "Job 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
-description: "Eliphaz here leads on a third attack upon poor Job, in which Bildad followed him, but Zophar drew back, and quitted the field. It was one of the unhappinesses of Job, as it is of m..."
+description: >
+  Eliphaz here leads on a third attack upon poor Job, in which Bildad followed him, but Zophar drew back, and quitted the field. It was one of the unhappinesses of Job, as it is of m...
 weight: 22
 ---
 

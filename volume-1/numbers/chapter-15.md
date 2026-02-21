@@ -1,7 +1,8 @@
 ---
 title: "Numbers 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "This chapter, which is mostly concerning sacrifice and offering, comes in between the story of two rebellions (one Nu 14:1-45 the other Nu 16:1-50), to signify that these legal ins..."
+description: >
+  This chapter, which is mostly concerning sacrifice and offering, comes in between the story of two rebellions (one Nu 14:1-45 the other Nu 16:1-50), to signify that these legal ins...
 weight: 15
 ---
 

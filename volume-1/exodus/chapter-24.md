@@ -1,7 +1,8 @@
 ---
 title: "Exodus 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "Moses, as mediator between God and Israel, having received divers laws and ordinances from God privately in the three foregoing chapters, in this chapter, I. Comes down to the peop..."
+description: >
+  Moses, as mediator between God and Israel, having received divers laws and ordinances from God privately in the three foregoing chapters, in this chapter, I. Comes down to the peop...
 weight: 24
 ---
 

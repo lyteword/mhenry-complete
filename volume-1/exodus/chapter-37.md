@@ -1,7 +1,8 @@
 ---
 title: "Exodus 37 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "37"
-description: "Bezaleel and his workmen are still busy, making I. The ark with the mercy-seat and the cherubim, Ex 37:1-9. II. The table with its vessels, Ex 37:10-16. III. The candlestick with i..."
+description: >
+  Bezaleel and his workmen are still busy, making I. The ark with the mercy-seat and the cherubim, Ex 37:1-9. II. The table with its vessels, Ex 37:10-16. III. The candlestick with i...
 weight: 37
 ---
 

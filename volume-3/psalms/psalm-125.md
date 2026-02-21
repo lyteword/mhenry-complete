@@ -1,7 +1,8 @@
 ---
 title: "Psalm 125 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "125"
-description: "This short psalm may be summed up in those words of the prophet (Isa 3:10,11), \"Say you to the righteous, It shall be well with him. Woe to the wicked, it shall be ill with him.\" T..."
+description: >
+  This short psalm may be summed up in those words of the prophet (Isa 3:10,11), "Say you to the righteous, It shall be well with him. Woe to the wicked, it shall be ill with him." T...
 weight: 125
 ---
 

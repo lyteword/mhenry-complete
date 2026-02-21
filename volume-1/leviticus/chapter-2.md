@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter we have the law concerning the meat-offering. I. The matter of it; whether of raw flour with oil and incense (Le 2:1), or baked in the oven (Le 2:4), or upon a plat..."
+description: >
+  In this chapter we have the law concerning the meat-offering. I. The matter of it; whether of raw flour with oil and incense (Le 2:1), or baked in the oven (Le 2:4), or upon a plat...
 weight: 2
 ---
 

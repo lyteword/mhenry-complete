@@ -1,7 +1,8 @@
 ---
 title: "Exodus 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "Moses and Aaron are here dealing with Pharaoh, to get leave of him to go and worship in the wilderness. I. They demand leave in the name of God (Ex 5:1), and he answers their deman..."
+description: >
+  Moses and Aaron are here dealing with Pharaoh, to get leave of him to go and worship in the wilderness. I. They demand leave in the name of God (Ex 5:1), and he answers their deman...
 weight: 5
 ---
 

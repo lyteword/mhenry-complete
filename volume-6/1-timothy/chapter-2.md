@@ -1,7 +1,8 @@
 ---
 title: "1 Timothy 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter Paul treats, I. Of prayer, with many reasons for it, 1Ti 2:1-8. II. Of women\'s apparel, 1Ti 2:9,10. III. Of their subjection, with the reasons of it, 1Ti 2:11-14. I..."
+description: >
+  In this chapter Paul treats, I. Of prayer, with many reasons for it, 1Ti 2:1-8. II. Of women's apparel, 1Ti 2:9,10. III. Of their subjection, with the reasons of it, 1Ti 2:11-14. I...
 weight: 2
 ---
 

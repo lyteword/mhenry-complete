@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "This chapter is an occasional sermon, in which the prophet sings both of mercy and judgment to those that did not perceive or understand either; he piped unto them, but they danced..."
+description: >
+  This chapter is an occasional sermon, in which the prophet sings both of mercy and judgment to those that did not perceive or understand either; he piped unto them, but they danced...
 weight: 7
 ---
 

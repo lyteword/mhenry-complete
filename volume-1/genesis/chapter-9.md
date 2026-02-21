@@ -1,7 +1,8 @@
 ---
 title: "Genesis 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "Both the world and the church were now again reduced to a family, the family of Noah, of the affairs of which this chapter gives us an account, of which we are the more concerned t..."
+description: >
+  Both the world and the church were now again reduced to a family, the family of Noah, of the affairs of which this chapter gives us an account, of which we are the more concerned t...
 weight: 9
 ---
 

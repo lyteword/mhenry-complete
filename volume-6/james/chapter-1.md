@@ -1,7 +1,8 @@
 ---
 title: "James 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "After the inscription and salutation (Jam 1:1) Christians are taught how to conduct themselves when under the cross. Several graces and duties are recommended; and those who endure..."
+description: >
+  After the inscription and salutation (Jam 1:1) Christians are taught how to conduct themselves when under the cross. Several graces and duties are recommended; and those who endure...
 weight: 1
 ---
 

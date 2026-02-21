@@ -1,7 +1,8 @@
 ---
 title: "Deuteronomy 32 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "32"
-description: "In this chapter we have, I. The song which Moses, by the appointment of God, delivered to the children of Israel, for a standing admonition to them, to take heed of forsaking God. ..."
+description: >
+  In this chapter we have, I. The song which Moses, by the appointment of God, delivered to the children of Israel, for a standing admonition to them, to take heed of forsaking God. ...
 weight: 32
 ---
 

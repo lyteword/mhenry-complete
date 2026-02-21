@@ -1,7 +1,8 @@
 ---
 title: "Proverbs 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "## Cautions against Luxury and Covetousness
+description: >
+  "## Cautions against Luxury and Covetousness
 "
 weight: 23
 ---

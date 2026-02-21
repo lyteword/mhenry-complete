@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "As, in the story of David, one chapter of wars and victories follows another, so, in the story of Solomon, one chapter concerning his buildings follows another. In this chapter we ..."
+description: >
+  As, in the story of David, one chapter of wars and victories follows another, so, in the story of Solomon, one chapter concerning his buildings follows another. In this chapter we ...
 weight: 7
 ---
 

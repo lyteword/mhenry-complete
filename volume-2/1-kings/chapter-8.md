@@ -1,7 +1,8 @@
 ---
 title: "1 Kings 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "The building and furniture of the temple were very glorious, but the dedication of it exceeds in glory as much as prayer and praise, the work of saints, exceed the casting of metal..."
+description: >
+  The building and furniture of the temple were very glorious, but the dedication of it exceeds in glory as much as prayer and praise, the work of saints, exceed the casting of metal...
 weight: 8
 ---
 

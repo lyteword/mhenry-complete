@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "This chapter, and the four next that follow it (to chap. xiii.) are all one continued discourse or sermon, the scope of which is to show the great destruction that should now short..."
+description: >
+  This chapter, and the four next that follow it (to chap. xiii.) are all one continued discourse or sermon, the scope of which is to show the great destruction that should now short...
 weight: 8
 ---
 

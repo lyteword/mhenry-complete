@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
-description: "The Le 26:46 seemed to close up the statute-book; yet this chapter is added as an appendix. Having given laws concerning instituted services, here he directs concerning vows and vo..."
+description: >
+  The Le 26:46 seemed to close up the statute-book; yet this chapter is added as an appendix. Having given laws concerning instituted services, here he directs concerning vows and vo...
 weight: 27
 ---
 

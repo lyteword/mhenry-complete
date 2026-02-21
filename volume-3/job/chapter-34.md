@@ -1,7 +1,8 @@
 ---
 title: "Job 34 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "34"
-description: "Elihu, it is likely, paused awhile, to see if Job had any thing to say against his discourse in the foregoing chapter; but he sitting silent, and it is likely intimating his desire..."
+description: >
+  Elihu, it is likely, paused awhile, to see if Job had any thing to say against his discourse in the foregoing chapter; but he sitting silent, and it is likely intimating his desire...
 weight: 34
 ---
 

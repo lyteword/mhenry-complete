@@ -1,7 +1,8 @@
 ---
 title: "Daniel 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "The penman of this chapter is Nebuchadnezzar himself: the story here recorded concerning him is given us in his own words, as he himself drew it up and published it; but Daniel, a ..."
+description: >
+  The penman of this chapter is Nebuchadnezzar himself: the story here recorded concerning him is given us in his own words, as he himself drew it up and published it; but Daniel, a ...
 weight: 4
 ---
 

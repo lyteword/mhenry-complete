@@ -1,7 +1,8 @@
 ---
 title: "Luke 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "Evil manners, we say, beget good laws; so, in this chapter, the murmuring of the scribes and Pharisees at the grace of Christ, and the favour he showed to publicans and sinners, ga..."
+description: >
+  Evil manners, we say, beget good laws; so, in this chapter, the murmuring of the scribes and Pharisees at the grace of Christ, and the favour he showed to publicans and sinners, ga...
 weight: 15
 ---
 

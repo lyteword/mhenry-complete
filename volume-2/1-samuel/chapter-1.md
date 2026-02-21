@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "The history of Samuel here begins as early as that of Samson did, even before he was born, as afterwards the history of John the Baptist and our blessed Saviour. Some of the script..."
+description: >
+  The history of Samuel here begins as early as that of Samson did, even before he was born, as afterwards the history of John the Baptist and our blessed Saviour. Some of the script...
 weight: 1
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Exodus 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "The departure of the children of Israel out of Egypt (which was indeed the birth of the Jewish church) is made yet more memorable by further works of wonder, which were wrought imm..."
+description: >
+  The departure of the children of Israel out of Egypt (which was indeed the birth of the Jewish church) is made yet more memorable by further works of wonder, which were wrought imm...
 weight: 14
 ---
 

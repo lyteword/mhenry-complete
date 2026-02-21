@@ -1,7 +1,8 @@
 ---
 title: "Joshua 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "This chapter, and that which follows it, give us the history of Israel\'s passing through Jordan into Canaan, and a very memorable history it is. Long afterwards, they are told to r..."
+description: >
+  This chapter, and that which follows it, give us the history of Israel's passing through Jordan into Canaan, and a very memorable history it is. Long afterwards, they are told to r...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Samuel 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter we have, I. The eclipsing of the glory of the ark, by its privacy in Kirjath-jearim for many years, 1Sa 7:1,2. II. The appearing of the glory of Samuel in his publi..."
+description: >
+  In this chapter we have, I. The eclipsing of the glory of the ark, by its privacy in Kirjath-jearim for many years, 1Sa 7:1,2. II. The appearing of the glory of Samuel in his publi...
 weight: 7
 ---
 

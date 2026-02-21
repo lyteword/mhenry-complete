@@ -1,7 +1,8 @@
 ---
 title: "Genesis 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "Marriages and funerals are the changes of families, and the common news among the inhabitants of the villages. In the foregoing chapter we had Abraham burying his wife, here we hav..."
+description: >
+  Marriages and funerals are the changes of families, and the common news among the inhabitants of the villages. In the foregoing chapter we had Abraham burying his wife, here we hav...
 weight: 24
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 71 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "71"
-description: "David penned this psalm in his old age, as appears by several passages in it, which makes many think that it was penned at the time of Absalom\'s rebellion; for that was the great t..."
+description: >
+  David penned this psalm in his old age, as appears by several passages in it, which makes many think that it was penned at the time of Absalom's rebellion; for that was the great t...
 weight: 71
 ---
 

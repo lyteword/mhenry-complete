@@ -1,7 +1,8 @@
 ---
 title: "Psalm 142 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "142"
-description: "This psalm is a prayer, the substance of which David offered up to God when he was forced by Saul to take shelter in a cave, and which he afterwards penned in this form. Here is, I..."
+description: >
+  This psalm is a prayer, the substance of which David offered up to God when he was forced by Saul to take shelter in a cave, and which he afterwards penned in this form. Here is, I...
 weight: 142
 ---
 

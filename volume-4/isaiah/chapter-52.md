@@ -1,7 +1,8 @@
 ---
 title: "Isaiah 52 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "52"
-description: "The greater part of this chapter is on the same subject with the chapter before, concerning the deliverance of the Jews out of Babylon, which yet is applicable to the great salvati..."
+description: >
+  The greater part of this chapter is on the same subject with the chapter before, concerning the deliverance of the Jews out of Babylon, which yet is applicable to the great salvati...
 weight: 52
 ---
 

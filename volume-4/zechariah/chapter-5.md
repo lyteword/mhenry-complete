@@ -1,7 +1,8 @@
 ---
 title: "Zechariah 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "Hitherto we have seen visions of peace only, and all the words we have heard have been good words and comfortable words. But the pillar of cloud and fire has a black and dark side ..."
+description: >
+  Hitherto we have seen visions of peace only, and all the words we have heard have been good words and comfortable words. But the pillar of cloud and fire has a black and dark side ...
 weight: 5
 ---
 

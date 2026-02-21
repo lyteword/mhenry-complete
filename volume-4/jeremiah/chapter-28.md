@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "In the foregoing chapter Jeremiah had charged those prophets with lies who foretold the speedy breaking of the yoke of the king of Babylon and the speedy return of the vessels of t..."
+description: >
+  In the foregoing chapter Jeremiah had charged those prophets with lies who foretold the speedy breaking of the yoke of the king of Babylon and the speedy return of the vessels of t...
 weight: 28
 ---
 

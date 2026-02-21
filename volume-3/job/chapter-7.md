@@ -1,7 +1,8 @@
 ---
 title: "Job 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "Job, in this chapter, goes on to express the bitter sense he had of his calamities and to justify himself in his desire of death. I. He complains to himself and his friends of his ..."
+description: >
+  Job, in this chapter, goes on to express the bitter sense he had of his calamities and to justify himself in his desire of death. I. He complains to himself and his friends of his ...
 weight: 7
 ---
 

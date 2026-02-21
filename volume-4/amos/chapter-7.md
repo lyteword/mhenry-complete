@@ -1,7 +1,8 @@
 ---
 title: "Amos 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "In this chapter we have, I. God contending with Israel, by the judgments, but are reprieved, and the judgments turned away at the prayer of Amos, Am 7:1-6. 2. God\'s patience is at ..."
+description: >
+  In this chapter we have, I. God contending with Israel, by the judgments, but are reprieved, and the judgments turned away at the prayer of Amos, Am 7:1-6. 2. God's patience is at ...
 weight: 7
 ---
 

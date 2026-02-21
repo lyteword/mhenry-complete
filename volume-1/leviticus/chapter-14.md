@@ -1,7 +1,8 @@
 ---
 title: "Leviticus 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "The former chapter directed the priests how to convict a leper of ceremonial uncleanness. No prescriptions are given for his cure; but, when God had cured him, the priests are in t..."
+description: >
+  The former chapter directed the priests how to convict a leper of ceremonial uncleanness. No prescriptions are given for his cure; but, when God had cured him, the priests are in t...
 weight: 14
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Hosea 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this chapter, I. God threatens to deprive this degenerate seed of Israel of all their worldly enjoyments, because by sin they had forfeited their title to them; so that they sho..."
+description: >
+  In this chapter, I. God threatens to deprive this degenerate seed of Israel of all their worldly enjoyments, because by sin they had forfeited their title to them; so that they sho...
 weight: 9
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Luke 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "Our Lord Jesus went gloriously down to death, in spite of the malice of his enemies, who did all they could to make his death ignominious; but he rose again more gloriously, of whi..."
+description: >
+  Our Lord Jesus went gloriously down to death, in spite of the malice of his enemies, who did all they could to make his death ignominious; but he rose again more gloriously, of whi...
 weight: 24
 ---
 

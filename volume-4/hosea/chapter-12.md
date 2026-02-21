@@ -1,7 +1,8 @@
 ---
 title: "Hosea 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "In this chapter we have, I. A high charge drawn up against both Israel and Judah for their sins, which were the ground of God\'s controversy with them, Ho 12:1,2. Particularly the s..."
+description: >
+  In this chapter we have, I. A high charge drawn up against both Israel and Judah for their sins, which were the ground of God's controversy with them, Ho 12:1,2. Particularly the s...
 weight: 12
 ---
 

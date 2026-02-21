@@ -1,7 +1,8 @@
 ---
 title: "Jeremiah 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "As in the history of the Acts of the Apostles that of their preaching and that of their suffering are interwoven, so it is in the account we have of the prophet Jeremiah; witness t..."
+description: >
+  As in the history of the Acts of the Apostles that of their preaching and that of their suffering are interwoven, so it is in the account we have of the prophet Jeremiah; witness t...
 weight: 26
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Psalm 145 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "145"
-description: "The five foregoing psalms were all of a piece, all full of prayers; this, and the five that follow it to the end of the book, are all of a piece too, all full of praises; and thoug..."
+description: >
+  The five foregoing psalms were all of a piece, all full of prayers; this, and the five that follow it to the end of the book, are all of a piece too, all full of praises; and thoug...
 weight: 145
 ---
 

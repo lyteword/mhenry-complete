@@ -1,7 +1,8 @@
 ---
 title: "Hosea 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "The strain of this chapter differs from that of the foregoing chapters. Those were generally made up of reproofs for sin and threatenings of wrath; but this is made up of exhortati..."
+description: >
+  The strain of this chapter differs from that of the foregoing chapters. Those were generally made up of reproofs for sin and threatenings of wrath; but this is made up of exhortati...
 weight: 14
 ---
 

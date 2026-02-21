@@ -1,7 +1,8 @@
 ---
 title: "Joshua 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "The half tribe of Manasseh comes next to be provided for; and here we have, I. The families of that tribe that were to be portioned, Jos 17:1-6. II. The country that fell to their ..."
+description: >
+  The half tribe of Manasseh comes next to be provided for; and here we have, I. The families of that tribe that were to be portioned, Jos 17:1-6. II. The country that fell to their ...
 weight: 17
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Genesis 39 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "39"
-description: "At this chapter we return to the story of Joseph. We have him here, I. A servant, a slave in Potiphar\'s house (Ge 39:1), and yet there greatly honoured and favoured, 1. By the prov..."
+description: >
+  At this chapter we return to the story of Joseph. We have him here, I. A servant, a slave in Potiphar's house (Ge 39:1), and yet there greatly honoured and favoured, 1. By the prov...
 weight: 39
 ---
 

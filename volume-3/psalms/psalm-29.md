@@ -1,7 +1,8 @@
 ---
 title: "Psalm 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
-description: "It is the probable conjecture of some very good interpreters that David penned this psalm upon occasion, and just at the time, of a great storm of thunder, lightning, and rain, as ..."
+description: >
+  It is the probable conjecture of some very good interpreters that David penned this psalm upon occasion, and just at the time, of a great storm of thunder, lightning, and rain, as ...
 weight: 29
 ---
 
