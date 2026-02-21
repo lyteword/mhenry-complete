@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter the apostle continues his discourse upon the priesthood of Christ, a sweet subject, which he would not too soon dismiss. And here, I. He explains the nature of the ..."
+description: >
+  In this chapter the apostle continues his discourse upon the priesthood of Christ, a sweet subject, which he would not too soon dismiss. And here, I. He explains the nature of the ...
 weight: 5
 ---
 

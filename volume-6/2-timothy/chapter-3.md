@@ -1,7 +1,8 @@
 ---
 title: "2 Timothy 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "I\\. The apostle forewarns Timothy what the last days would be, with the reasons thereof, 2Ti 3:1-9. II. Prescribes various remedies against them (2Ti 3:10-17), particularly his own..."
+description: >
+  I\\. The apostle forewarns Timothy what the last days would be, with the reasons thereof, 2Ti 3:1-9. II. Prescribes various remedies against them (2Ti 3:10-17), particularly his own...
 weight: 3
 ---
 

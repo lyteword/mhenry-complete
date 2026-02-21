@@ -1,7 +1,8 @@
 ---
 title: "1 Thessalonians 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter the apostle gives earnest exhortations to abound in holiness, with a caution against uncleanness, enforced with several arguments, 1Th 4:1-8. He then mentions the g..."
+description: >
+  In this chapter the apostle gives earnest exhortations to abound in holiness, with a caution against uncleanness, enforced with several arguments, 1Th 4:1-8. He then mentions the g...
 weight: 4
 ---
 

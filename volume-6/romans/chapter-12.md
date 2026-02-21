@@ -1,7 +1,8 @@
 ---
 title: "Romans 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "The apostle, having at large cleared and confirmed the prime fundamental doctrines of Christianity, comes in the next place to press the principal duties. We mistake our religion i..."
+description: >
+  The apostle, having at large cleared and confirmed the prime fundamental doctrines of Christianity, comes in the next place to press the principal duties. We mistake our religion i...
 weight: 12
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ephesians 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "This chapter contains an account, I. Of the miserable condition of these Ephesians by nature (Eph 2:1-3) and again, Eph 2:11,12. II. Of the glorious change that was wrought in them..."
+description: >
+  This chapter contains an account, I. Of the miserable condition of these Ephesians by nature (Eph 2:1-3) and again, Eph 2:11,12. II. Of the glorious change that was wrought in them...
 weight: 2
 ---
 

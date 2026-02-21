@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "In this chapter the apostle goes on with his discourse, in opposition to the false apostles, who were very industrious to lessen his interest and reputation among the Corinthians, ..."
+description: >
+  In this chapter the apostle goes on with his discourse, in opposition to the false apostles, who were very industrious to lessen his interest and reputation among the Corinthians, ...
 weight: 11
 ---
 

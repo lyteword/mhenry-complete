@@ -1,7 +1,8 @@
 ---
 title: "Acts 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "We left Paul in his circuit visiting the churches (Ac 18:23), but we have not forgotten, nor has he, the promise he made to his friends at Ephesus, to return to them, and make some..."
+description: >
+  We left Paul in his circuit visiting the churches (Ac 18:23), but we have not forgotten, nor has he, the promise he made to his friends at Ephesus, to return to them, and make some...
 weight: 19
 ---
 

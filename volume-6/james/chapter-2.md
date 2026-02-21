@@ -1,7 +1,8 @@
 ---
 title: "James 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter the apostle condemns a sinful regarding of the rich, and despising the poor, which he imputes to partiality and injustice, and shows it to be an acting contrary to ..."
+description: >
+  In this chapter the apostle condemns a sinful regarding of the rich, and despising the poor, which he imputes to partiality and injustice, and shows it to be an acting contrary to ...
 weight: 2
 ---
 

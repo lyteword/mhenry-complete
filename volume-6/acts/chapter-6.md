@@ -1,7 +1,8 @@
 ---
 title: "Acts 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter we have, I. The discontent that was among the disciples about the distribution of the public charity, Ac 6:1. II. The election and ordination of seven men, who shou..."
+description: >
+  In this chapter we have, I. The discontent that was among the disciples about the distribution of the public charity, Ac 6:1. II. The election and ordination of seven men, who shou...
 weight: 6
 ---
 

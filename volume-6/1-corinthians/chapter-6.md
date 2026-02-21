@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter the apostle, I. Reproves them for going to law with one another about small matters, and bringing the cause before heathen judges, 1Co 6:1-8. II. He takes occasion ..."
+description: >
+  In this chapter the apostle, I. Reproves them for going to law with one another about small matters, and bringing the cause before heathen judges, 1Co 6:1-8. II. He takes occasion ...
 weight: 6
 ---
 

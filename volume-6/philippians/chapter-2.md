@@ -1,7 +1,8 @@
 ---
 title: "Philippians 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "The apostle proceeds to further exhortations to several duties, to be like-minded, and lowly-minded, which he presses from the example of Christ (Php 2:1-11), to be diligent and se..."
+description: >
+  The apostle proceeds to further exhortations to several duties, to be like-minded, and lowly-minded, which he presses from the example of Christ (Php 2:1-11), to be diligent and se...
 weight: 2
 ---
 

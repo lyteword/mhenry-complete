@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have a twofold comparison stated: I. Between the evangelical and legal dispensation; and the excellency of the gospel above that of the law is asserted and prove..."
+description: >
+  In this chapter we have a twofold comparison stated: I. Between the evangelical and legal dispensation; and the excellency of the gospel above that of the law is asserted and prove...
 weight: 1
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Ephesians 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter, I. The apostle proceeds in the exhortation to relative duties which he began in the former, particularly he insists on the duties of children and parents, and of s..."
+description: >
+  In this chapter, I. The apostle proceeds in the exhortation to relative duties which he began in the former, particularly he insists on the duties of children and parents, and of s...
 weight: 6
 ---
 

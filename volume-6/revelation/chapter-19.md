@@ -1,7 +1,8 @@
 ---
 title: "Revelation 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
-description: "In this chapter we have, I. A further account of the triumphant song of angels and saints for the fall of Babylon, Re 19:1-4. II. The marriage between Christ and the church proclai..."
+description: >
+  In this chapter we have, I. A further account of the triumphant song of angels and saints for the fall of Babylon, Re 19:1-4. II. The marriage between Christ and the church proclai...
 weight: 19
 ---
 

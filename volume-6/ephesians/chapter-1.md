@@ -1,7 +1,8 @@
 ---
 title: "Ephesians 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have, I. The introduction to the whole epistle, which is much the same as in others, Eph 1:1,2. II. The apostle\'s thanksgivings and praises to God for his inesti..."
+description: >
+  In this chapter we have, I. The introduction to the whole epistle, which is much the same as in others, Eph 1:1,2. II. The apostle's thanksgivings and praises to God for his inesti...
 weight: 1
 ---
 

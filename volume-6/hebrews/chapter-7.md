@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "The doctrine of the priestly office of Christ is so excellent in itself, and so essential a part of the Christian faith, that the apostle loves to dwell upon it. Nothing made the J..."
+description: >
+  The doctrine of the priestly office of Christ is so excellent in itself, and so essential a part of the Christian faith, that the apostle loves to dwell upon it. Nothing made the J...
 weight: 7
 ---
 

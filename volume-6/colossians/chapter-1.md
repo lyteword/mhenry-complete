@@ -1,7 +1,8 @@
 ---
 title: "Colossians 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "We have here, I. The inscription, as usual, Col 1:1,2. II. His thanksgiving to God for what he had heard concerning them—their faith, love, and hope, Col 1:3-8. III. His prayer for..."
+description: >
+  We have here, I. The inscription, as usual, Col 1:1,2. II. His thanksgiving to God for what he had heard concerning them—their faith, love, and hope, Col 1:3-8. III. His prayer for...
 weight: 1
 ---
 

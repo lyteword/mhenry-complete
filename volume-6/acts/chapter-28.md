@@ -1,7 +1,8 @@
 ---
 title: "Acts 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
-description: "We are the more concerned to take notice of and to improve what is here recorded concerning blessed Paul because, after the story of this chapter, we hear no more of him in the sac..."
+description: >
+  We are the more concerned to take notice of and to improve what is here recorded concerning blessed Paul because, after the story of this chapter, we hear no more of him in the sac...
 weight: 28
 ---
 

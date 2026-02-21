@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "The apostle, having treated largely of Christ, and faith, and free grace, and gospel privileges, and warned the Hebrews against apostasy, now, in the close of all, recommends sever..."
+description: >
+  The apostle, having treated largely of Christ, and faith, and free grace, and gospel privileges, and warned the Hebrews against apostasy, now, in the close of all, recommends sever...
 weight: 13
 ---
 

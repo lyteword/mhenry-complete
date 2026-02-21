@@ -1,7 +1,8 @@
 ---
 title: "2 Peter 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have, I. An introduction, or preface, making way for, and leading to, what is principally designed by the apostle, 2Pe 1:1-4. II. An exhortation to advance and i..."
+description: >
+  In this chapter we have, I. An introduction, or preface, making way for, and leading to, what is principally designed by the apostle, 2Pe 1:1-4. II. An exhortation to advance and i...
 weight: 1
 ---
 

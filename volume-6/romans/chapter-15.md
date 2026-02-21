@@ -1,7 +1,8 @@
 ---
 title: "Romans 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "The apostle, in this chapter, continues the discourse of the former, concerning mutual forbearance in indifferent things; and so draws towards a conclusion of the epistle. Where su..."
+description: >
+  The apostle, in this chapter, continues the discourse of the former, concerning mutual forbearance in indifferent things; and so draws towards a conclusion of the epistle. Where su...
 weight: 15
 ---
 

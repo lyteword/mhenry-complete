@@ -1,7 +1,8 @@
 ---
 title: "Ephesians 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "This chapter consists of two parts. I. Of the account which Paul gives the Ephesians concerning himself, as he was appointed by God to be the apostle of the Gentiles, Eph 3:1-13. I..."
+description: >
+  This chapter consists of two parts. I. Of the account which Paul gives the Ephesians concerning himself, as he was appointed by God to be the apostle of the Gentiles, Eph 3:1-13. I...
 weight: 3
 ---
 

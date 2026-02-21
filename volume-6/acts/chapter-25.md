@@ -1,7 +1,8 @@
 ---
 title: "Acts 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
-description: "Some think that Felix was turned out, and Festus succeeded him, quickly after Paul\'s imprisonment, and that the two years mentioned in the close of the foregoing chapter are to be ..."
+description: >
+  Some think that Felix was turned out, and Festus succeeded him, quickly after Paul's imprisonment, and that the two years mentioned in the close of the foregoing chapter are to be ...
 weight: 25
 ---
 

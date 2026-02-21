@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "The apostle having, in the close of the foregoing chapter, recommended the grace of faith and a life of faith as the best preservative against apostasy, he how enlarges upon the na..."
+description: >
+  The apostle having, in the close of the foregoing chapter, recommended the grace of faith and a life of faith as the best preservative against apostasy, he how enlarges upon the na...
 weight: 11
 ---
 

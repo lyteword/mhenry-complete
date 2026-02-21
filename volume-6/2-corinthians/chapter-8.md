@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "In this and the following chapter Paul is exhorting and directing the Corinthians about a particular work of charity—to relieve the necessities of the poor saints at Jerusalem and ..."
+description: >
+  In this and the following chapter Paul is exhorting and directing the Corinthians about a particular work of charity—to relieve the necessities of the poor saints at Jerusalem and ...
 weight: 8
 ---
 

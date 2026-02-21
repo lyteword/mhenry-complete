@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In this chapter the apostle applies what he had said in the chapter foregoing concerning the priesthood of Christ, I. In a serious pathetic exhortation that this great high priest,..."
+description: >
+  In this chapter the apostle applies what he had said in the chapter foregoing concerning the priesthood of Christ, I. In a serious pathetic exhortation that this great high priest,...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Revelation 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "We have already seen what occurred upon opening six of the seals; we now come to the opening of the seventh, which introduced the sounding of the seven trumpets; and a direful scen..."
+description: >
+  We have already seen what occurred upon opening six of the seals; we now come to the opening of the seventh, which introduced the sounding of the seven trumpets; and a direful scen...
 weight: 8
 ---
 

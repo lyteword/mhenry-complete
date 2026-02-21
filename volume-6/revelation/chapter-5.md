@@ -1,7 +1,8 @@
 ---
 title: "Revelation 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In the foregoing chapter the prophetical scene was opened, in the sight and hearing of the apostle, and he had a sight of God the Creator and ruler of the world, and the great King..."
+description: >
+  In the foregoing chapter the prophetical scene was opened, in the sight and hearing of the apostle, and he had a sight of God the Creator and ruler of the world, and the great King...
 weight: 5
 ---
 

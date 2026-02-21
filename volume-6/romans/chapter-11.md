@@ -1,7 +1,8 @@
 ---
 title: "Romans 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
-description: "The apostle, having reconciled that great truth of the rejection of the Jews with the promise made unto the fathers, is, in this chapter, further labouring to mollify the harshness..."
+description: >
+  The apostle, having reconciled that great truth of the rejection of the Jews with the promise made unto the fathers, is, in this chapter, further labouring to mollify the harshness...
 weight: 11
 ---
 

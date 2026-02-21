@@ -1,7 +1,8 @@
 ---
 title: "1 Timothy 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In this chapter our apostle treats of church-officers. He specifies, I. The qualifications of a person to be admitted to the office of a bishop, 1Ti 3:1-7. II. The qualifications o..."
+description: >
+  In this chapter our apostle treats of church-officers. He specifies, I. The qualifications of a person to be admitted to the office of a bishop, 1Ti 3:1-7. II. The qualifications o...
 weight: 3
 ---
 

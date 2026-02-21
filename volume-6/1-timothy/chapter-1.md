@@ -1,7 +1,8 @@
 ---
 title: "1 Timothy 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "After the inscription (1Ti 1:1,2) we have, I. The charge given to Timothy, 1Ti 1:3,4. II. The true end of the law (1Ti 1:5-11), where he shows that it is entirely agreeable to the ..."
+description: >
+  After the inscription (1Ti 1:1,2) we have, I. The charge given to Timothy, 1Ti 1:3,4. II. The true end of the law (1Ti 1:5-11), where he shows that it is entirely agreeable to the ...
 weight: 1
 ---
 

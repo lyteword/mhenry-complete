@@ -1,7 +1,8 @@
 ---
 title: "Galatians 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter, after the preface or introduction (Ga 1:1-5), the apostle severely reproves these churches for their defection from the faith (Ga 1:6-9), and then proves his own a..."
+description: >
+  In this chapter, after the preface or introduction (Ga 1:1-5), the apostle severely reproves these churches for their defection from the faith (Ga 1:6-9), and then proves his own a...
 weight: 1
 ---
 

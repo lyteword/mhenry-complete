@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "There was no place in which the apostle Paul met with more opposition from false apostles than at Corinth; he had many enemies there. Let not any of the ministers of Christ think i..."
+description: >
+  There was no place in which the apostle Paul met with more opposition from false apostles than at Corinth; he had many enemies there. Let not any of the ministers of Christ think i...
 weight: 10
 ---
 

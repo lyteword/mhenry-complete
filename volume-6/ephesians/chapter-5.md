@@ -1,7 +1,8 @@
 ---
 title: "Ephesians 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "We had several important exhortations in the close of the foregoing chapter, and they are continued in this: particularly, I. We have here an exhortation to mutual love and charity..."
+description: >
+  We had several important exhortations in the close of the foregoing chapter, and they are continued in this: particularly, I. We have here an exhortation to mutual love and charity...
 weight: 5
 ---
 

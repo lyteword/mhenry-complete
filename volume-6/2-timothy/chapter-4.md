@@ -1,7 +1,8 @@
 ---
 title: "2 Timothy 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter, I. Paul with great solemnity and earnestness presses Timothy to the diligent and conscientious discharge of his work and office as an evangelist; and the charge gi..."
+description: >
+  In this chapter, I. Paul with great solemnity and earnestness presses Timothy to the diligent and conscientious discharge of his work and office as an evangelist; and the charge gi...
 weight: 4
 ---
 

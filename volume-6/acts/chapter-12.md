@@ -1,7 +1,8 @@
 ---
 title: "Acts 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "In this chapter we have the story, I. Of the martyrdom of James the apostle, and the imprisonment of Peter by Herod Agrippa, who now reigned as king in Judea, Ac 12:1-4. II. The mi..."
+description: >
+  In this chapter we have the story, I. Of the martyrdom of James the apostle, and the imprisonment of Peter by Herod Agrippa, who now reigned as king in Judea, Ac 12:1-4. II. The mi...
 weight: 12
 ---
 

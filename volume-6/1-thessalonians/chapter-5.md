@@ -1,7 +1,8 @@
 ---
 title: "1 Thessalonians 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "The apostle, having spoken in the end of the foregoing chapter concerning the resurrection, and the second coming of Christ, proceeds to speak concerning the uselessness of enquiri..."
+description: >
+  The apostle, having spoken in the end of the foregoing chapter concerning the resurrection, and the second coming of Christ, proceeds to speak concerning the uselessness of enquiri...
 weight: 5
 ---
 

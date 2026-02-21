@@ -1,7 +1,8 @@
 ---
 title: "Revelation 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "We have, in this chapter, a further discovery and description of the church\'s enemies: not other enemies than are mentioned before, but described after another manner, that the met..."
+description: >
+  We have, in this chapter, a further discovery and description of the church's enemies: not other enemies than are mentioned before, but described after another manner, that the met...
 weight: 13
 ---
 

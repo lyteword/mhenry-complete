@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "The apostle proceeds with his argument in this chapter, and, I. Reminds the Corinthians of the plain manner wherein he delivered the gospel to them, 1Co 2:1-5. But yet, II. Shows t..."
+description: >
+  The apostle proceeds with his argument in this chapter, and, I. Reminds the Corinthians of the plain manner wherein he delivered the gospel to them, 1Co 2:1-5. But yet, II. Shows t...
 weight: 2
 ---
 

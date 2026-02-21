@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
-description: "This chapter begins with an exhortation to progressive holiness and a due regard to the ministers of the gospel, 2Co 7:1-4. Then the apostle returns from a long digression to speak..."
+description: >
+  This chapter begins with an exhortation to progressive holiness and a due regard to the ministers of the gospel, 2Co 7:1-4. Then the apostle returns from a long digression to speak...
 weight: 7
 ---
 

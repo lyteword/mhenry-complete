@@ -1,7 +1,8 @@
 ---
 title: "2 Timothy 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter our apostle gives Timothy many exhortations and directions, which may be of great use to other, both ministers and Christians, for whom they were designed as well a..."
+description: >
+  In this chapter our apostle gives Timothy many exhortations and directions, which may be of great use to other, both ministers and Christians, for whom they were designed as well a...
 weight: 2
 ---
 

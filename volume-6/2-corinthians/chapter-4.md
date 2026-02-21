@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter we have an account, I. Of the constancy of the apostle and his fellow-labourers in their work. Their constancy in declared (2Co 4:1), their sincerity is vouched (2C..."
+description: >
+  In this chapter we have an account, I. Of the constancy of the apostle and his fellow-labourers in their work. Their constancy in declared (2Co 4:1), their sincerity is vouched (2C...
 weight: 4
 ---
 

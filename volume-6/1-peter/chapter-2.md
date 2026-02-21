@@ -1,7 +1,8 @@
 ---
 title: "1 Peter 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "The general exhortation to holiness is continued, and enforced by several reasons taken from the foundation on which Christians are built, Jesus Christ, and from their spiritual bl..."
+description: >
+  The general exhortation to holiness is continued, and enforced by several reasons taken from the foundation on which Christians are built, Jesus Christ, and from their spiritual bl...
 weight: 2
 ---
 

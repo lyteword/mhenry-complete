@@ -1,7 +1,8 @@
 ---
 title: "Revelation 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
-description: "Hitherto, according to the judgment of very eminent expositors, God had represented to his servant, John, I. The state of the church under the pagan powers, in the six seals opened..."
+description: >
+  Hitherto, according to the judgment of very eminent expositors, God had represented to his servant, John, I. The state of the church under the pagan powers, in the six seals opened...
 weight: 15
 ---
 

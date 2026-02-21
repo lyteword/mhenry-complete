@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "The apostle makes an apology for his seeming to commend himself, and is careful not to assume too much to himself, but to ascribe all praise unto God, 2Co 3:1-5. He then draws a co..."
+description: >
+  The apostle makes an apology for his seeming to commend himself, and is careful not to assume too much to himself, but to ascribe all praise unto God, 2Co 3:1-5. He then draws a co...
 weight: 3
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Galatians 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "This chapter chiefly consists of two parts. In the former the apostle gives us several plain and practical directions, which more especially tend to instruct Christians in their du..."
+description: >
+  This chapter chiefly consists of two parts. In the former the apostle gives us several plain and practical directions, which more especially tend to instruct Christians in their du...
 weight: 6
 ---
 

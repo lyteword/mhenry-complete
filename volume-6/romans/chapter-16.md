@@ -1,7 +1,8 @@
 ---
 title: "Romans 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "Paul is now concluding this long and excellent epistle, and he does it with a great deal of affection. As in the main body of the epistle he appears to have been a very knowing man..."
+description: >
+  Paul is now concluding this long and excellent epistle, and he does it with a great deal of affection. As in the main body of the epistle he appears to have been a very knowing man...
 weight: 16
 ---
 

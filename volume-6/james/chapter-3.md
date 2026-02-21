@@ -1,7 +1,8 @@
 ---
 title: "James 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "The apostle here reproves ambition, and an arrogant magisterial tongue; and shows the duty and advantage of bridling it because of its power to do mischief. Those who profess relig..."
+description: >
+  The apostle here reproves ambition, and an arrogant magisterial tongue; and shows the duty and advantage of bridling it because of its power to do mischief. Those who profess relig...
 weight: 3
 ---
 

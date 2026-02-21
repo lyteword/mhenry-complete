@@ -1,7 +1,8 @@
 ---
 title: "Titus 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have, I. The preface or introduction to the epistle, showing from and to whom it was written, with the apostle\'s salutation and prayer for Titus, wishing all ble..."
+description: >
+  In this chapter we have, I. The preface or introduction to the epistle, showing from and to whom it was written, with the apostle's salutation and prayer for Titus, wishing all ble...
 weight: 1
 ---
 

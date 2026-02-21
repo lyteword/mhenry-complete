@@ -1,7 +1,8 @@
 ---
 title: "Acts 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
-description: "We left Paul at the bar, and Festus, and Agrippa, and Bernice, and all the great men of the city of Cæsarea, upon the bench, or about it, waiting to hear what he had to say for him..."
+description: >
+  We left Paul at the bar, and Festus, and Agrippa, and Bernice, and all the great men of the city of Cæsarea, upon the bench, or about it, waiting to hear what he had to say for him...
 weight: 26
 ---
 

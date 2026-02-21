@@ -1,7 +1,8 @@
 ---
 title: "Acts 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
-description: "The close of the foregoing chapter left Paul in the high priest\'s court, into which the chief captain (whether to his advantage or no I know not) had removed his cause from the mob..."
+description: >
+  The close of the foregoing chapter left Paul in the high priest's court, into which the chief captain (whether to his advantage or no I know not) had removed his cause from the mob...
 weight: 23
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter the apostle, I. Directs them how to account of him and his fellow-ministers, and therein, tacitly at least, reproves them for their unworthy carriage towards him, 1..."
+description: >
+  In this chapter the apostle, I. Directs them how to account of him and his fellow-ministers, and therein, tacitly at least, reproves them for their unworthy carriage towards him, 1...
 weight: 4
 ---
 

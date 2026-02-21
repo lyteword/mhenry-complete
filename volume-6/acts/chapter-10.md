@@ -1,7 +1,8 @@
 ---
 title: "Acts 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "It is a turn very new and remarkable which the story of this chapter gives to the Acts of the apostles; hitherto, both at Jerusalem and every where else where the ministers of Chri..."
+description: >
+  It is a turn very new and remarkable which the story of this chapter gives to the Acts of the apostles; hitherto, both at Jerusalem and every where else where the ministers of Chri...
 weight: 10
 ---
 

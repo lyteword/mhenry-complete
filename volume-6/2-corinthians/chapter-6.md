@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter the apostle gives an account of his general errand to all to whom he preached; with the several arguments and methods he used, 2Co 6:1-10. Then he addresses himself..."
+description: >
+  In this chapter the apostle gives an account of his general errand to all to whom he preached; with the several arguments and methods he used, 2Co 6:1-10. Then he addresses himself...
 weight: 6
 ---
 

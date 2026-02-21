@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "In this chapter the apostle, I. Makes some application of the doctrine laid down in the chapter foregoing concerning the excellency of the person of Christ, both by way of exhortat..."
+description: >
+  In this chapter the apostle, I. Makes some application of the doctrine laid down in the chapter foregoing concerning the excellency of the person of Christ, both by way of exhortat...
 weight: 2
 ---
 

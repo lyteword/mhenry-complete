@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
-description: "In this chapter the apostle seems to answer some cavils against himself. I. He asserts his apostolical mission and authority, and gives in his success among them as a testimony to ..."
+description: >
+  In this chapter the apostle seems to answer some cavils against himself. I. He asserts his apostolical mission and authority, and gives in his success among them as a testimony to ...
 weight: 9
 ---
 

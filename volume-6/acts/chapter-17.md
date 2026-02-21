@@ -1,7 +1,8 @@
 ---
 title: "Acts 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
-description: "We have here a further account of the travels of Paul, and his services and sufferings for Christ. He was not like a candle upon a table, that gives light only to one room, but lik..."
+description: >
+  We have here a further account of the travels of Paul, and his services and sufferings for Christ. He was not like a candle upon a table, that gives light only to one room, but lik...
 weight: 17
 ---
 

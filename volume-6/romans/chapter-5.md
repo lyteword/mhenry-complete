@@ -1,7 +1,8 @@
 ---
 title: "Romans 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "The apostle, having made good his point, and fully proved justification by faith, in this chapter proceeds in the explication, illustration, and application of that truth. I. He sh..."
+description: >
+  The apostle, having made good his point, and fully proved justification by faith, in this chapter proceeds in the explication, illustration, and application of that truth. I. He sh...
 weight: 5
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Acts 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "We have, in this chapter, a further account of the progress of the gospel, by the ministry of Paul and Barnabas among the Gentiles; it goes on conquering and to conquer, yet meetin..."
+description: >
+  We have, in this chapter, a further account of the progress of the gospel, by the ministry of Paul and Barnabas among the Gentiles; it goes on conquering and to conquer, yet meetin...
 weight: 14
 ---
 

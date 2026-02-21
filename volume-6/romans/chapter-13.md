@@ -1,7 +1,8 @@
 ---
 title: "Romans 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "There are three good lessons taught us in this chapter, where the apostle enlarges more upon his precepts than he had done in the foregoing chapter, finding them more needful to be..."
+description: >
+  There are three good lessons taught us in this chapter, where the apostle enlarges more upon his precepts than he had done in the foregoing chapter, finding them more needful to be...
 weight: 13
 ---
 

@@ -1,7 +1,8 @@
 ---
 title: "Acts 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
-description: "We left Paul a prisoner at Cæsarea, in Herod\'s judgment-hall, expecting his trial to come on quickly; for in the beginning of his imprisonment his affairs moved very quickly, but a..."
+description: >
+  We left Paul a prisoner at Cæsarea, in Herod's judgment-hall, expecting his trial to come on quickly; for in the beginning of his imprisonment his affairs moved very quickly, but a...
 weight: 24
 ---
 

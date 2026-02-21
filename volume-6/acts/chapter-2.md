@@ -1,7 +1,8 @@
 ---
 title: "Acts 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
-description: "Between the promise of the Messiah (even the latest of those promises) and his coming many ages intervened; but between the promise of the Spirit and his coming there were but a fe..."
+description: >
+  Between the promise of the Messiah (even the latest of those promises) and his coming many ages intervened; but between the promise of the Spirit and his coming there were but a fe...
 weight: 2
 ---
 

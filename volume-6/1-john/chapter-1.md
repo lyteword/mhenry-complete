@@ -1,7 +1,8 @@
 ---
 title: "1 John 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "Evidence given concerning Christ\'s person and excellency, 1Jo 1:1,2. The knowledge thereof gives us communion with God and Christ (1Jo 1:3), and joy, 1Jo 1:4. A description of God,..."
+description: >
+  Evidence given concerning Christ's person and excellency, 1Jo 1:1,2. The knowledge thereof gives us communion with God and Christ (1Jo 1:3), and joy, 1Jo 1:4. A description of God,...
 weight: 1
 ---
 

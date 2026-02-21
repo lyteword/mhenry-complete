@@ -1,7 +1,8 @@
 ---
 title: "Romans 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
-description: "The dissolving of the peculiar church-state of the Jews, and the rejection of that polity by the repealing of their ceremonial law, the vacating of all the institutions of it, the ..."
+description: >
+  The dissolving of the peculiar church-state of the Jews, and the rejection of that polity by the repealing of their ceremonial law, the vacating of all the institutions of it, the ...
 weight: 10
 ---
 

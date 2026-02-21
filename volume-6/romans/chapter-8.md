@@ -1,7 +1,8 @@
 ---
 title: "Romans 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "The apostle, having fully explained the doctrine of justification, and pressed the necessity of sanctification, in this chapter applies himself to the consolation of the Lord\'s peo..."
+description: >
+  The apostle, having fully explained the doctrine of justification, and pressed the necessity of sanctification, in this chapter applies himself to the consolation of the Lord's peo...
 weight: 8
 ---
 

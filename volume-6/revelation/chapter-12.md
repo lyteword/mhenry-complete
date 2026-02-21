@@ -1,7 +1,8 @@
 ---
 title: "Revelation 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "It is generally agreed by the most learned expositors that the narrative we have in this and the two following chapters, from the sounding of the seventh trumpet to the opening of ..."
+description: >
+  It is generally agreed by the most learned expositors that the narrative we have in this and the two following chapters, from the sounding of the seventh trumpet to the opening of ...
 weight: 12
 ---
 

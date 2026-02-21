@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
-description: "In this chapter the apostle threatens to be severe against obstinate sinners, and assigns the reason thereof (2Co 13:1-6); then he makes a suitable prayer to God on the behalf of t..."
+description: >
+  In this chapter the apostle threatens to be severe against obstinate sinners, and assigns the reason thereof (2Co 13:1-6); then he makes a suitable prayer to God on the behalf of t...
 weight: 13
 ---
 

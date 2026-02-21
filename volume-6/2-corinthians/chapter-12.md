@@ -1,7 +1,8 @@
 ---
 title: "2 Corinthians 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
-description: "In this chapter the apostle proceeds in maintaining the honour of his apostleship. He magnified his office when there were those who vilified it. What he says in his own praise was..."
+description: >
+  In this chapter the apostle proceeds in maintaining the honour of his apostleship. He magnified his office when there were those who vilified it. What he says in his own praise was...
 weight: 12
 ---
 

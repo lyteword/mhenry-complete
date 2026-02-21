@@ -1,7 +1,8 @@
 ---
 title: "Revelation 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
-description: "In this chapter we have an account of the pouring forth of these vials that were filled with the wrath of God. They were poured out upon the whole antichristian empire, and on ever..."
+description: >
+  In this chapter we have an account of the pouring forth of these vials that were filled with the wrath of God. They were poured out upon the whole antichristian empire, and on ever...
 weight: 16
 ---
 

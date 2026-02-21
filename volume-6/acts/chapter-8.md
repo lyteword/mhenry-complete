@@ -1,7 +1,8 @@
 ---
 title: "Acts 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
-description: "In this chapter we have an account of the persecutions of the Christians, and the propagating of Christianity thereby. It was strange, but very true, that the disciples of Christ t..."
+description: >
+  In this chapter we have an account of the persecutions of the Christians, and the propagating of Christianity thereby. It was strange, but very true, that the disciples of Christ t...
 weight: 8
 ---
 

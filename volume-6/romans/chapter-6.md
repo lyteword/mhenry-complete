@@ -1,7 +1,8 @@
 ---
 title: "Romans 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "The apostle having at large asserted, opened, and proved, the great doctrine of justification by faith, for fear lest any should suck poison out of that sweet flower, and turn that..."
+description: >
+  The apostle having at large asserted, opened, and proved, the great doctrine of justification by faith, for fear lest any should suck poison out of that sweet flower, and turn that...
 weight: 6
 ---
 

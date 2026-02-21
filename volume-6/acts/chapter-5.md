@@ -1,7 +1,8 @@
 ---
 title: "Acts 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter we have, I. The sin and punishment of Ananias and Sapphira, who, for lying to the Holy Ghost, were struck dead at the word of Peter, Ac 5:1-11. II. The flourishing ..."
+description: >
+  In this chapter we have, I. The sin and punishment of Ananias and Sapphira, who, for lying to the Holy Ghost, were struck dead at the word of Peter, Ac 5:1-11. II. The flourishing ...
 weight: 5
 ---
 

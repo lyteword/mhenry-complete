@@ -1,7 +1,8 @@
 ---
 title: "2 Timothy 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "After the introduction (2Ti 1:1,2) we have, I. Paul\'s sincere love to Timothy, 2Ti 1:3-5. II. Divers exhortations given to him, 2Ti 1:6-14. III. He speaks of Phygellus and Hermogen..."
+description: >
+  After the introduction (2Ti 1:1,2) we have, I. Paul's sincere love to Timothy, 2Ti 1:3-5. II. Divers exhortations given to him, 2Ti 1:6-14. III. He speaks of Phygellus and Hermogen...
 weight: 1
 ---
 

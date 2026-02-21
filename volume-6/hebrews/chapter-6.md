@@ -1,7 +1,8 @@
 ---
 title: "Hebrews 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
-description: "In this chapter the apostle proceeds to persuade the Hebrews to make a better proficiency in religion than they had done, as the best way to prevent apostasy, the dreadful nature a..."
+description: >
+  In this chapter the apostle proceeds to persuade the Hebrews to make a better proficiency in religion than they had done, as the best way to prevent apostasy, the dreadful nature a...
 weight: 6
 ---
 

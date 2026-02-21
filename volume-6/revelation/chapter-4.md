@@ -1,7 +1,8 @@
 ---
 title: "Revelation 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
-description: "In this chapter the prophetical scene opens; and, as the epistolary part opened with a vision of Christ (Re 1:1-20), so this part is introduced with a glorious appearance of the gr..."
+description: >
+  In this chapter the prophetical scene opens; and, as the epistolary part opened with a vision of Christ (Re 1:1-20), so this part is introduced with a glorious appearance of the gr...
 weight: 4
 ---
 

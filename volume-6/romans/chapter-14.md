@@ -1,7 +1,8 @@
 ---
 title: "Romans 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
-description: "The apostle having, in the former chapter, directed our conduct one towards another in civil things, and prescribed the sacred laws of justice, peaceableness, and order, to be obse..."
+description: >
+  The apostle having, in the former chapter, directed our conduct one towards another in civil things, and prescribed the sacred laws of justice, peaceableness, and order, to be obse...
 weight: 14
 ---
 

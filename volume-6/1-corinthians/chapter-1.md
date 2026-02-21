@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
-description: "In this chapter we have, I. The preface or introduction to the whole epistle, 1Co 1:1-9. II. One principal occasion of writing it hinted, namely, their divisions and the origin of ..."
+description: >
+  In this chapter we have, I. The preface or introduction to the whole epistle, 1Co 1:1-9. II. One principal occasion of writing it hinted, namely, their divisions and the origin of ...
 weight: 1
 ---
 

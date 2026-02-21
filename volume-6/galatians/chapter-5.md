@@ -1,7 +1,8 @@
 ---
 title: "Galatians 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter the apostle comes to make application of his foregoing discourse. He begins it with a general caution, or exhortation (Ga 5:1), which he afterwards enforces by seve..."
+description: >
+  In this chapter the apostle comes to make application of his foregoing discourse. He begins it with a general caution, or exhortation (Ga 5:1), which he afterwards enforces by seve...
 weight: 5
 ---
 

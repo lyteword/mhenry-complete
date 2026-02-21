@@ -1,7 +1,8 @@
 ---
 title: "James 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
-description: "In this chapter the apostle denounces the judgments of God upon those rich men who oppress the poor, showing them how great their sin and folly are in the sight of God, and how gri..."
+description: >
+  In this chapter the apostle denounces the judgments of God upon those rich men who oppress the poor, showing them how great their sin and folly are in the sight of God, and how gri...
 weight: 5
 ---
 

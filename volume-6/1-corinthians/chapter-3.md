@@ -1,7 +1,8 @@
 ---
 title: "1 Corinthians 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
-description: "In this chapter the apostle, I. Blames the Corinthians for their carnality and divisions, 1Co 3:1-4. II. He instructs them how what was amiss among them might be rectified, by reme..."
+description: >
+  In this chapter the apostle, I. Blames the Corinthians for their carnality and divisions, 1Co 3:1-4. II. He instructs them how what was amiss among them might be rectified, by reme...
 weight: 3
 ---
 
