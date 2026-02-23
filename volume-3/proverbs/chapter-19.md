@@ -2,8 +2,7 @@
 title: "Proverbs 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
 description: >
-  "## The Disadvantages of Poverty
-"
+  The Disadvantages of Poverty: Better is the poor that walketh in his integrity, than he that is perverse in his lips, and is a fool.
 weight: 19
 ---
 

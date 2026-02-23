@@ -2,8 +2,7 @@
 title: "Proverbs 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
 description: >
-  "## Miscellaneous Maxims
-"
+  Miscellaneous Maxims: The wicked flee when no man pursueth: but the righteous are bold as a lion.
 weight: 28
 ---
 

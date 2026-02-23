@@ -2,8 +2,7 @@
 title: "Proverbs 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
 description: >
-  "## The Proper Use of the Tongue
-"
+  The Proper Use of the Tongue: A soft answer turneth away wrath: but grievous words stir up anger.
 weight: 15
 ---
 

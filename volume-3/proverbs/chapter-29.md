@@ -2,8 +2,7 @@
 title: "Proverbs 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
 description: >
-  "## Miscellaneous Maxims
-"
+  Miscellaneous Maxims: He, that being often reproved hardeneth his neck, shall suddenly be destroyed, and that without remedy.
 weight: 29
 ---
 

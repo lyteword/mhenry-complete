@@ -2,8 +2,7 @@
 title: "Proverbs 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
 description: >
-  "## Wisdom and Folly
-"
+  Wisdom and Folly: Every wise woman buildeth her house: but the foolish plucketh it down with her hands.
 weight: 14
 ---
 

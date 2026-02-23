@@ -2,8 +2,7 @@
 title: "Proverbs 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
 description: >
-  "## Proper Treatment of Fools
-"
+  Proper Treatment of Fools: As snow in summer, and as rain in harvest, so honour is not seemly for a fool.
 weight: 26
 ---
 

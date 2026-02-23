@@ -2,8 +2,7 @@
 title: "Proverbs 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
 description: >
-  "## Miscellaneous Maxims
-"
+  Miscellaneous Maxims: Wine is a mocker, strong drink is raging: and whosoever is deceived thereby is not wise.
 weight: 20
 ---
 

@@ -2,8 +2,7 @@
 title: "Proverbs 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
 description: >
-  "## Miscellaneous Maxims
-"
+  Miscellaneous Maxims: Boast not thyself of to morrow; for thou knowest not what a day may bring forth.
 weight: 27
 ---
 

@@ -2,8 +2,7 @@
 title: "Proverbs 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
 description: >
-  "## Moral Maxims
-"
+  Moral Maxims: A wise son *heareth* his father's instruction: but a scorner heareth not rebuke.
 weight: 13
 ---
 

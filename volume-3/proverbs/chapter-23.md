@@ -2,8 +2,7 @@
 title: "Proverbs 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
 description: >
-  "## Cautions against Luxury and Covetousness
-"
+  Cautions against Luxury and Covetousness: When thou sittest to eat with a ruler, consider diligently what is before thee...
 weight: 23
 ---
 
