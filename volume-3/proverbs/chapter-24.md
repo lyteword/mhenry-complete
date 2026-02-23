@@ -2,8 +2,7 @@
 title: "Proverbs 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
 description: >
-  "## The Excellence of Wisdom
-"
+  The Excellence of Wisdom: Be not thou envious against evil men, neither desire to be with them.
 weight: 24
 ---
 

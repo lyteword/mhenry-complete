@@ -2,8 +2,7 @@
 title: "Proverbs 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
 description: >
-  "## Weighty Sayings
-"
+  Weighty Sayings: A false balance is abomination to the LORD: but a just weight is his delight.
 weight: 11
 ---
 

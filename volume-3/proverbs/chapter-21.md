@@ -2,8 +2,7 @@
 title: "Proverbs 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
 description: >
-  "## Miscellaneous Maxims
-"
+  Miscellaneous Maxims: The king's heart is in the hand of the LORD, as the rivers of water: he turneth it whithersoever he will.
 weight: 21
 ---
 

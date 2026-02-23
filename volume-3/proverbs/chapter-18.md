@@ -2,8 +2,7 @@
 title: "Proverbs 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
 description: >
-  "## Wisdom and Folly
-"
+  Wisdom and Folly: Through desire a man, having separated himself, seeketh *and* intermeddleth with all wisdom.
 weight: 18
 ---
 

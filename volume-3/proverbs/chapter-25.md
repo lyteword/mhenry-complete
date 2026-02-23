@@ -2,8 +2,7 @@
 title: "Proverbs 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
 description: >
-  "## Pleasures and Advantages of Wisdom
-"
+  Pleasures and Advantages of Wisdom: These are also proverbs of Solomon, which the men of Hezekiah king of Judah copied out.
 weight: 25
 ---
 

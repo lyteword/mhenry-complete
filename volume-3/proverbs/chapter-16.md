@@ -2,8 +2,7 @@
 title: "Proverbs 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
 description: >
-  "## The Sovereignty of Divine Providence
-"
+  The Sovereignty of Divine Providence: The preparations of the heart in man, and the answer of the tongue, is from the LORD.
 weight: 16
 ---
 

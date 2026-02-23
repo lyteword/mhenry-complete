@@ -2,8 +2,7 @@
 title: "Proverbs 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
 description: >
-  "## Advantages of the Righteous
-"
+  Advantages of the Righteous: Whoso loveth instruction loveth knowledge: but he that hateth reproof is brutish.
 weight: 12
 ---
 

@@ -2,8 +2,7 @@
 title: "Proverbs 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
 description: >
-  "## Miscellaneous Maxims
-"
+  Miscellaneous Maxims: A good name is rather to be chosen than great riches, and loving favour rather than silver and gold.
 weight: 22
 ---
 

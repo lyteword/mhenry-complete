@@ -2,8 +2,7 @@
 title: "Proverbs 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
 description: >
-  "## Falsehood and Oppression Reproved
-"
+  Falsehood and Oppression Reproved: Better is a dry morsel, and quietness therewith, than an house full of sacrifices with strife.
 weight: 17
 ---
 
