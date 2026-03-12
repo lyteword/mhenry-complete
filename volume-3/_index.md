@@ -1,7 +1,14 @@
 ---
-title: Volume III - Job to Song of Solomon
-linkTitle: Volume III
+title: "Volume III - Job to Song of Solomon | Read Matthew Henry's Commentary Online"
+linkTitle: "Volume III"
+description: >
+  Matthew Henry’s Commentary on the Whole Bible, Volume 3 (Job to Song of Solomon), provides devotional and practical analysis of the Old Testament's poetic and wisdom literature. It focuses on applying these books to everyday life, encouraging believers to seek heavenly wisdom, endure affliction, and trust in God's providence.
+layout: single-section
 ---
+
+# Volume III - Job to Song of Solomon
+
+Matthew Henry’s Commentary on the Whole Bible, Volume 3 (Job to Song of Solomon), provides devotional and practical analysis of the Old Testament's poetic and wisdom literature. It focuses on applying these books to everyday life, encouraging believers to seek heavenly wisdom, endure affliction, and trust in God's providence.
 
 ## Table of Contents
 

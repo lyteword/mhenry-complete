@@ -1,11 +1,20 @@
 ---
-title: The Complete Matthew Henry Commentary on the Bible
-linkTitle: MH Complete
+title: "Matthew Henry Complete Six-Volume Commentary | Read Bible Commentaries Online"
+linkTitle: "MH Complete"
+description: >
+  Dive deep into Scripture with Matthew Henry's Complete Commentary on the Whole Bible. This six-volume commentary provides detailed explanations through every book in the Bible, making it perfect for Bible study and understanding.
 sidebar:
   exclude: true
 cascade:
   toc: true
+layout: single-section
 ---
+
+# The Complete Matthew Henry Commentary on the Bible
+
+Dive deep into Scripture with Matthew Henry's Complete Commentary on the Whole Bible. This six-volume commentary provides detailed explanations through every book in the Bible, making it perfect for Bible study and understanding.
+
+Published in the early 18th century, it remains a masterpiece of devotional literature. This work is celebrated for its practical and pastoral insights, aiming to move the heart as much as the mind. While scholars today may look elsewhere for technical exegesis, Henry’s commentary continues to be a primary resource for readers seeking to apply the biblical text to everyday Christian life and personal prayer.
 
 ## Table of Contents
 
