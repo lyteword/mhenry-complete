@@ -1,7 +1,14 @@
 ---
-title: Volume II - Joshua to Esther
-linkTitle: Volume II
+title: "Volume II - Joshua to Esther | Read Matthew Henry's Commentary Online"
+linkTitle: "Volume II"
+description: >
+  Matthew Henry’s Commentary on the Whole Bible, Volume 2 (Joshua to Esther) offers a devotional and comprehensive exposition of the historical books of the Old Testament. It focuses on edification, divine providence, and obedience, covering Israel's conquest, the period of judges, the united monarchy, and the exile.
+layout: single-section
 ---
+
+# Volume II - Joshua to Esther
+
+Matthew Henry’s Commentary on the Whole Bible, Volume 2 (Joshua to Esther) offers a devotional and comprehensive exposition of the historical books of the Old Testament. It focuses on edification, divine providence, and obedience, covering Israel's conquest, the period of judges, the united monarchy, and the exile.
 
 ## Table of Contents
 

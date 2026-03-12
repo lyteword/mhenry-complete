@@ -1,7 +1,14 @@
 ---
-title: Volume IV - Isaiah to Malachi
-linkTitle: Volume IV
+title: "Volume IV - Isaiah to Malachi | Read Matthew Henry's Commentary Online"
+linkTitle: "Volume IV"
+description: >
+  Matthew Henry’s Commentary on the Whole Bible, Volume 4 (Isaiah to Malachi), provides an expository, devotional analysis of the Major and Minor Prophets. It emphasizes God's justice in punishing Israel's idolatry, while offering comfort through promises of mercy, the coming Messiah, and Gospel grace.
+layout: single-section
 ---
+
+# Volume IV - Isaiah to Malachi
+
+Matthew Henry’s Commentary on the Whole Bible, Volume 4 (Isaiah to Malachi), provides an expository, devotional analysis of the Major and Minor Prophets. It emphasizes God's justice in punishing Israel's idolatry, while offering comfort through promises of mercy, the coming Messiah, and Gospel grace.
 
 ## Table of Contents
 
