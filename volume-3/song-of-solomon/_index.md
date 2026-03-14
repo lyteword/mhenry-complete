@@ -1,7 +1,13 @@
 ---
-title: Song of Solomon
+title: "Song of Solomon | Matthew Henry Complete Commentary"
+linkTitle: "Song of Solomon"
 weight: 22
+description: >
+  Read commentary notes on Song of Solomon. All *scripture,* we are sure, *is given by inspiration of God, and is profitable* for the support and advancement of the interests of his kingdom among men, and it is never the less so for there being found in it some things *dark and hard to be understood, which those that are unlearned and unstable wrest to their own destruction.* In our belief both of the divine extraction and of the spiritual exposition of this book we are confirmed by the ancient, constant, and concurring testimony both of the church of the Jews, to whom were *committed the oracles of God,* and who never made any doubt of the authority of this book, and of the Christian church, which happily succeeds them in that trust and honour.
+layout: single-section
 ---
+
+# Song of Solomon
 
 ## Table of Contents
 

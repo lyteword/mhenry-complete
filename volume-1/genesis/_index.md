@@ -1,7 +1,13 @@
 ---
-title: Genesis
+title: "Genesis | Matthew Henry Complete Commentary"
+linkTitle: "Genesis"
 weight: 1
+description: >
+  Read commentary notes on Genesis. We have now before us the holy Bible, or *book,* for so *bible* signifies.
+layout: single-section
 ---
+
+# Genesis
 
 ## Table of Contents
 

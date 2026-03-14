@@ -1,7 +1,13 @@
 ---
-title: Mark
+title: "Mark | Matthew Henry Complete Commentary"
+linkTitle: "Mark"
 weight: 41
+description: >
+  Read commentary notes on Mark. We have heard the evidence given in by the first witness to the doctrine and miracles of our Lord Jesus; and now here is another witness produced, who calls for our attention.
+layout: single-section
 ---
+
+# Mark
 
 ## Table of Contents
 

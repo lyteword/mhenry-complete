@@ -1,7 +1,13 @@
 ---
-title: 2 Samuel
+title: "2 Samuel | Matthew Henry Complete Commentary"
+linkTitle: "2 Samuel"
 weight: 10
+description: >
+  Read commentary notes on 2 Samuel. This book is the history of the reign of king David.
+layout: single-section
 ---
+
+# 2 Samuel
 
 ## Table of Contents
 

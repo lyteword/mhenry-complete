@@ -1,7 +1,13 @@
 ---
-title: Zephaniah
+title: "Zephaniah | Matthew Henry Complete Commentary"
+linkTitle: "Zephaniah"
 weight: 36
+description: >
+  Read commentary notes on Zephaniah. This prophet is placed last, as he was last in time, of all the minor prophets before the captivity, and not long before Jeremiah, who lived at the time of the captivity.
+layout: single-section
 ---
+
+# Zephaniah
 
 ## Table of Contents
 

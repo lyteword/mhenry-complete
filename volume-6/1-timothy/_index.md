@@ -1,7 +1,13 @@
 ---
-title: 1 Timothy
+title: "1 Timothy | Matthew Henry Complete Commentary"
+linkTitle: "1 Timothy"
 weight: 54
+description: >
+  Read commentary notes on 1 Timothy. Hitherto Paul's epistles were directed to churches; now follow some to particular persons: two to Timothy, one to Titus, and another to Philemon—all three ministers.
+layout: single-section
 ---
+
+# 1 Timothy
 
 ## Table of Contents
 

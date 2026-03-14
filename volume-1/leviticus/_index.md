@@ -1,7 +1,13 @@
 ---
-title: Leviticus
+title: "Leviticus | Matthew Henry Complete Commentary"
+linkTitle: "Leviticus"
 weight: 3
+description: >
+  Read commentary notes on Leviticus. There is nothing historical in all this book of Leviticus except the account which it gives us of the consecration of the priesthood (Le 8:1-9:24), of the punishment of Nadab and Abihu, by the hand of God, for offering strange fire (Le 10:1-20), and of Shelomith's son, by the hand of the magistrate, for blasphemy (Le 24:1-23).
+layout: single-section
 ---
+
+# Leviticus
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: Ezekiel
+title: "Ezekiel | Matthew Henry Complete Commentary"
+linkTitle: "Ezekiel"
 weight: 26
+description: >
+  Read commentary notes on Ezekiel. When we entered upon the writings of the prophets, which speak of the *things that should be hereafter,* we seemed to have the same call that St.
+layout: single-section
 ---
+
+# Ezekiel
 
 ## Table of Contents
 

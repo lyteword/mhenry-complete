@@ -1,7 +1,13 @@
 ---
-title: Nehemiah
+title: "Nehemiah | Matthew Henry Complete Commentary"
+linkTitle: "Nehemiah"
 weight: 16
+description: >
+  Read commentary notes on Nehemiah. This book continues the history of the *children of the captivity,* the poor Jews, that had lately returned out of Babylon to their own land.
+layout: single-section
 ---
+
+# Nehemiah
 
 ## Table of Contents
 

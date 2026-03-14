@@ -1,7 +1,13 @@
 ---
-title: Daniel
+title: "Daniel | Matthew Henry Complete Commentary"
+linkTitle: "Daniel"
 weight: 27
+description: >
+  Read commentary notes on Daniel. The book of Ezekiel left the affairs of Jerusalem under a doleful aspect, all in ruins, but with a joyful prospect of all in glory again.
+layout: single-section
 ---
+
+# Daniel
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: John
+title: "John | Matthew Henry Complete Commentary"
+linkTitle: "John"
 weight: 43
+description: >
+  Read commentary notes on John. It is not material to enquire when and where this gospel was written; we are sure that it was given by inspiration of God to John, the brother of James, one of the twelve apostles, distinguished by the honourable character of *that disciple whom Jesus loved,* one of the first three of the worthies of the Son of David, whom he took to be the witnesses of his retirements, particularly of his transfiguration and his agony.
+layout: single-section
 ---
+
+# John
 
 ## Table of Contents
 

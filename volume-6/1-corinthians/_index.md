@@ -1,7 +1,13 @@
 ---
-title: 1 Corinthians
+title: "1 Corinthians | Matthew Henry Complete Commentary"
+linkTitle: "1 Corinthians"
 weight: 46
+description: >
+  Read commentary notes on 1 Corinthians. Corinth was a principal city of Greece, in that particular division of it which was called *Achaia.* It was situated on the isthmus (or neck of land) that joined Peloponnesus to the rest of Greece, on the southern side, and had two ports adjoining, one at the bottom of the Corinthian Gulf, called *Lechæum,* not far from the city, whence they traded to Italy and the west, the other at the bottom of the Sinus Saronicus, called *Cenchrea,* at a more remote distance, whence they traded to Asia.
+layout: single-section
 ---
+
+# 1 Corinthians
 
 ## Table of Contents
 

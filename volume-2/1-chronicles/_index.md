@@ -1,7 +1,13 @@
 ---
-title: 1 Chronicles
+title: "1 Chronicles | Matthew Henry Complete Commentary"
+linkTitle: "1 Chronicles"
 weight: 13
+description: >
+  Read commentary notes on 1 Chronicles. In common things repetition is thought needless and nauseous; but, in sacred things, *precept must be upon precept and line upon line.
+layout: single-section
 ---
+
+# 1 Chronicles
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: Hosea
+title: "Hosea | Matthew Henry Complete Commentary"
+linkTitle: "Hosea"
 weight: 28
+description: >
+  Read commentary notes on Hosea. I\.
+layout: single-section
 ---
+
+# Hosea
 
 ## Table of Contents
 

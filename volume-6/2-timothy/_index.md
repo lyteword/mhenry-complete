@@ -1,7 +1,13 @@
 ---
-title: 2 Timothy
+title: "2 Timothy | Matthew Henry Complete Commentary"
+linkTitle: "2 Timothy"
 weight: 55
+description: >
+  Read commentary notes on 2 Timothy. This second epistle Paul wrote to Timothy from Rome, when he was a prisoner there and in danger of his life; this is evident from these words, *I am now ready to be offered, and the time of my departure is at hand,* 2Ti 4:6.
+layout: single-section
 ---
+
+# 2 Timothy
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: Amos
+title: "Amos | Matthew Henry Complete Commentary"
+linkTitle: "Amos"
 weight: 30
+description: >
+  Read commentary notes on Amos. Though this prophet appeared a little before Isaiah, yet he was not, as some have mistaken, that Amos who was the father of Isaiah (Isa 1:1), for in the Hebrew their names are very different; their families too were of a different character, for Isaiah was a courtier, Amos a country-farmer.
+layout: single-section
 ---
+
+# Amos
 
 ## Table of Contents
 

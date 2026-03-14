@@ -1,7 +1,13 @@
 ---
-title: Jonah
+title: "Jonah | Matthew Henry Complete Commentary"
+linkTitle: "Jonah"
 weight: 32
+description: >
+  Read commentary notes on Jonah. This book of Jonah, though it be placed here in the midst of the prophetical books of scripture, is yet rather a history than a prophecy; one line of prediction there is in it, *Yet forty days, and Nineveh shall be overthrown;* the rest of the book is a narrative of the preface to and the consequences of that prediction.
+layout: single-section
 ---
+
+# Jonah
 
 ## Table of Contents
 

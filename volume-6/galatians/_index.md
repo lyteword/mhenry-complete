@@ -1,7 +1,13 @@
 ---
-title: Galatians
+title: "Galatians | Matthew Henry Complete Commentary"
+linkTitle: "Galatians"
 weight: 48
+description: >
+  Read commentary notes on Galatians. This epistle of Paul is directed not to the church or churches of a single city, as some others are, but of a country or province, for so Galatia was.
+layout: single-section
 ---
+
+# Galatians
 
 ## Table of Contents
 

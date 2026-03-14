@@ -1,7 +1,13 @@
 ---
-title: Matthew
+title: "Matthew | Matthew Henry Complete Commentary"
+linkTitle: "Matthew"
 weight: 40
+description: >
+  Read commentary notes on Matthew. We have now before us...
+layout: single-section
 ---
+
+# Matthew
 
 ## Table of Contents
 

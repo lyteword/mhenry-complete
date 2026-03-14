@@ -1,7 +1,13 @@
 ---
-title: Colossians
+title: "Colossians | Matthew Henry Complete Commentary"
+linkTitle: "Colossians"
 weight: 51
+description: >
+  Read commentary notes on Colossians. Colosse was a considerable city of Phrygia, and probably not far from Laodicea and Hierapolis; we find these mentioned together, Col 4:13.
+layout: single-section
 ---
+
+# Colossians
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: 3 John
+title: "3 John | Matthew Henry Complete Commentary"
+linkTitle: "3 John"
 weight: 64
+description: >
+  Read commentary notes on 3 John. Christian communion is exerted and cherished by letter.
+layout: single-section
 ---
+
+# 3 John
 
 ## Table of Contents
 

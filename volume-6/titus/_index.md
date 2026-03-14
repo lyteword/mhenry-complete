@@ -1,7 +1,13 @@
 ---
-title: Titus
+title: "Titus | Matthew Henry Complete Commentary"
+linkTitle: "Titus"
 weight: 56
+description: >
+  Read commentary notes on Titus. This Epistle of Paul to Titus is much of the same nature with those to Timothy; both were converts of Paul, and his companions in labours and sufferings; both were in the office of evangelists, whose work was to water the churches planted by the apostles, and to set in order the things that were wanting in them: they were vice-apostles, as it were, *working the work of the Lord, as they did,* and mostly under their direction, though not despotic and arbitrary, but with the concurring exercise of their own prudence and judgment, 1Co 16:10,12.
+layout: single-section
 ---
+
+# Titus
 
 ## Table of Contents
 

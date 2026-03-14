@@ -1,7 +1,13 @@
 ---
-title: Hebrews
+title: "Hebrews | Matthew Henry Complete Commentary"
+linkTitle: "Hebrews"
 weight: 58
+description: >
+  Read commentary notes on Hebrews. Concerning this epistle we must enquire...
+layout: single-section
 ---
+
+# Hebrews
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: Joshua
+title: "Joshua | Matthew Henry Complete Commentary"
+linkTitle: "Joshua"
 weight: 6
+description: >
+  Read commentary notes on Joshua...
+layout: single-section
 ---
+
+# Joshua
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: 1 Kings
+title: "1 Kings | Matthew Henry Complete Commentary"
+linkTitle: "1 Kings"
 weight: 11
+description: >
+  Read commentary notes on 1 Kings. Many histories are books of kings and their reigns, to which the affairs of their kingdoms are reduced; this is a piece of honour that has commonly been paid to crowned heads.
+layout: single-section
 ---
+
+# 1 Kings
 
 ## Table of Contents
 

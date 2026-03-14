@@ -1,7 +1,13 @@
 ---
-title: 2 Corinthians
+title: "2 Corinthians | Matthew Henry Complete Commentary"
+linkTitle: "2 Corinthians"
 weight: 47
+description: >
+  Read commentary notes on 2 Corinthians. In his former epistle the apostle had signified his intentions of *coming to Corinth, as he passed through Macedonia* (1Co 16:5), but, being providentially hindered for some time, he writes this second epistle to them about a year after the former; and there seem to be these two urgent occasions:—1.
+layout: single-section
 ---
+
+# 2 Corinthians
 
 ## Table of Contents
 

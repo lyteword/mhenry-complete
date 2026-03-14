@@ -1,7 +1,13 @@
 ---
-title: Numbers
+title: "Numbers | Matthew Henry Complete Commentary"
+linkTitle: "Numbers"
 weight: 4
+description: >
+  Read commentary notes on Numbers. The titles of the five books of Moses, which we use in our Bibles, are all borrowed from the Greek translation of the Seventy, the most ancient version of the Old Testament that we know of.
+layout: single-section
 ---
+
+# Numbers
 
 ## Table of Contents
 

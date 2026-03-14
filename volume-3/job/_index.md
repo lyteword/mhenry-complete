@@ -1,7 +1,13 @@
 ---
-title: Job
+title: "Job | Matthew Henry Complete Commentary"
+linkTitle: "Job"
 weight: 18
+description: >
+  Read commentary notes on Job. This book of Job stands by itself, is not connected with any other, and is therefore to be considered alone.
+layout: single-section
 ---
+
+# Job
 
 ## Table of Contents
 

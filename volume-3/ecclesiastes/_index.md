@@ -1,7 +1,13 @@
 ---
-title: Ecclesiastes
+title: "Ecclesiastes | Matthew Henry Complete Commentary"
+linkTitle: "Ecclesiastes"
 weight: 21
+description: >
+  Read commentary notes on Ecclesiastes. We are still among Solomon's happy men, his happy servants, that *stood continually before him to hear his wisdom;* and they are the choicest of all the dictates of his wisdom, such as were more immediately given by divine inspiration, that are here transmitted to us, not to be heard, as by them, but once, and then liable to be mistaken or forgotten, and by repetition to lose their beauty, but to be read, reviewed, revolved, and had in everlasting remembrance.
+layout: single-section
 ---
+
+# Ecclesiastes
 
 ## Table of Contents
 

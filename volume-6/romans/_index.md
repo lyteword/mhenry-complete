@@ -1,7 +1,13 @@
 ---
-title: Romans
+title: "Romans | Matthew Henry Complete Commentary"
+linkTitle: "Romans"
 weight: 45
+description: >
+  Read commentary notes on Romans. If we may compare scripture with scripture, and take the opinion of some devout and pious persons, in the Old Testament David's Psalms, and in the New Testament Paul's Epistles, are stars of the first magnitude, that differ from the other stars in glory.
+layout: single-section
 ---
+
+# Romans
 
 ## Table of Contents
 
