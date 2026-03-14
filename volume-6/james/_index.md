@@ -1,7 +1,13 @@
 ---
-title: James
+title: "James | Matthew Henry Complete Commentary"
+linkTitle: "James"
 weight: 59
+description: >
+  Read commentary notes on James. The writer of this epistle was not James the son of Zebedee; for he was put to death by Herod (Ac 12:1,2) before Christianity had gained so much ground among the Jews of the dispersion as is here implied.
+layout: single-section
 ---
+
+# James
 
 ## Table of Contents
 

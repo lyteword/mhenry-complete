@@ -1,7 +1,13 @@
 ---
-title: 1 Thessalonians
+title: "1 Thessalonians | Matthew Henry Complete Commentary"
+linkTitle: "1 Thessalonians"
 weight: 52
+description: >
+  Read commentary notes on 1 Thessalonians. Thessalonica was formerly the metropolis of Macedonia; it is now called *Salonichi,* and is the best peopled, and one of the best towns for commerce, in the Levant.
+layout: single-section
 ---
+
+# 1 Thessalonians
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: Obadiah
+title: "Obadiah | Matthew Henry Complete Commentary"
+linkTitle: "Obadiah"
 weight: 31
+description: >
+  Read commentary notes on Obadiah. This is the shortest of all the books of the Old Testament, the least of those tribes, and yet is not to be passed by, or thought meanly of, for this penny has Cæsar's image and superscription upon it; it is stamped with a divine authority.
+layout: single-section
 ---
+
+# Obadiah
 
 ## Table of Contents
 

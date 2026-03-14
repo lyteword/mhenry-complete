@@ -1,7 +1,13 @@
 ---
-title: Jeremiah
+title: "Jeremiah | Matthew Henry Complete Commentary"
+linkTitle: "Jeremiah"
 weight: 24
+description: >
+  Read commentary notes on Jeremiah. The Prophecies of the Old Testament, as the Epistles of the New, are placed rather according to their bulk than their seniority—the longest first, not the oldest.
+layout: single-section
 ---
+
+# Jeremiah
 
 ## Table of Contents
 

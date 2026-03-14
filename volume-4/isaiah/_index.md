@@ -1,7 +1,13 @@
 ---
-title: Isaiah
+title: "Isaiah | Matthew Henry Complete Commentary"
+linkTitle: "Isaiah"
 weight: 23
+description: >
+  Read commentary notes on Isaiah. Prophet is a title that sounds very great to those that understand it, though, in the eye of the world, many of those that were dignified with it appeared very mean.
+layout: single-section
 ---
+
+# Isaiah
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: Philemon
+title: "Philemon | Matthew Henry Complete Commentary"
+linkTitle: "Philemon"
 weight: 57
+description: >
+  Read commentary notes on Philemon. This epistle to Philemon is placed the last of those with the name of Paul to them, perhaps because the shortest, and of an argument peculiar and different from all the others; yet such as the Spirit of God, who indited it, saw would, in its kind, be very instructive and useful in the churches.
+layout: single-section
 ---
+
+# Philemon
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: Esther
+title: "Esther | Matthew Henry Complete Commentary"
+linkTitle: "Esther"
 weight: 17
+description: >
+  Read commentary notes on Esther. How the providence of God watched over the Jews that had returned out of captivity to their own land, and what great and kind things were done for them, we read in the two foregoing books; but there were many who staid behind, having not zeal enough for God's house, and the holy land and city, to carry them through the difficulties of a removal thither.
+layout: single-section
 ---
+
+# Esther
 
 ## Table of Contents
 

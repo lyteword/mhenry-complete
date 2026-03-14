@@ -1,7 +1,13 @@
 ---
-title: Philippians
+title: "Philippians | Matthew Henry Complete Commentary"
+linkTitle: "Philippians"
 weight: 50
+description: >
+  Read commentary notes on Philippians. Philippi was a chief city of the western part of Macedonia, *prote tes meridos tes Makedonias polis,* Ac 16:12.
+layout: single-section
 ---
+
+# Philippians
 
 ## Table of Contents
 

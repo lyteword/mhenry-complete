@@ -1,7 +1,13 @@
 ---
-title: Deuteronomy
+title: "Deuteronomy | Matthew Henry Complete Commentary"
+linkTitle: "Deuteronomy"
 weight: 5
+description: >
+  Read commentary notes on Deuteronomy. This book is a repetition of very much both of the history and of the laws contained in the three foregoing books, which repetition Moses delivered to Israel (both by word of mouth, that it might affect, and by writing, that it might abide) a little before his death.
+layout: single-section
 ---
+
+# Deuteronomy
 
 ## Table of Contents
 

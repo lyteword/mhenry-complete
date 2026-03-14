@@ -1,7 +1,13 @@
 ---
-title: Zechariah
+title: "Zechariah | Matthew Henry Complete Commentary"
+linkTitle: "Zechariah"
 weight: 38
+description: >
+  Read commentary notes on Zechariah. This prophet was colleague with the prophet Haggai, and a worker together with him in forwarding the building of the second temple (Ezr 5:1); for two are better than one.
+layout: single-section
 ---
+
+# Zechariah
 
 ## Table of Contents
 

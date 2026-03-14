@@ -1,7 +1,13 @@
 ---
-title: Proverbs
+title: "Proverbs | Matthew Henry Complete Commentary"
+linkTitle: "Proverbs"
 weight: 20
+description: >
+  Read commentary notes on Proverbs. We have now before us, I.
+layout: single-section
 ---
+
+# Proverbs
 
 ## Table of Contents
 

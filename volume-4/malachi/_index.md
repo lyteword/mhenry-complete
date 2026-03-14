@@ -1,7 +1,13 @@
 ---
-title: Malachi
+title: "Malachi | Matthew Henry Complete Commentary"
+linkTitle: "Malachi"
 weight: 39
+description: >
+  Read commentary notes on Malachi. God's prophets were his witnesses to his church, each in his day, for several ages, witnesses for him and his authority, witnesses against sin and sinners, attesting the true intents of God's providences in his dealings with his people then and the kind intentions of his grace concerning his church in the days of the Messiah, to whom all the prophets bore witness, for they all agreed in their testimony; and now we have only one witness more to call, and we have done with our evidence; and though he be the last, and in him prophecy ceased, yet the Spirit of prophecy shines as clearly, as strongly, as brightly in him as in any that went before, and his testimony challenges an equal regard.
+layout: single-section
 ---
+
+# Malachi
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: Lamentations
+title: "Lamentations | Matthew Henry Complete Commentary"
+linkTitle: "Lamentations"
 weight: 25
+description: >
+  Read commentary notes on Lamentations. Since what Solomon says, though contrary to the common opinion of the world, is certainly true, that *sorrow is better than laughter,* and *it is better to go to the house of mourning than to the house of feasting,* we should come to the reading and consideration of the melancholy chapters of this book, not only willingly, but with an expectation to edify ourselves by them; and, that we may do this, we must compose ourselves to a holy sadness and resolve to weep with the weeping prophet.
+layout: single-section
 ---
+
+# Lamentations
 
 ## Table of Contents
 

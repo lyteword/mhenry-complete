@@ -1,7 +1,13 @@
 ---
-title: 1 John
+title: "1 John | Matthew Henry Complete Commentary"
+linkTitle: "1 John"
 weight: 62
+description: >
+  Read commentary notes on 1 John. Though the continued tradition of the church attests that this epistle came from John the apostle, yet we may observe some other evidence that will confirm (or with some perhaps even outweigh) the certainty of that tradition.
+layout: single-section
 ---
+
+# 1 John
 
 ## Table of Contents
 

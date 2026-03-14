@@ -1,7 +1,13 @@
 ---
-title: Habakkuk
+title: "Habakkuk | Matthew Henry Complete Commentary"
+linkTitle: "Habakkuk"
 weight: 35
+description: >
+  Read commentary notes on Habakkuk. It is a very foolish fancy of some of the Jewish rabbin that this prophet was the son of the Shunamite woman that was at first miraculously given, and afterwards raised to life, by Elisha (2Ki 4:18-37), as they say also that the prophet Jonah was the son of the widow of Zarephath, which Elijah raised to life.
+layout: single-section
 ---
+
+# Habakkuk
 
 ## Table of Contents
 

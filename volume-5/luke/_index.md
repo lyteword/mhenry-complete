@@ -1,7 +1,13 @@
 ---
-title: Luke
+title: "Luke | Matthew Henry Complete Commentary"
+linkTitle: "Luke"
 weight: 42
+description: >
+  Read commentary notes on Luke. We are now entering into the labours of another evangelist; his name *Luke,* which some take to be a contraction of *Lucilius;* born at Antioch, so St.
+layout: single-section
 ---
+
+# Luke
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: Ephesians
+title: "Ephesians | Matthew Henry Complete Commentary"
+linkTitle: "Ephesians"
 weight: 49
+description: >
+  Read commentary notes on Ephesians. Some think that this epistle to the Ephesians was a circular letter sent to several churches, and that the copy directed to the Ephesians happened to be taken into the canon, and so it came to bear that particular inscription.
+layout: single-section
 ---
+
+# Ephesians
 
 ## Table of Contents
 

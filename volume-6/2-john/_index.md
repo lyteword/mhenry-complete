@@ -1,7 +1,13 @@
 ---
-title: 2 John
+title: "2 John | Matthew Henry Complete Commentary"
+linkTitle: "2 John"
 weight: 63
+description: >
+  Read commentary notes on 2 John. Here we find a canonical epistle inscribed, principally, not only to a single person, but to one also of the softer sex.
+layout: single-section
 ---
+
+# 2 John
 
 ## Table of Contents
 

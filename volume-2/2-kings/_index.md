@@ -1,7 +1,13 @@
 ---
-title: 2 Kings
+title: "2 Kings | Matthew Henry Complete Commentary"
+linkTitle: "2 Kings"
 weight: 12
+description: >
+  Read commentary notes on 2 Kings. This second book of the Kings (which the LXX., numbering from Samuel, called the *fourth*) is a continuation of the former book; and, some think, might better have been made to begin with the 1Ki 22:51-53, where the reign of Ahaziah begins.
+layout: single-section
 ---
+
+# 2 Kings
 
 ## Table of Contents
 

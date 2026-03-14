@@ -1,7 +1,13 @@
 ---
-title: Ezra
+title: "Ezra | Matthew Henry Complete Commentary"
+linkTitle: "Ezra"
 weight: 15
+description: >
+  Read commentary notes on Ezra. The Jewish church puts on quite another face in this book from what it had appeared with; its state much better, and more pleasant, than it was of late in Babylon, and yet far inferior to what it had been formerly.
+layout: single-section
 ---
+
+# Ezra
 
 ## Table of Contents
 

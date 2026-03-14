@@ -1,7 +1,13 @@
 ---
-title: Ruth
+title: "Ruth | Matthew Henry Complete Commentary"
+linkTitle: "Ruth"
 weight: 8
+description: >
+  Read commentary notes on Ruth. This short history of the domestic affairs of one particular family fitly follows the book of Judges (the events related here happening in the days of the judges), and fitly goes before the books of Samuel, because in the close it introduces David; yet the Jews, in their Bibles, separate it from both, and make it one of the five *Megilloth,* or *Volumes,* which they put together towards the latter end, in this order: *Solomon's Song, Ruth, Lamentations, Ecclesiastes,* and *Esther.* It is probable that Samuel was the penman of it.
+layout: single-section
 ---
+
+# Ruth
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: 2 Chronicles
+title: "2 Chronicles | Matthew Henry Complete Commentary"
+linkTitle: "2 Chronicles"
 weight: 14
+description: >
+  Read commentary notes on 2 Chronicles. This book begins with the reign of Solomon and the building of the temple, and continues the history of the kings of Judah thenceforward to the captivity and so concludes with the fall of that illustrious monarchy and the destruction of the temple.
+layout: single-section
 ---
+
+# 2 Chronicles
 
 ## Table of Contents
 

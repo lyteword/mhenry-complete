@@ -1,7 +1,13 @@
 ---
-title: Revelation
+title: "Revelation | Matthew Henry Complete Commentary"
+linkTitle: "Revelation"
 weight: 66
+description: >
+  Read commentary notes on Revelation. It ought to be no prejudice to the credit and authority of this book that it has been rejected by men of corrupt minds, such as Cerdon and Marcion, and doubted of by men of a better character; for this has been the lot of other parts of holy writ, and of the divine Author of the scripture himself.
+layout: single-section
 ---
+
+# Revelation
 
 ## Table of Contents
 

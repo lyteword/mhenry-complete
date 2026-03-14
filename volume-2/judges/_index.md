@@ -1,7 +1,13 @@
 ---
-title: Judges
+title: "Judges | Matthew Henry Complete Commentary"
+linkTitle: "Judges"
 weight: 7
+description: >
+  Read commentary notes on Judges. This is called the Hebrew *Shepher Shophtim,* the *Book of Judges,* which the Syriac and Arabic versions enlarge upon, and call it, *The Book of the Judges of the Children of Israel;* the judgments of that nation being peculiar, so were their judges, whose office differed vastly from that of the judges of other nations.
+layout: single-section
 ---
+
+# Judges
 
 ## Table of Contents
 

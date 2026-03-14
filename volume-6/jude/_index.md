@@ -1,7 +1,13 @@
 ---
-title: Jude
+title: "Jude | Matthew Henry Complete Commentary"
+linkTitle: "Jude"
 weight: 65
+description: >
+  Read commentary notes on Jude. This epistle is styled (as are some few others) *general* or *Catholic,* because it is not immediately directed to any particular person, family, or church, but to the whole society of Christians of that time, lately converted to the faith of Christ, whether from Judaism or paganism: and it is, and will be, of standing, lasting, and special use in and to the church as long as Christianity, that is, as time, shall last.
+layout: single-section
 ---
+
+# Jude
 
 ## Table of Contents
 

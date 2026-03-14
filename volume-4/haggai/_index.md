@@ -1,7 +1,13 @@
 ---
-title: Haggai
+title: "Haggai | Matthew Henry Complete Commentary"
+linkTitle: "Haggai"
 weight: 37
+description: >
+  Read commentary notes on Haggai. The captivity in Babylon gave a very remarkable turn to the affairs of the Jewish church both in history and prophecy.
+layout: single-section
 ---
+
+# Haggai
 
 ## Table of Contents
 

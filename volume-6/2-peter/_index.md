@@ -1,7 +1,13 @@
 ---
-title: 2 Peter
+title: "2 Peter | Matthew Henry Complete Commentary"
+linkTitle: "2 Peter"
 weight: 61
+description: >
+  Read commentary notes on 2 Peter. The penman of this epistle appears plainly to be the same who wrote the foregoing; and, whatever difference some learned men apprehend they discern in the style of this epistle from that of the former, this cannot be a sufficient argument to assert that it was written by Simon who succeeded the apostle James in the church at Jerusalem, inasmuch as he who wrote this epistle calls himself *Simon Peter, and an apostle* (2Pe 1:1), and says that he was *one of the three apostles that were present at Christ's transfiguration* (2Pe 1:18), and says expressly *that he had written a former epistle to them,* 2Pe 3:1.
+layout: single-section
 ---
+
+# 2 Peter
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: Psalms
+title: "Psalms | Matthew Henry Complete Commentary"
+linkTitle: "Psalms"
 weight: 19
+description: >
+  Read commentary notes on Psalms. We have now before us one of the choicest and most excellent parts of all the Old Testament; nay, so much is there in it of Christ and his gospel, as well as of God and his law, that it had been called *the abstract,* or *summary, of both Testaments.* The History of Israel, which we were long upon, let us to camps and council-boards, and there entertained and instructed us in the knowledge of God.
+layout: single-section
 ---
+
+# Psalms
 
 ## Table of Contents
 

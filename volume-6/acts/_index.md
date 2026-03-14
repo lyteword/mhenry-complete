@@ -1,7 +1,13 @@
 ---
-title: Acts
+title: "Acts | Matthew Henry Complete Commentary"
+linkTitle: "Acts"
 weight: 44
+description: >
+  Read commentary notes on Acts. We have with an abundant satisfaction seen the foundation of our holy religion laid in the history of our blessed Saviour, its great author, which was related and left upon record by four several inspired writers, who all agree in this sacred truth, and the incontestable proofs of it, that *Jesus is the Christ, the Son of the living God.* Upon this rock the Christian church is built.
+layout: single-section
 ---
+
+# Acts
 
 ## Table of Contents
 

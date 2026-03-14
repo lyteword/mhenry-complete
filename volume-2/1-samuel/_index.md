@@ -1,7 +1,13 @@
 ---
-title: 1 Samuel
+title: "1 Samuel | Matthew Henry Complete Commentary"
+linkTitle: "1 Samuel"
 weight: 9
+description: >
+  Read commentary notes on 1 Samuel. This book, and that which follows it, bear the name of *Samuel* in the title, not because he was the penman of them (except of so much of them as fell within his own time, to the twenty-fifth chapter of the first book, in which we have an account of his death), but because the first book begins with a large account of him, his birth and childhood, his life and government; and the rest of these two volumes that are denominated from him contains the history of the reigns of *Saul* and *David,* who were both anointed by him.
+layout: single-section
 ---
+
+# 1 Samuel
 
 ## Table of Contents
 

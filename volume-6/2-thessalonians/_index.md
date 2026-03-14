@@ -1,7 +1,13 @@
 ---
-title: 2 Thessalonians
+title: "2 Thessalonians | Matthew Henry Complete Commentary"
+linkTitle: "2 Thessalonians"
 weight: 53
+description: >
+  Read commentary notes on 2 Thessalonians. This Second Epistle was written soon after the former, and seems to have been designed to prevent a mistake, which might arise from some passages in the former epistle, concerning the second coming of Christ, as if it were near at hand.
+layout: single-section
 ---
+
+# 2 Thessalonians
 
 ## Table of Contents
 

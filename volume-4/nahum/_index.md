@@ -1,7 +1,13 @@
 ---
-title: Nahum
+title: "Nahum | Matthew Henry Complete Commentary"
+linkTitle: "Nahum"
 weight: 34
+description: >
+  Read commentary notes on Nahum. The name of this prophet signifies a *comforter;* for it was a charge given to all the prophets, *Comfort you, comfort you, my people:* and even this prophet, though wholly taken up in foretelling the destruction of Nineveh, which speaks terror to the Assyrians, is, even in that, comforter to the ten tribes of Israel, who, it is probable, were now lately carried captives into Assyria.
+layout: single-section
 ---
+
+# Nahum
 
 ## Table of Contents
 

@@ -1,7 +1,13 @@
 ---
-title: Micah
+title: "Micah | Matthew Henry Complete Commentary"
+linkTitle: "Micah"
 weight: 33
+description: >
+  Read commentary notes on Micah. We shall have some account of this prophet in the first verse of the book of his prophecy; and therefore shall here only observe that, being contemporary with the prophet Isaiah (only that he began to prophesy a little after him), there is a near resemblance between that prophet's prophecy and this; and there is a prediction of the advancement and establishment of the gospel-church, which both of them have, almost in the same words, that out of the mouth of two such witnesses so great a word might be established.
+layout: single-section
 ---
+
+# Micah
 
 ## Table of Contents
 

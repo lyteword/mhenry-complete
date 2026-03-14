@@ -1,7 +1,13 @@
 ---
-title: Exodus
+title: "Exodus | Matthew Henry Complete Commentary"
+linkTitle: "Exodus"
 weight: 2
+description: >
+  Read commentary notes on Exodus. Moses (the *servant of the Lord* in writing for him as well as in acting for him—with the pen of God as well as with the rod of God in his hand) having, in the first book of his history, preserved and transmitted the records of the church, while it existed in private families, comes, in this second book, to give us an account of its growth into a great nation; and, as the former furnishes us with the best economics, so this with the best politics.
+layout: single-section
 ---
+
+# Exodus
 
 ## Table of Contents
 

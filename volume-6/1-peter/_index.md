@@ -1,7 +1,13 @@
 ---
-title: 1 Peter
+title: "1 Peter | Matthew Henry Complete Commentary"
+linkTitle: "1 Peter"
 weight: 60
+description: >
+  Read commentary notes on 1 Peter. Two epistles we have enrolled in the sacred canon of the scripture written by Peter, who was a most eminent apostle of Jesus Christ, and whose character shines brightly as it is described in the four Gospels and in the Acts of the Apostles, but, as it is painted by the papists and legendary writers, it represents a person of extravagant pride and ambition.
+layout: single-section
 ---
+
+# 1 Peter
 
 ## Table of Contents
 

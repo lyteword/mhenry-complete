@@ -1,7 +1,13 @@
 ---
-title: Joel
+title: "Joel | Matthew Henry Complete Commentary"
+linkTitle: "Joel"
 weight: 29
+description: >
+  Read commentary notes on Joel. We are altogether uncertain concerning the time when this prophet prophesied; it is probable that it was about the same time Amos prophesied, not for the reason that the rabbin give, "Because Amos begins his prophecy with that wherewith Joel concludes his, *The Lord shall roar out of Zion,*" but for the reason Dr.
+layout: single-section
 ---
+
+# Joel
 
 ## Table of Contents
 
