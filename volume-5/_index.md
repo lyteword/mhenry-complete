@@ -1,14 +1,14 @@
 ---
-title: "Volume V - Matthew to John | Read Matthew Henry's Commentary Online"
-linkTitle: "Volume V"
+title: "Volume Five - Matthew to John | Read Matthew Henry's Commentary Online"
+linkTitle: "Volume Five"
 description: >
-  Matthew Henry’s Commentary on the Whole Bible, Volume 5 (Matthew to John) provides a detailed exposition of the four Gospels. It focuses on exploring the life, miracles, teachings, and sacrificial death of Jesus Christ and his role as Messiah. 
+  The Matthew Henry Commentary on the Whole Bible, Volume 5 (Matthew to John) provides a detailed exposition of the four Gospels. It focuses on exploring the life, miracles, teachings, and sacrificial death of Jesus Christ and his role as Messiah. 
 layout: single-section
 ---
 
-# Volume V - Matthew to John
+# Volume Five - Matthew to John
 
-Matthew Henry’s Commentary on the Whole Bible, Volume 5 (Matthew to John) provides a detailed exposition of the four Gospels. It focuses on exploring the life, miracles, teachings, and sacrificial death of Jesus Christ and his role as Messiah. 
+The Matthew Henry Commentary on the Whole Bible, Volume 5 (Matthew to John) provides a detailed exposition of the four Gospels. It focuses on exploring the life, miracles, teachings, and sacrificial death of Jesus Christ and his role as Messiah. 
 
 ## Table of Contents
 
@@ -16,7 +16,7 @@ Matthew Henry’s Commentary on the Whole Bible, Volume 5 (Matthew to John) prov
   {{< card link="./preface" title="Preface" icon="book-open" >}}
 {{< /cards >}}
 
-### Books of Volume V
+### Books of Volume Five
 
 {{< cards >}}
   {{< card link="./matthew" title="Matthew" icon="book-open" >}}

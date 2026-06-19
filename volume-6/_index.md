@@ -1,14 +1,14 @@
 ---
-title: "Volume VI - Acts to Revelation | Read Matthew Henry's Commentary Online"
-linkTitle: "Volume VI"
+title: "Volume Six - Acts to Revelation | Read Matthew Henry's Commentary Online"
+linkTitle: "Volume Six"
 description: >
-  Matthew Henry’s Commentary on the Whole Bible, Volume 6 (Acts to Revelation) offers detailed expositions of the New Testament's later books, focusing on church history, doctrine, and prophecy. It covers the expansion of the church in Acts, Paul's epistles, general epistles, and the Revelation of John.
+  The Matthew Henry Commentary on the Whole Bible, Volume 6 (Acts to Revelation) offers detailed expositions of the New Testament's later books, focusing on church history, doctrine, and prophecy. It covers the expansion of the church in Acts, Paul's epistles, general epistles, and the Revelation of John.
 layout: single-section
 ---
 
-# Volume VI - Acts to Revelation
+# Volume Six - Acts to Revelation
 
-Matthew Henry’s Commentary on the Whole Bible, Volume 6 (Acts to Revelation) offers detailed expositions of the New Testament's later books, focusing on church history, doctrine, and prophecy. It covers the expansion of the church in Acts, Paul's epistles, general epistles, and the Revelation of John.
+The Matthew Henry Commentary on the Whole Bible, Volume 6 (Acts to Revelation) offers detailed expositions of the New Testament's later books, focusing on church history, doctrine, and prophecy. It covers the expansion of the church in Acts, Paul's epistles, general epistles, and the Revelation of John.
 
 ## Table of Contents
 
@@ -16,7 +16,7 @@ Matthew Henry’s Commentary on the Whole Bible, Volume 6 (Acts to Revelation) o
   {{< card link="./preface" title="Preface" icon="book-open" >}}
 {{< /cards >}}
 
-### Books of Volume VI
+### Books of Volume Six
 
 {{< cards >}}
   {{< card link="./acts" title="Acts" icon="book-open" >}}
