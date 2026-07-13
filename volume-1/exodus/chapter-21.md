@@ -2,7 +2,7 @@
 title: "Exodus 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
 description: >
-  The laws recorded in this chapter relate to the fifth and sixth commandments; and though they are not accommodated to our constitution, especially in point of servitude, nor are th...
+  Explore the profound legal judgments of Exodus Chapter 21, detailing ancient laws concerning master-servant relations, the prohibition of violence, and the principles of justice and retribution. This commentary offers deep insights into biblical statutes that provide timeless guidance on moral conduct, human relations, and the establishment of natural justice. Discover how these foundational laws shape our understanding of ethical living and accountability.
 weight: 21
 ---
 
