@@ -2,7 +2,7 @@
 title: "Genesis 36 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "36"
 description: >
-  In this chapter we have an account of the posterity of Esau, who, from him, were called Edomites, that Esau who sold his birthright, and lost his blessing, and was not loved of God...
+  Uncover the compelling history of the Edomites in Genesis Chapter 36, exploring the lineage of Esau, the man who sold his birthright, and the contrasting paths of worldly power versus divine promise. This detailed commentary provides profound theological insight into the nature of lineage, providence, and the enduring legacy of God's covenant people. Dive into this deep dive to understand the historical context of the Edomites and the significance of the promises made to Abraham.
 weight: 36
 ---
 
