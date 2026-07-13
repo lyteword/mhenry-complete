@@ -2,7 +2,7 @@
 title: "Genesis 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
 description: >
-  Here is, I. Abraham a mourner for the death of Sarah, Ge 23:1,2. II. Abraham a purchaser of a burying-place for Sarah. 1. The purchase humbly proposed by Abraham, Ge 23:3,4. 2. Fai...
+  Explore the profound story of Genesis Chapter 23 as presented in this comprehensive Bible commentary. Discover the poignant narrative of Abraham mourning the death of Sarah and his humble purchase of the Cave of Machpelah. Uncover timeless lessons on providence, mourning, and the true value of earthly possessions.
 weight: 23
 ---
 
