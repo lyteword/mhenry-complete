@@ -2,7 +2,7 @@
 title: "Numbers 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
 description: >
-  The armies of Israel now begin to emerge out of the wilderness, and to come into a land inhabited, to enter upon action, and take possession of the frontiers of the land of promise...
+  Discover the dramatic narrative of Numbers Chapter 21 through this commentary, detailing Israel's journey from the wilderness, divine deliverance via the brazen serpent, and the triumphant conquests of Sihon and Og. Explore how this chapter powerfully illustrates God's unwavering providence, miraculous mercy, and the securing of the promised land through faith and victory. This deep dive into Numbers 21 offers profound insights into God's sustaining power throughout the Israelites' journey.
 weight: 21
 ---
 
