@@ -2,7 +2,7 @@
 title: "Leviticus 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
 description: >
-  Some ceremonial precepts there are in this chapter, but most of them are moral. One would wonder that when some of the lighter matters of the law are greatly enlarged upon (witness...
+  Discover the profound moral and ceremonial laws of Leviticus 19, offering a timeless blueprint for a holy life. This chapter emphasizes the importance of integrity, justice in all dealings, profound neighborly love, and compassionate treatment of all people, including strangers. Learn how to live with holiness by honoring God, respecting family, and practicing selfless charity.
 weight: 19
 ---
 
