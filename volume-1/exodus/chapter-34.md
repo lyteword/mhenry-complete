@@ -2,7 +2,7 @@
 title: "Exodus 34 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "34"
 description: >
-  God having in the foregoing chapter intimated to Moses his reconciliation to Israel, here gives proofs of it, proceeding to settle his covenant and communion with them. Four instan...
+  Explore Exodus 34 to deeply understand God's reconciliation with Israel and the renewal of the covenant. Discover profound theological insights into God's character—His boundless mercy, grace, and faithfulness—and Moses's powerful experience on Mount Sinai. This commentary offers a compelling look at the law, idolatry, and the promise of a new covenant in Christ.
 weight: 34
 ---
 
