@@ -2,7 +2,7 @@
 title: "Leviticus 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
 description: >
-  The law of this chapter concerns the lands and estates of the Israelites in Canaan, the occupying and transferring of which were to be under the divine direction, as well as the ma...
+  Explore Leviticus 25 to discover the profound biblical laws governing the Israelites' land, including the sacred Sabbatical Year of rest and the liberating Jubilee Year. This chapter highlights the concept of divine stewardship, the importance of debt release, and the ultimate promise of redemption from bondage through Christ. Learn how these ancient laws speak to modern themes of freedom and spiritual restoration.
 weight: 25
 ---
 
