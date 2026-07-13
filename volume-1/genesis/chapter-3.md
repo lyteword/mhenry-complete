@@ -2,7 +2,7 @@
 title: "Genesis 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  The story of this chapter is perhaps as sad a story (all things considered) as any we have in all the Bible. In the foregoing chapters we have had the pleasant view of the holiness...
+  Dive into the foundational narrative of the Fall of Man in Genesis 3. This detailed commentary analyzes the subtle tactics of the serpent, the nature of temptation, and the devastating consequences of human disobedience. Essential reading for understanding the origins of sin, human nature, and the relationship between humanity and God.
 weight: 3
 ---
 
