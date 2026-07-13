@@ -2,7 +2,7 @@
 title: "Genesis 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
 description: >
-  This chapter shows more particularly what was said in general (Ge 9:19), concerning the three sons of Noah, that "of them was the whole earth overspread;" and the fruit of that ble...
+  Explore the profound genealogy of Noah's sons in Genesis 10, tracing the origins of nations through the lineages of Japheth, Ham, and Shem. This biblical commentary delves into the story of Nimrod, illustrating the destructive nature of pride and the division of the world, revealing the divine blessing and curse inherent in the ancestry of these great civilizations.
 weight: 10
 ---
 
