@@ -2,7 +2,7 @@
 title: "Deuteronomy 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
 description: >
-  The laws of this chapter provide, I. For the preserving of the purity and honour of the families of Israel, by excluding such as would be a disgrace to them, De 23:1-8. II. For the...
+  Explore the profound laws of Deuteronomy Chapter 23, detailing ancient Israel's comprehensive guidelines on purity, social conduct, and economic fairness. This chapter covers everything from laws of separation and maintaining camp sanctity to protections for fugitives and regulations on usury, offering deep insight into biblical justice and community order.
 weight: 23
 ---
 
