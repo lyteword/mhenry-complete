@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Discover the profound dietary laws of Leviticus 11, exploring the ancient distinction between clean and unclean animals, fish, and creeping things. This commentary delves into the theological significance of these biblical food restrictions, revealing how the law aimed to teach Israel holiness and distinguish them from the nations. Learn the transition from these ceremonial rules to the New Testament teaching that every creature is good, offering deep insight into biblical dietary principles.

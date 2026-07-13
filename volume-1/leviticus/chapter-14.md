@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Explore Leviticus Chapter 14 to understand the detailed biblical law concerning leprosy, which serves as a powerful typology for Christ's atonement. This chapter deeply explores the connection between physical cleansing and spiritual purification through the imagery of blood and sacrifice, offering profound insights into repentance and God's mercy. Learn how this ancient text illuminates the path to true cleansing and restoration in Christian life.

@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore Leviticus Chapter 1 to deeply understand the ancient laws of sacrifice, tracing the profound typology of God's redemptive plan. This commentary reveals how the burnt offering serves as a foreshadowing of Christ's ultimate atonement and the spiritual sacrifices believers offer today. Discover the deep theological meaning behind these foundational biblical texts and their connection to Christian faith.

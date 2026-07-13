@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Dive deep into Leviticus Chapter 7 to explore the detailed laws governing the trespass, burnt, meat, and peace offerings. Discover the intricate rules of the priesthood, sacrificial rites, and the profound theological meaning behind these ancient rituals. Understand how these laws connect to the ultimate sacrifice of Christ and the necessity of true devotion.

@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Explore Leviticus Chapter 5 to understand the crucial distinction between the trespass-offering and the sin-offering. This chapter details the biblical laws for confessing sins, making atonement, and dealing with sacrilege, offering deep insights into repentance and forgiveness. Discover how ancient Israel navigated sin and transgression through prescribed sacrifices and acts of restitution.

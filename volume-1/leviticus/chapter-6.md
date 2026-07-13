@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Explore the profound sacrificial laws in Leviticus Chapter 6, detailing the trespass, burnt, meat, and sin offerings. Discover the deep theological lessons on atonement, repentance, and how these ancient rituals foreshadow the ultimate sacrifice of Christ. Learn how these biblical laws teach us about holiness and true devotion in Christian theology.

@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Explore the profound laws of Leviticus Chapter 21, which establish the strict standards for the priesthood and the dignity of their office. This chapter details the required conduct, rules for marriage, and the specific restrictions placed upon the high priest to maintain holiness and the sanctity of worship. Discover the ancient guidelines on priestly conduct, personal purity, and the significance of blemishes in preserving the sacred nature of the ministry.

@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Explore Leviticus Chapter 22 to discover the profound laws governing priests and sacrificial offerings, focusing on maintaining the honor of the sanctuary and divine purity. This commentary delves into strict regulations concerning priestly conduct, the requirements for perfect sacrifices, and the critical importance of avoiding the profanation of God's holy name. Understand the theological depth of these commandments that reveal the ultimate pattern of Christ's perfect sacrifice.

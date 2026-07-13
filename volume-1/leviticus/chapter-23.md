@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
   Discover the profound meaning behind the holy feasts of Leviticus 23, including the Sabbath, Passover, Pentecost, and the Feast of Tabernacles. This chapter reveals how God sanctifies time through His appointed celebrations, offering deep spiritual insights on remembrance, joy, and our relationship with Him. Learn the biblical significance of these holy times to deepen your faith and worship.

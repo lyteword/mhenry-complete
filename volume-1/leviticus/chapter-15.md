@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Discover the profound lessons in Leviticus Chapter 15 as we explore the ancient laws of ceremonial uncleanness and purification. This chapter explores how physical defilement was used to illustrate the deeper spiritual truth: that true cleansing comes not from ritual, but from repentance and the atonement found in the blood of Christ. Learn how to separate yourself from sin and embrace the path to genuine holiness.

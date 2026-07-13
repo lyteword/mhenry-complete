@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Dive deep into Leviticus Chapter 9 with this expert commentary, exploring the solemn consecration of Aaron and his sons as priests and the prescribed rituals of the first offerings. Discover the profound theological meaning behind sacrifice, atonement, and the magnificent manifestation of God's glory to His people. This detailed study illuminates the sacred duty of the priesthood and how spiritual worship reconciles us with God.

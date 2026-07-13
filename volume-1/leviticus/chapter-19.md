@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
   Discover the profound moral and ceremonial laws of Leviticus 19, offering a timeless blueprint for a holy life. This chapter emphasizes the importance of integrity, justice in all dealings, profound neighborly love, and compassionate treatment of all people, including strangers. Learn how to live with holiness by honoring God, respecting family, and practicing selfless charity.

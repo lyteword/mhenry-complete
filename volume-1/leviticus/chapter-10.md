@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Dive into Leviticus Chapter 10 to explore the dramatic story of Nadab and Abihu's fatal sin and the terrifying divine judgment that followed. This in-depth commentary examines the sanctity of the priesthood, the gravity of obeying God's commands, and the essential cautions for ministers, offering profound insights into holiness and divine wrath.

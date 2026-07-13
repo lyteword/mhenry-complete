@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Dive into Leviticus 8 to explore the solemn consecration of Aaron and his sons, detailing the sacred rites of anointing and sacrifice that established the priestly office. This passage offers deep theological insight into the nature of ministry and beautifully foreshadows the perpetual, unchangeable priesthood of Christ. Discover the divine foundation of service and eternal dedication.

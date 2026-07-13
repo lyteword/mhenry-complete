@@ -1,5 +1,5 @@
 ---
-title: "Leviticus 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Uncover the profound legal and spiritual wisdom of Leviticus 27. This commentary meticulously breaks down the rules for singular vows, sanctifying property, and tithes, offering deep insights into ancient Israel's dedication rituals. Learn how these ancient laws illuminate the path toward true free-will offerings and the Gospel message.
