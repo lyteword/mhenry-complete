@@ -2,7 +2,7 @@
 title: "Genesis 46 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "46"
 description: >
-  Jacob is here removing to Egypt in his old age, forced thither by a famine, and invited thither by a son. Here, I. God sends him thither, Ge 46:1-4. II. All his family goes with hi...
+  Discover the profound biblical narrative of Genesis 46, exploring Jacob's pivotal journey and family migration to Egypt. This detailed commentary delves into the themes of divine providence, the covenant promises, and the emotional meeting between Jacob and Joseph, revealing how God directs the path of the patriarchs. Dive deep into this essential study to understand the power of faith and the journey of the Israelite people.
 weight: 46
 ---
 
