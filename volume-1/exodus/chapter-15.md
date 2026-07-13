@@ -1,5 +1,5 @@
 ---
-title: "Exodus 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Discover the triumphant song of the Israelites in Exodus 15, celebrating their miraculous deliverance from Egypt and the mighty power of the LORD. This chapter explores themes of divine strength, God's unfailing mercy through the bitter waters of Marah, and the promise of eternal reign. Read the complete commentary to understand how faith transforms trials into everlasting praise.

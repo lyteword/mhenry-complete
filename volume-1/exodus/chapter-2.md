@@ -1,5 +1,5 @@
 ---
-title: "Exodus 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the profound story of Moses in Exodus Chapter 2, exploring the perils of his birth, his miraculous deliverance from Pharaoh's daughter, and his destined role as a prophet and mediator. This deep biblical commentary highlights the power of divine providence and how God guides His chosen people through immense hardship to fulfill His ultimate plan of salvation. Dive into this essential reading to understand Moses's life as a foreshadowing of Christ's journey.

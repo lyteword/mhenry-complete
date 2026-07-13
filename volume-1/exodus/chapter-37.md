@@ -1,5 +1,5 @@
 ---
-title: "Exodus 37 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 37 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "37"
 description: >
   Discover the profound theological symbolism embedded in Exodus 37 as this commentary meticulously details the construction of the Tabernacle's furniture—including the Ark, the golden altar, and the candlestick. Explore how these sacred objects represent God's glory, the sincerity of a holy heart, and the profound communion offered through the New Covenant. Dive deep into biblical insights on divine provision and the spiritual riches of God's presence.

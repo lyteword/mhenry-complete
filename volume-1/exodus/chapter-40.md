@@ -1,5 +1,5 @@
 ---
-title: "Exodus 40 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 40 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "40"
 description: >
   Explore Exodus Chapter 40 to discover the divine blueprint for the Tabernacle—the sacred dwelling place of God—detailing the precise orders for its construction and consecration. This commentary delves into the theological significance of the Shechinah (God's glory) filling the sanctuary, highlighting the eternal priesthood and foreshadowing Christ as the true dwelling place of God.

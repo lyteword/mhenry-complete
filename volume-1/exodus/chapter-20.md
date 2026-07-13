@@ -1,5 +1,5 @@
 ---
-title: "Exodus 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
   Explore the profound meaning of the Ten Commandments in Exodus 20. This commentary delves into the divine law, the terror of God's majesty, and the essential duties concerning worship, including the prohibition of idolatry and the sanctity of the Sabbath. Discover the theological depth of God's law as revealed through Moses and its enduring relevance for Christian living.

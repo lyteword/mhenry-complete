@@ -1,5 +1,5 @@
 ---
-title: "Exodus 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Witness the dramatic climax in Exodus Chapter 7 as Moses confronts Pharaoh, leading to the first of the Ten Plagues: the Nile River turning into blood. This powerful biblical commentary explores the contest between divine authority and human pride, highlighting God's sovereign judgment and His method of humbling the proud. Discover the profound theological lessons on divine sovereignty and the terrifying power of God's wrath as He acts to deliver His people.

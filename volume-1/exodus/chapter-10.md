@@ -1,5 +1,5 @@
 ---
-title: "Exodus 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Uncover the profound theological depth of Exodus 10 with this detailed commentary on the plagues of Egypt, focusing on the devastating forces of locusts and darkness. Explore God's overwhelming sovereignty, Pharaoh's hardened heart, and the powerful contrast between divine light and spiritual darkness. Gain deep insight into biblical prophecy and divine providence through this essential study.

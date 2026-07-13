@@ -1,5 +1,5 @@
 ---
-title: "Exodus 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Uncover the profound theological foundation of the Exodus with this detailed commentary on Exodus Chapter 6. Explore God's powerful promise of deliverance from Egyptian bondage, as He assures Moses and Aaron of His sovereign power to bring the Israelites out of their captivity. This chapter delves into the covenant, the challenges of leadership, and the significant genealogies of the tribes, providing deep insight into the divine plan for Israel's redemption. Read now to understand the core promises and the spiritual significance of God's intervention!

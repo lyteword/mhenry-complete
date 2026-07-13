@@ -1,5 +1,5 @@
 ---
-title: "Exodus 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Discover the profound lessons from Exodus 16 as we explore the miracle of manna, God's divine provision, and the vital spiritual teachings on contentment and dependence on Providence. This commentary delves into the Israelites' murmurs, the principles of diligent gathering, and how the manna serves as a powerful metaphor for Christ, the true Bread of Life. Learn how to cultivate patience and trust in God's unending mercy for your daily needs.

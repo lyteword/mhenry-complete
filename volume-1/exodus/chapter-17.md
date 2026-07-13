@@ -1,5 +1,5 @@
 ---
-title: "Exodus 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Discover the profound spiritual lessons of Exodus 17, exploring the Israelites' thirst and their temptation of God, and how Moses's powerful intercession led to the miraculous water from a rock. This chapter serves as a compelling guide on enduring trials by trusting in God's provision and achieving victory through unwavering faith and prayer. Learn how to rely on God's grace when facing spiritual warfare and doubt.

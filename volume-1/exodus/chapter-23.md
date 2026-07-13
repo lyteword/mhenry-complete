@@ -1,5 +1,5 @@
 ---
-title: "Exodus 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
   Discover the profound wisdom of Exodus 23, exploring the comprehensive divine laws, judicial cautions, and compassionate commands for Israel. This chapter illuminates God's gracious promises of guidance through the wilderness, prosperity, and the eventual possession of the promised land. Explore the principles of neighborly kindness, sacred feasts, and the powerful promises of divine protection and victory against all adversaries.

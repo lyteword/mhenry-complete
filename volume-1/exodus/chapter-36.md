@@ -1,5 +1,5 @@
 ---
-title: "Exodus 36 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 36 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "36"
 description: >
   Explore Exodus 36 to see the foundational work of the tabernacle, detailing the intricate construction of curtains, boards, and the profound symbolism of the church. Discover how divine wisdom and unity build a spiritual house, offering powerful biblical parallels for modern believers seeking holiness and fellowship.

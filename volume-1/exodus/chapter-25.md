@@ -1,5 +1,5 @@
 ---
-title: "Exodus 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
   Discover the profound biblical blueprint for the Tabernacle in Exodus 25, exploring the divine instructions for erecting God's sanctuary, the symbolic Ark of the Covenant, and the golden candlestick. This chapter unveils the deep meaning behind the offerings, the table of showbread, and the light of God's law, offering readers a powerful insight into covenant, divine provision, and the enduring presence of God. Dive into this essential commentary to understand how God's design shapes our spiritual journey.

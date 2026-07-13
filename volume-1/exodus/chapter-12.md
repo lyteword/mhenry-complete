@@ -1,5 +1,5 @@
 ---
-title: "Exodus 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Explore Exodus 12 to uncover the profound biblical ordinance of the Passover, detailing the ritual of the lamb sacrifice, the sprinkling of blood, and the miraculous deliverance of the Israelites from Egypt. Discover the deep theological significance of this event, connecting the Passover lamb to Christ as our Passover, and understanding how this ancient deliverance serves as a powerful reminder of God's eternal providence. This chapter illuminates the enduring meaning of this foundational event in Christian faith.

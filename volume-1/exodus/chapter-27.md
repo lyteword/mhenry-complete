@@ -1,5 +1,5 @@
 ---
-title: "Exodus 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Explore the profound symbolism of Exodus 27: The complete biblical commentary delves into the construction of the brazen altar, a powerful typology of Christ's atonement, and the layout of the tabernacle court, which represents the Church and the righteousness of saints. Discover how these ancient directions illuminate the spiritual service required for believers today, linking the sacrificial altar to Christ's sacrifice and the lamp to the eternal light of the Word. This deep dive offers unparalleled insight into biblical architecture and theological meaning.

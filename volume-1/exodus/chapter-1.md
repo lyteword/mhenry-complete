@@ -1,5 +1,5 @@
 ---
-title: "Exodus 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore the profound themes of Exodus 1 through this in-depth biblical commentary. Discover how God's kindness led to the multiplication of Israel despite Egyptian oppression and slavery. This powerful study explores divine providence, the power of faith during persecution, and the enduring promises of God to His people.

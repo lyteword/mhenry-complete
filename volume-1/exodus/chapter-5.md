@@ -1,5 +1,5 @@
 ---
-title: "Exodus 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Uncover the intense confrontation in Exodus Chapter 5 as Moses and Aaron plead with Pharaoh for the Israelites' freedom to worship in the wilderness. This commentary delves into the profound conflict between God's call and Pharaoh's defiant pride, exploring the harsh realities of bondage and the deep theological tension of divine providence amidst human resistance. Read the complete Bible commentary to understand the struggle for deliverance.

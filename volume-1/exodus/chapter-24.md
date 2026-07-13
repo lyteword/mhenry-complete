@@ -1,5 +1,5 @@
 ---
-title: "Exodus 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
   Discover the profound covenant established in Exodus 24, where Moses mediates between God and Israel to receive and promulgate the divine laws. Explore the solemn exchange of the covenant through sacrifice and the breathtaking manifestation of God's glory on Mount Sinai. This commentary illuminates the deep meaning of obedience, grace, and the enduring nature of God's promises.

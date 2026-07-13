@@ -1,5 +1,5 @@
 ---
-title: "Exodus 30 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 30 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "30"
 description: >
   Unlock the profound spiritual depth of Exodus 30 with this commentary, exploring the sacred instructions for the Tabernacle. Dive into the symbolism of the altar of incense, the holy anointing oil, and the ransom money to understand the core themes of holiness, atonement, and Christ's mediation. Discover how these ancient rituals reveal eternal truths about worship, purity, and our relationship with God.

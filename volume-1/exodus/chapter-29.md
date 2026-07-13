@@ -1,5 +1,5 @@
 ---
-title: "Exodus 29 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 29 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "29"
 description: >
   Dive into Exodus 29 to explore the solemn ceremonies for the consecration of the priests and the sanctification of the altar. Discover the profound theological meaning behind the daily sacrifices, understanding how these ancient rites foreshadow the ultimate High Priest and the enduring promise of God's dwelling among His people.

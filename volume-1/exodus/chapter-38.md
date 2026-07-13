@@ -1,5 +1,5 @@
 ---
-title: "Exodus 38 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 38 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "38"
 description: >
   Explore the detailed construction of the Tabernacle in Exodus 38, examining the symbolic use of gold, silver, and brass in the brazen altar and the cleansing laver. Discover how this powerful biblical account reveals profound theological truths about spiritual preparation and the gradual approach to God's presence. This deep dive into Exodus 38 uncovers the intricate details of the sacred furnishings that foreshadow the grace found in Christ.

@@ -1,5 +1,5 @@
 ---
-title: "Exodus 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
   Uncover the intricate details of Exodus 26, the complete Bible commentary on the construction of the Tabernacle. This chapter reveals the divine blueprint for the sacred structure, detailing the rich materials, intricate curtains, and supporting woodwork that showcased God's meticulous design. Explore the historical and theological significance of this sacred furniture, understanding how the physical Tabernacle foreshadowed the unity and glory of the spiritual Church.
