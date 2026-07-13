@@ -2,7 +2,7 @@
 title: "Genesis 47 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "47"
 description: >
-  In this chapter we have instances, I. Of Joseph's kindness and affection to his relations, presenting his brethren first and then his father to Pharaoh (Ge 47:1-10), settling them ...
+  Discover the profound story of Genesis Chapter 47, exploring Joseph's unparalleled kindness and justice as he navigates a severe famine in Egypt. This chapter highlights God's providence, showing how Joseph provided for his family and managed a complex arrangement between Pharaoh and his people. Dive into this detailed biblical commentary to understand themes of respect, divine provision, and enduring hope.
 weight: 47
 ---
 
