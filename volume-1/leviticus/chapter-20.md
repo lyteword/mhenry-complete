@@ -2,7 +2,7 @@
 title: "Leviticus 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
 description: >
-  The laws which before were made are in this chapter repeated and penalties annexed to them, that those who would not be deterred from sin by the fear of God might be deterred from ...
+  Discover the stringent moral laws of Leviticus Chapter 20, detailing capital crimes such as idolatry, incest, and sexual immorality. This chapter powerfully emphasizes the necessity of holiness and obedience to maintain God's covenant standards. Explore the severe consequences prescribed by divine law for transgressions against purity and sanctity.
 weight: 20
 ---
 
