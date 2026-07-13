@@ -2,7 +2,7 @@
 title: "Genesis 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
 description: >
-  The old distinction between the sons of God and the sons of men (professors and profane) survived the flood, and now appeared again, when men began to multiply: according to this d...
+  Discover the powerful story of Genesis 11: The Babel narrative reveals how human pride and the desire for universal power led to the confusion of languages and the ambitious attempt to build a tower to reach heaven. This chapter powerfully illustrates God's sovereign judgment, which scattered humanity across the earth to halt their defiance and redirect their path. Explore the divine genealogy of Abraham and the lineage leading to Christ, revealing the ultimate plan of God amidst human folly.
 weight: 11
 ---
 
