@@ -2,7 +2,7 @@
 title: "Numbers 35 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "35"
 description: >
-  Orders having been given before for the dividing of the land of Canaan among the lay-tribes (as I may call them), care is here taken for a competent provision for the clergy, the t...
+  Explore Numbers 35 to understand the ancient orders for dividing Canaan, focusing on the provision for the Levites and the crucial system of Cities of Refuge. Discover how this Old Testament law of justice foreshadows the ultimate refuge found in Christ, offering deep theological insights into divine protection and salvation.
 weight: 35
 ---
 
