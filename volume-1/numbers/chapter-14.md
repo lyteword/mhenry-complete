@@ -2,7 +2,7 @@
 title: "Numbers 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
 description: >
-  This chapter gives us an account of that fatal quarrel between God and Israel upon which, for their murmuring and unbelief, he swore in his wrath that they should not enter into hi...
+  Explore the profound theological lessons of Numbers 14 through this detailed commentary, examining the fatal quarrel between Israel's murmuring and God's wrath. This in-depth analysis highlights the dangers of unbelief, the power of humble intercession by Moses, and the ultimate divine judgment, emphasizing the critical importance of unwavering faith in God's promises. Discover how Caleb and Joshua's steadfast spirit secured a path to the promised land, offering powerful insights for modern readers seeking biblical wisdom on trust and perseverance.
 weight: 14
 ---
 
