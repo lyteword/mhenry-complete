@@ -2,7 +2,7 @@
 title: "Genesis 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
 description: >
-  The pedigree and family of Abram we had an account of in the foregoing chapter; here the Holy Ghost enters upon his story, and henceforward Abram and his seed are almost the only s...
+  Explore Genesis 12 to discover the profound call of Abram from his homeland to the promised land of Canaan. This chapter powerfully illustrates the importance of obedience, unwavering faith, and the immense promises God makes to those who follow His divine direction. Learn how Abram's journey, trials, and deliverance highlight the eternal covenant and the blessings awaiting believers.
 weight: 12
 ---
 
