@@ -2,7 +2,7 @@
 title: "Leviticus 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
 description: >
-  The story of this chapter is as sad an interruption to the institutions of the levitical law as that of the golden calf was to the account of the erecting of the tabernacle. Here i...
+  Dive into Leviticus Chapter 10 to explore the dramatic story of Nadab and Abihu's fatal sin and the terrifying divine judgment that followed. This in-depth commentary examines the sanctity of the priesthood, the gravity of obeying God's commands, and the essential cautions for ministers, offering profound insights into holiness and divine wrath.
 weight: 10
 ---
 
