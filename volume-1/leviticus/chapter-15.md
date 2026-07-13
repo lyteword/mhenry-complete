@@ -2,7 +2,7 @@
 title: "Leviticus 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
 description: >
-  In this chapter we have laws concerning other ceremonial uncleannesses contracted either by bodily disease like that of the leper, or some natural incidents, and this either, I. In...
+  Discover the profound lessons in Leviticus Chapter 15 as we explore the ancient laws of ceremonial uncleanness and purification. This chapter explores how physical defilement was used to illustrate the deeper spiritual truth: that true cleansing comes not from ritual, but from repentance and the atonement found in the blood of Christ. Learn how to separate yourself from sin and embrace the path to genuine holiness.
 weight: 15
 ---
 
