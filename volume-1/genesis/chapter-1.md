@@ -2,7 +2,7 @@
 title: "Genesis 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
 description: >
-  The foundation of all religion being laid in our relation to God as our Creator, it was fit that the book of divine revelations which was intended to be the guide, support, and rul...
+  Discover the profound truth of Genesis 1 as we explore the creation of the world by God the Creator. This biblical commentary details the ordered process—from formless void to the creation of light, firmament, earth, and humanity in His image. Gain a deep understanding of divine wisdom, divine order, and human dominion.
 weight: 1
 ---
 
