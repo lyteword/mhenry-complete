@@ -2,7 +2,7 @@
 title: "Numbers 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
 description: >
-  At this chapter begins the history of the fortieth year (which was the last year) of the Israelites' wandering in the wilderness. And since the beginning of their second year, when...
+  Explore Numbers Chapter 20, a profound study on the fortieth year of the wilderness journey, detailing the dramatic crisis when Israel lacked water and their resulting murmuring against Moses and Aaron. This chapter powerfully illustrates God's immense power and mercy, as He provides water from the rock, while also examining the solemn transition of the priesthood through the death of Aaron.
 weight: 20
 ---
 
