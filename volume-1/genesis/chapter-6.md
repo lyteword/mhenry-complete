@@ -2,7 +2,7 @@
 title: "Genesis 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
 description: >
-  The most remarkable thing we have upon record concerning the old world is the destruction of it by the universal deluge, the account of which commences in this chapter, wherein we ...
+  Discover the profound message of Genesis 6, exploring the devastating wickedness of the old world and the universal deluge decreed by God. This powerful biblical commentary delves into the reasons for the flood, highlighting the corruption of humanity and the crucial role of Noah as a just man who found grace through faithful obedience. Learn how Noah's covenant and unwavering faith served as a profound foreshadowing of Christ's salvific role in preserving humanity.
 weight: 6
 ---
 
