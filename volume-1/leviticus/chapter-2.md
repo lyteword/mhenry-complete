@@ -2,7 +2,7 @@
 title: "Leviticus 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
 description: >
-  In this chapter we have the law concerning the meat-offering. I. The matter of it; whether of raw flour with oil and incense (Le 2:1), or baked in the oven (Le 2:4), or upon a plat...
+  Explore Leviticus Chapter 2 to understand the detailed laws governing the ancient Israelite meat-offering, including specific requirements for flour, oil, and frankincense. Discover the profound spiritual significance behind these sacrificial rules, such as the role of salt and the prohibition of leaven, connecting ancient practice to modern devotion.
 weight: 2
 ---
 
