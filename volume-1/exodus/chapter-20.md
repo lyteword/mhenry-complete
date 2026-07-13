@@ -2,7 +2,7 @@
 title: "Exodus 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
 description: >
-  All things being prepared for the solemn promulgation of the divine law, we have, in this chapter, I. The ten commandments, as God himself spoke them upon Mount Sinai (Ex 20:1-17),...
+  Explore the profound meaning of the Ten Commandments in Exodus 20. This commentary delves into the divine law, the terror of God's majesty, and the essential duties concerning worship, including the prohibition of idolatry and the sanctity of the Sabbath. Discover the theological depth of God's law as revealed through Moses and its enduring relevance for Christian living.
 weight: 20
 ---
 
