@@ -2,7 +2,7 @@
 title: "Deuteronomy 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
 description: >
-  With this chapter Moses concludes the particular statutes which he thought fit to give Israel in charge at his parting with them; what follows is by way of sanction and ratificatio...
+  Explore Deuteronomy 26 to uncover profound lessons on stewardship, gratitude, and covenant faithfulness. This chapter details the sacred practices of offering first-fruits and the proper administration of tithes, emphasizing humility, community care for the poor, and recognizing God as the ultimate provider. Discover how Israel was called to live as a holy people by obeying God's commands and embracing thankfulness for His blessings.
 weight: 26
 ---
 
