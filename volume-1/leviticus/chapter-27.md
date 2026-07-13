@@ -2,7 +2,7 @@
 title: "Leviticus 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
 description: >
-  The Le 26:46 seemed to close up the statute-book; yet this chapter is added as an appendix. Having given laws concerning instituted services, here he directs concerning vows and vo...
+  Uncover the profound legal and spiritual wisdom of Leviticus 27. This commentary meticulously breaks down the rules for singular vows, sanctifying property, and tithes, offering deep insights into ancient Israel's dedication rituals. Learn how these ancient laws illuminate the path toward true free-will offerings and the Gospel message.
 weight: 27
 ---
 
