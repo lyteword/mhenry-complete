@@ -2,7 +2,7 @@
 title: "Leviticus 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
 description: >
-  In this chapter we have, I. A repetition of the laws concerning the lamps and the show-bread, Le 24:1-9. II. A violation of the law against blasphemy, with the imprisonment, trial,...
+  Explore Leviticus Chapter 24, which details the ancient laws regarding the continuous lighting of lamps and the sacred show-bread. This chapter also powerfully illustrates the strict divine judgment against blasphemy, outlining the severe consequences for profaning the name of the Lord. Understand the intersection of ritual purity, societal order, and uncompromising divine justice as revealed in this foundational biblical text.
 weight: 24
 ---
 
