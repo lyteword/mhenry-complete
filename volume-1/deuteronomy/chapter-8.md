@@ -2,7 +2,7 @@
 title: "Deuteronomy 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
 description: >
-  Moses had charged parents in teaching their children to whet the word of God upon them (De 6:7) by frequent repetition of the same things over and over again; and here he himself t...
+  Explore Deuteronomy 8 to uncover profound biblical wisdom on navigating prosperity and temptation. This commentary examines God's past provision in the wilderness, the promise of the rich land, and crucial warnings against pride and forgetting God amidst worldly success. Discover how to maintain humility and obedience so that true spiritual wealth endures.
 weight: 8
 ---
 
