@@ -2,7 +2,7 @@
 title: "Exodus 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
 description: >
-  Three more of the plagues of Egypt are related in this chapter, I. That of the frogs, which is, 1. Threatened, Ex 8:1-4. 2. Inflicted, Ex 8:5,6. 3. Mimicked by the magicians, Ex 8:...
+  Explore the powerful biblical commentary on Exodus Chapter 8, detailing the plagues of Egypt—frogs, lice, and flies—as profound demonstrations of God's overwhelming sovereignty. This chapter offers deep theological insights into Pharaoh's hardened heart, the power of divine judgment, and the essential lessons on repentance found through Moses' intercession. Discover how God uses the smallest creatures to reveal His absolute power over all creation.
 weight: 8
 ---
 
