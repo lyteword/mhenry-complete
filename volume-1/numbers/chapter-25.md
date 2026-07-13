@@ -1,5 +1,5 @@
 ---
-title: "Numbers 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
   Dive deep into Numbers Chapter 25 to explore the devastating consequences of Israel's sin, including idolatry and whoredom. Discover the dramatic story of Phinehas's zealous act that turned God's wrath away from the people. This commentary reveals profound biblical truths about divine justice and the power of righteous zeal against temptation.

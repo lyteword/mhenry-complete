@@ -1,5 +1,5 @@
 ---
-title: "Numbers 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Discover the profound lessons in Numbers Chapter 11, exploring how the Israelites' murmuring and discontentment led to divine judgment. This commentary delves into Moses's role, God's gracious provision of flesh, and the critical warning against earthly lusts versus true spiritual faith. Understand why discontentment brings ruin and the necessity of trusting God's word amidst trials.

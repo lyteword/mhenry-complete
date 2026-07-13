@@ -1,5 +1,5 @@
 ---
-title: "Numbers 32 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 32 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "32"
 description: >
   Explore Numbers 32 to understand the pivotal request and subsequent grant of land inheritance to the tribes of Reuben and Gad. This deep commentary analyzes Moses's decision, highlighting crucial biblical themes such as covetousness, pride, and the profound moral lessons woven into Israel's journey. Discover the spiritual and historical depth of this moment in the distribution of the Promised Land.

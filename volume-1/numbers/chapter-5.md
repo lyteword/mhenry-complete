@@ -1,5 +1,5 @@
 ---
-title: "Numbers 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Explore Numbers Chapter 5, which details the ancient laws for purifying the camp by removing the unclean, establishing rules for restitution, and outlining the solemn "Water of Jealousy" used to trial a wife accused of adultery. This commentary provides deep insight into biblical jurisprudence regarding purity, marital fidelity, and divine justice in the Old Testament.

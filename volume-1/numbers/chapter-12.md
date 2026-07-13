@@ -1,5 +1,5 @@
 ---
-title: "Numbers 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Explore the dramatic account of Numbers chapter 12, where the patience of Moses is tested by the quarrel of his own siblings, Miriam and Aaron. This commentary delves into the divine judgment, Miriam's affliction with leprosy, and the profound lessons on humility, true leadership, and the critical balance between mercy and justice in biblical narrative. Discover the powerful theological insights on why respecting God's servants is paramount.

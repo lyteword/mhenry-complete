@@ -1,5 +1,5 @@
 ---
-title: "Numbers 33 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 33 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "33"
 description: >
   Explore the detailed journey and encampments of the Israelites in Numbers 33, tracing their path from Egypt to the plains of Moab. This chapter highlights God's providence and the strict command to destroy all idols and high places before entering the Promised Land. Discover profound biblical truths about faith, obedience, and the spiritual journey in this essential commentary.

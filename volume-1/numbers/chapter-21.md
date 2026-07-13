@@ -1,5 +1,5 @@
 ---
-title: "Numbers 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Discover the dramatic narrative of Numbers Chapter 21 through this commentary, detailing Israel's journey from the wilderness, divine deliverance via the brazen serpent, and the triumphant conquests of Sihon and Og. Explore how this chapter powerfully illustrates God's unwavering providence, miraculous mercy, and the securing of the promised land through faith and victory. This deep dive into Numbers 21 offers profound insights into God's sustaining power throughout the Israelites' journey.

@@ -1,5 +1,5 @@
 ---
-title: "Numbers 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Uncover the profound theological and administrative significance of Numbers Chapter 1 in this detailed biblical commentary. Explore Moses' commission to number the Israelites, revealing how this census proves God's divine promise of His multiplying seed and demonstrates His meticulous providence. Discover the distinct, sacred role of the Levites and the overarching structure of the nascent kingdom of Israel.

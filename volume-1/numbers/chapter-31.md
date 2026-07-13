@@ -1,5 +1,5 @@
 ---
-title: "Numbers 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
   Explore Numbers Chapter 31, a profound account of the holy war against the Midianites, detailing the divine command, the military execution, and the intricate distribution of spoils. Discover the spiritual lessons embedded in this biblical narrative, from Moses's commands to the rigorous purification rituals and the ultimate tribute offered to the Lord. This commentary provides deep insight into the history, theology, and powerful themes of this pivotal chapter.

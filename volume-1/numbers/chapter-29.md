@@ -1,5 +1,5 @@
 ---
-title: "Numbers 29 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 29 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "29"
 description: >
   Explore Numbers 29 to understand the detailed instructions for the offerings during the major biblical feasts of the seventh month. This commentary delves into the structure of burnt offerings and sin sacrifices, offering deep theological insights into divine mercy and the enduring call to faithful worship. Discover how these ancient ordinances connect to modern devotion and the timeless pursuit of serving the Lord.

@@ -1,5 +1,5 @@
 ---
-title: "Numbers 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Discover the powerful story in Numbers 17 where the blossoming of Aaron's rod serves as a miracle, confirming his divine appointment as the head of the priesthood of Levi. This commentary explores the divine grace of God in silencing opposition and solidifying sacred institutions, offering deep insights into biblical themes of leadership, succession, and God's purposeful providence.

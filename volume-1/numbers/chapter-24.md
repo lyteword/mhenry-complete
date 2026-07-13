@@ -1,5 +1,5 @@
 ---
-title: "Numbers 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
   Uncover the powerful conclusion of Numbers 24 with this deep biblical commentary. Explore how the defeat of Balak and Balaam was achieved through the Spirit of the Lord, highlighting God's overwhelming power and His favor upon Israel. Discover Balaam's profound prophecies regarding Israel's future glory, the coming of the Messiah, and the eternal downfall of their enemies.

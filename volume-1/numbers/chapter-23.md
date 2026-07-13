@@ -1,5 +1,5 @@
 ---
-title: "Numbers 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
   Discover the powerful story from Numbers 23 where the attempt to curse Israel by Balak and Balaam is completely thwarted by God's overwhelming power. This chapter reveals how divine providence ensures that the people of Israel are not only protected but are powerfully blessed, demonstrating the sovereignty of God over all human schemes. Learn how faith triumphs over malice in this profound biblical commentary.

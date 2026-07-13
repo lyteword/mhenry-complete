@@ -1,5 +1,5 @@
 ---
-title: "Numbers 30 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 30 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "30"
 description: >
   Explore Numbers 30 to understand the profound biblical law concerning vows and oaths. This chapter details the rules for making promises to God and the specific exceptions related to vows made by daughters and wives, emphasizing the importance of keeping one's word. Discover how this divine law maintains the structure of family relationships and moral obligations.

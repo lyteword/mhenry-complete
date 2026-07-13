@@ -1,5 +1,5 @@
 ---
-title: "Numbers 36 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 36 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "36"
 description: >
   Discover the profound legal and spiritual resolution found in Numbers chapter 36, detailing the divine determination for the inheritance of the daughters of Zelophehad. This commentary explores the crucial law of tribal inheritance, establishing rules that ensure land stability and prevent inter-tribal disputes for future generations. Learn how divine appointment guides human prudence in settling complex matters of inheritance and marriage in ancient Israel.

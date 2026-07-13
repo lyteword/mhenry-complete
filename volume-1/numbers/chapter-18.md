@@ -1,5 +1,5 @@
 ---
-title: "Numbers 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
   Dive deep into Numbers 18 with this commentary to unpack the roles of the priests and Levites, the laws of service, and the concept of divine compensation. Learn how God provides for His servants, emphasizing the vital lesson of stewardship and living by faith in His enduring covenant.

@@ -1,5 +1,5 @@
 ---
-title: "Numbers 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Explore the detailed biblical commentary on Numbers Chapter 4, revealing the specific roles and organizational structure of the Levites—the Kohathites, Gershonites, and Merarites—in serving the Tabernacle. Discover profound insights into the divine requirements for ministry, including age qualifications and the crucial task of preserving God's holy institutions through dedicated service.

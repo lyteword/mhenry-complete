@@ -1,5 +1,5 @@
 ---
-title: "Numbers 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Explore the profound biblical significance of Numbers Chapter 8, detailing the ordination, cleansing rituals, and crucial role of the Levites in the sanctuary. Discover how the lamps of light symbolize Christ, and gain deep spiritual insights on atonement, service, and holiness from this essential commentary.

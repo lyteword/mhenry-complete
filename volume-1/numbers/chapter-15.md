@@ -1,5 +1,5 @@
 ---
-title: "Numbers 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Explore Numbers Chapter 15, a detailed biblical commentary on the laws of sacrifice, offerings, and atonement. Discover the profound lessons on dealing with sins of ignorance, the dangers of presumptuous sin, and the enduring call to live a life of holiness. This chapter reveals God's grace and the importance of obedience as recorded in the ancient scriptures.

@@ -1,5 +1,5 @@
 ---
-title: "Numbers 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Explore Numbers chapter 9 to uncover the profound meaning behind the Passover ordinance and the guiding Pillar of Cloud and Fire. This detailed commentary delves into the ancient laws of observance, divine providence, and the spiritual lessons on how God directs His people's journey. Discover timeless biblical truths about obedience, presence, and guidance through this essential study.

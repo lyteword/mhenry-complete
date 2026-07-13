@@ -1,5 +1,5 @@
 ---
-title: "Numbers 35 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 35 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "35"
 description: >
   Explore Numbers 35 to understand the ancient orders for dividing Canaan, focusing on the provision for the Levites and the crucial system of Cities of Refuge. Discover how this Old Testament law of justice foreshadows the ultimate refuge found in Christ, offering deep theological insights into divine protection and salvation.

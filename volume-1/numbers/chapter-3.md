@@ -1,5 +1,5 @@
 ---
-title: "Numbers 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Explore the critical role of the tribe of Levi in the ancient Israelite system, detailing their specific duties as assistants to the priests in temple service. This chapter illuminates the structure of the Levites, their distribution, and the profound theological significance of their exchange with the firstborn, offering deep insight into God's organization and providence.

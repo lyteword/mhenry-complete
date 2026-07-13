@@ -1,5 +1,5 @@
 ---
-title: "Numbers 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
   Explore Numbers 26, a deep dive into the biblical account of the numbering of the Children of Israel at Mount Sinai and the subsequent division of the land. This commentary reveals the divine principles behind tribe distribution, the significance of family lineage, and God's faithfulness in fulfilling His promises to His people. Discover how numbers and inheritance shaped the destiny of Israel.

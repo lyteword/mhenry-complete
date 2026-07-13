@@ -1,5 +1,5 @@
 ---
-title: "Numbers 34 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 34 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "34"
 description: >
   Explore the profound biblical geography in Numbers 34, detailing the precise boundaries and borders of the land of Canaan as directed by God to Moses. This commentary reveals the divine plan for the division and distribution of the land among the tribes of Israel, offering deep theological insights into God's sovereignty and humanity's proper place.

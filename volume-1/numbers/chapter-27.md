@@ -1,5 +1,5 @@
 ---
-title: "Numbers 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Explore Numbers 27 to discover the groundbreaking case of Zelophehad's daughters and the legal precedent established for female inheritance in ancient Israel. This chapter details how Moses prayed for a successor, leading to the divine appointment of Joshua, illustrating God's role in establishing justice and leadership succession for the nation.

@@ -1,5 +1,5 @@
 ---
-title: "Numbers 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the detailed divine appointment of the Israelite camp in Numbers Chapter 2. This text outlines the precise arrangement of the twelve tribes into squadrons, emphasizing the importance of order, mutual love, and submission to God's plan. Learn how this biblical structure serves as a powerful metaphor for Christian community and leadership, highlighting the strength found in divine organization.

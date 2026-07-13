@@ -1,5 +1,5 @@
 ---
-title: "Numbers 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Explore the profound theological lessons of Numbers 14 through this detailed commentary, examining the fatal quarrel between Israel's murmuring and God's wrath. This in-depth analysis highlights the dangers of unbelief, the power of humble intercession by Moses, and the ultimate divine judgment, emphasizing the critical importance of unwavering faith in God's promises. Discover how Caleb and Joshua's steadfast spirit secured a path to the promised land, offering powerful insights for modern readers seeking biblical wisdom on trust and perseverance.
