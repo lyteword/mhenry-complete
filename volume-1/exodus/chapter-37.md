@@ -2,7 +2,7 @@
 title: "Exodus 37 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "37"
 description: >
-  Bezaleel and his workmen are still busy, making I. The ark with the mercy-seat and the cherubim, Ex 37:1-9. II. The table with its vessels, Ex 37:10-16. III. The candlestick with i...
+  Discover the profound theological symbolism embedded in Exodus 37 as this commentary meticulously details the construction of the Tabernacle's furniture—including the Ark, the golden altar, and the candlestick. Explore how these sacred objects represent God's glory, the sincerity of a holy heart, and the profound communion offered through the New Covenant. Dive deep into biblical insights on divine provision and the spiritual riches of God's presence.
 weight: 37
 ---
 
