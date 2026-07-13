@@ -2,7 +2,7 @@
 title: "Numbers 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  This chapter and the next are concerning the tribe of Levi, which was to be mustered and marshalled by itself, and not in common with the other tribes, intimating the particular ho...
+  Explore the critical role of the tribe of Levi in the ancient Israelite system, detailing their specific duties as assistants to the priests in temple service. This chapter illuminates the structure of the Levites, their distribution, and the profound theological significance of their exchange with the firstborn, offering deep insight into God's organization and providence.
 weight: 3
 ---
 
