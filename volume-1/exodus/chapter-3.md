@@ -2,7 +2,7 @@
 title: "Exodus 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  As prophecy had ceased for many ages before the coming of Christ, that the revival and perfection of it in that great prophet might be the more remarkable, so vision had ceased (fo...
+  Discover the profound moment in Exodus 3 where God appears to Moses in the burning bush, revealing His glorious presence and His divine plan for the deliverance of Israel from Egypt. This powerful passage details God's commission to Moses as His ambassador, revealing His eternal name, "I AM THAT I AM," and assuring believers of God's unwavering faithfulness and power. Read the complete biblical commentary to unlock the deep spiritual truths of this pivotal moment in salvation history.
 weight: 3
 ---
 
