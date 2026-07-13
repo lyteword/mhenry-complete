@@ -2,7 +2,7 @@
 title: "Exodus 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
 description: >
-  The departure of the children of Israel out of Egypt (which was indeed the birth of the Jewish church) is made yet more memorable by further works of wonder, which were wrought imm...
+  Explore the dramatic account of Exodus 14, detailing the miraculous Red Sea crossing where the Israelites achieved divine deliverance from Pharaoh's relentless pursuit. This commentary explores the profound themes of faith, Moses's leadership, and God's sovereign power in turning the tide of history. Discover the powerful spiritual lessons of this pivotal moment of salvation.
 weight: 14
 ---
 
