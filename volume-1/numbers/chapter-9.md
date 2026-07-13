@@ -2,7 +2,7 @@
 title: "Numbers 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
 description: >
-  This chapter is, I. Concerning the great ordinance of the passover; 1. Orders given for the observance of it, at the return of the year, Nu 9:1-5. 2. Provisos added in regard to su...
+  Explore Numbers chapter 9 to uncover the profound meaning behind the Passover ordinance and the guiding Pillar of Cloud and Fire. This detailed commentary delves into the ancient laws of observance, divine providence, and the spiritual lessons on how God directs His people's journey. Discover timeless biblical truths about obedience, presence, and guidance through this essential study.
 weight: 9
 ---
 
