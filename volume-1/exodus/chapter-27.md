@@ -2,7 +2,7 @@
 title: "Exodus 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
 description: >
-  In this chapter directions are given, I. Concerning the brazen altar for burnt-offerings, Ex 27:1-8. II. Concerning the court of the tabernacle, with the hangings of it, Ex 27:9-19...
+  Explore the profound symbolism of Exodus 27: The complete biblical commentary delves into the construction of the brazen altar, a powerful typology of Christ's atonement, and the layout of the tabernacle court, which represents the Church and the righteousness of saints. Discover how these ancient directions illuminate the spiritual service required for believers today, linking the sacrificial altar to Christ's sacrifice and the lamp to the eternal light of the Word. This deep dive offers unparalleled insight into biblical architecture and theological meaning.
 weight: 27
 ---
 
