@@ -2,7 +2,7 @@
 title: "Exodus 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
 description: >
-  Moses here receives instructions, I. Concerning the inner curtains of the tent or tabernacle, and the coupling of those curtains, Ex 26:1-6. II. Concerning the outer curtains which...
+  Uncover the intricate details of Exodus 26, the complete Bible commentary on the construction of the Tabernacle. This chapter reveals the divine blueprint for the sacred structure, detailing the rich materials, intricate curtains, and supporting woodwork that showcased God's meticulous design. Explore the historical and theological significance of this sacred furniture, understanding how the physical Tabernacle foreshadowed the unity and glory of the spiritual Church.
 weight: 26
 ---
 
