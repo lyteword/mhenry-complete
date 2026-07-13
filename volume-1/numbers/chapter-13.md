@@ -2,7 +2,7 @@
 title: "Numbers 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
 description: >
-  It is a memorable and very melancholy story which is related in this and the following chapter, of the turning back of Israel from the borders of Canaan, when they were just ready ...
+  Explore Numbers 13, a pivotal chapter in the Bible commentary, detailing the mission of the twelve spies into Canaan and the profound conflict between human doubt and divine promise. Discover how the spies' report of the land's bounty clashes with the people's unbelief, leading to a powerful lesson on faith, courage, and trusting God's word. Learn how Caleb's resolute faith proves that all things are possible when we believe in God's unwavering promises.
 weight: 13
 ---
 
