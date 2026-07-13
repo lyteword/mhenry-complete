@@ -2,7 +2,7 @@
 title: "Leviticus 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
 description: >
-  Hitherto the levitical law had been chiefly conversant about holy persons, holy things, and holy places; in this chapter we have the institution of holy times, many of which had be...
+  Discover the profound meaning behind the holy feasts of Leviticus 23, including the Sabbath, Passover, Pentecost, and the Feast of Tabernacles. This chapter reveals how God sanctifies time through His appointed celebrations, offering deep spiritual insights on remembrance, joy, and our relationship with Him. Learn the biblical significance of these holy times to deepen your faith and worship.
 weight: 23
 ---
 
