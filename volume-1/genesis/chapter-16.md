@@ -2,7 +2,7 @@
 title: "Genesis 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
 description: >
-  Hagar is the person mostly concerned in the story of this chapter, an obscure Egyptian woman, whose name and story we never should have heard of if Providence had not brought her i...
+  Discover the powerful story of Genesis 16, where the challenges of barrenness and human desire meet divine providence. Explore how Hagar's flight is halted by an angel, leading to the birth of Ishmael, and reflect on God's ever-present care for those in distress. This chapter offers deep insights into submission, humility, and the assurance that God hears the cries of the afflicted.
 weight: 16
 ---
 
