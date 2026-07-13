@@ -2,7 +2,7 @@
 title: "Deuteronomy 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
 description: >
-  The laws of this chapter provide, I. For the preservation of charity and good neighbourship, in the care of strayed or fallen cattle, De 22:1-4. II. For the preservation of order a...
+  Explore the profound moral and civil laws of Deuteronomy Chapter 22, detailing ancient precepts for fostering neighborly kindness, maintaining social order, and safeguarding personal chastity. This comprehensive commentary delves into rules concerning animal welfare, appropriate conduct between sexes, and strict penalties for immorality to reveal the deep wisdom behind these foundational texts. Discover how these laws establish a framework for equity, safety, and the preservation of community virtue.
 weight: 22
 ---
 
