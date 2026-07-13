@@ -2,7 +2,7 @@
 title: "Exodus 32 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "32"
 description: >
-  It is a very lamentable interruption which the story of this chapter gives to the record of the establishment of the church, and of religion among the Jews. Things went on admirabl...
+  Explore the dramatic story of Exodus 32, detailing the catastrophic sin of the Golden Calf and the resulting divine wrath. This commentary expertly analyzes Moses's crucial intercession and the ultimate consequence of breaking the Ten Commandments. Discover profound lessons on idolatry, pride, and the enduring power of prayer.
 weight: 32
 ---
 
