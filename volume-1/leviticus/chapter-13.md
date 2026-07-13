@@ -2,7 +2,7 @@
 title: "Leviticus 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
 description: >
-  The next ceremonial uncleanness is that of the leprosy, concerning which the law was very large and particular; we have the discovery of it in this chapter, and the cleansing of th...
+  Explore Leviticus Chapter 13 to uncover the intricate biblical law concerning leprosy, detailing the priest's judgment criteria and the profound spiritual meaning behind this ceremonial uncleanness. This deep dive explores how physical affliction reflects moral pollution, highlighting the ultimate cleansing power of Christ's grace over sin.
 weight: 13
 ---
 
