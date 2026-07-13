@@ -1,5 +1,5 @@
 ---
-title: "Genesis 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Explore Genesis Chapter 5, the foundational genealogy of Adam and the holy seed that leads to Christ. This in-depth commentary traces the lineage through the patriarchs, highlighting profound theological insights into creation, the nature of sin, and the significance of figures like Enoch and Noah. Discover the ancient history and enduring promises contained within this essential biblical text.

@@ -1,5 +1,5 @@
 ---
-title: "Genesis 34 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 34 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "34"
 description: >
   Explore Genesis Chapter 34, a pivotal biblical narrative detailing the dishonor of Dinah and the subsequent bloody revenge orchestrated by Simeon and Levi. This commentary delves into the themes of folly in Israel, the dangers of malicious alliances, and the terrible consequences of sin and violent retribution. Discover the profound lessons on honor, covenant, and the true cost of deceit in ancient history.

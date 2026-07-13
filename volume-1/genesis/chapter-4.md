@@ -1,5 +1,5 @@
 ---
-title: "Genesis 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Dive deep into Genesis Chapter 4 to explore the tragic consequences of envy, murder, and the human struggle against divine judgment. This commentary examines the contrasting lives of Cain and Abel, revealing the profound difference between faith-based devotion and sinful hypocrisy. Discover the severe consequences of disobedience and how God's justice ultimately deals with sin and repentance.

@@ -1,5 +1,5 @@
 ---
-title: "Genesis 46 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 46 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "46"
 description: >
   Discover the profound biblical narrative of Genesis 46, exploring Jacob's pivotal journey and family migration to Egypt. This detailed commentary delves into the themes of divine providence, the covenant promises, and the emotional meeting between Jacob and Joseph, revealing how God directs the path of the patriarchs. Dive deep into this essential study to understand the power of faith and the journey of the Israelite people.

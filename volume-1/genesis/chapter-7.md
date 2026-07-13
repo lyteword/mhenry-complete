@@ -1,5 +1,5 @@
 ---
-title: "Genesis 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Explore Genesis Chapter 7 to discover the powerful narrative of Noah's salvation and the catastrophic deluge that ended the old world. This in-depth biblical commentary explores the themes of divine judgment, the necessity of obedience, and how Noah's faithful endurance serves as a profound type for Christian salvation. Dive into this essential study to understand God's sovereignty over creation and the hope found in faith.

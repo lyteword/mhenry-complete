@@ -1,5 +1,5 @@
 ---
-title: "Genesis 44 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 44 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "44"
 description: >
   Discover the intense drama of Genesis Chapter 44, where Joseph tests the sincerity of his brothers through a clever trial involving Benjamin and a silver cup. Follow Judah's powerful, tender appeal to Joseph, showcasing the depth of family bonds and the art of biblical intercession. This commentary reveals profound lessons on repentance, forgiveness, and the strength of familial love.

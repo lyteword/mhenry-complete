@@ -1,5 +1,5 @@
 ---
-title: "Genesis 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
   Explore the dramatic journey of Jacob's escape from Laban, revealing how divine providence guides his path and secures his future. This chapter showcases the power of faithfulness, the perils of envy, and the establishment of a profound covenant between two figures. Discover timeless lessons on integrity and God's protection in this essential biblical commentary.

@@ -1,5 +1,5 @@
 ---
-title: "Genesis 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Discover the powerful story of Genesis 11: The Babel narrative reveals how human pride and the desire for universal power led to the confusion of languages and the ambitious attempt to build a tower to reach heaven. This chapter powerfully illustrates God's sovereign judgment, which scattered humanity across the earth to halt their defiance and redirect their path. Explore the divine genealogy of Abraham and the lineage leading to Christ, revealing the ultimate plan of God amidst human folly.

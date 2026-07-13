@@ -1,5 +1,5 @@
 ---
-title: "Genesis 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Explore the profound genealogy of Noah's sons in Genesis 10, tracing the origins of nations through the lineages of Japheth, Ham, and Shem. This biblical commentary delves into the story of Nimrod, illustrating the destructive nature of pride and the division of the world, revealing the divine blessing and curse inherent in the ancestry of these great civilizations.

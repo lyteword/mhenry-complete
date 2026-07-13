@@ -1,5 +1,5 @@
 ---
-title: "Genesis 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Discover the powerful story of Genesis 16, where the challenges of barrenness and human desire meet divine providence. Explore how Hagar's flight is halted by an angel, leading to the birth of Ishmael, and reflect on God's ever-present care for those in distress. This chapter offers deep insights into submission, humility, and the assurance that God hears the cries of the afflicted.

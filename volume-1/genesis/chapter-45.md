@@ -1,5 +1,5 @@
 ---
-title: "Genesis 45 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 45 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "45"
 description: >
   Dive into Genesis Chapter 45 to explore the powerful story of Joseph's self-discovery and the profound role of divine providence. This commentary highlights themes of forgiveness, reconciliation, and enduring hope amidst famine, offering deep spiritual lessons for modern life.

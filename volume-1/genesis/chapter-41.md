@@ -1,5 +1,5 @@
 ---
-title: "Genesis 41 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 41 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "41"
 description: >
   Dive into Genesis 41 to uncover how divine providence orchestrates history through Pharaoh's portentous dream and Joseph's prophetic interpretation, detailing the cycle of seven years of abundance and famine. This commentary explores themes of patient waiting, wise resource management, and the ultimate exaltation of a faithful steward. Learn how God's guidance leads to prosperity and teaches us the wisdom of preparing for scarcity.

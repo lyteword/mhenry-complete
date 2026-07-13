@@ -1,5 +1,5 @@
 ---
-title: "Genesis 43 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 43 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "43"
 description: >
   Discover Genesis Chapter 43, a poignant account of Jacob's sons' journey to Egypt during famine, highlighting the profound themes of divine providence and familial love. Explore the wisdom of Jacob's patience, Joseph's remarkable kindness, and the power of restitution in navigating hardship. This chapter beautifully illustrates how grace and generosity manifest amidst scarcity.

@@ -1,5 +1,5 @@
 ---
-title: "Genesis 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the profound truth of Genesis 1 as we explore the creation of the world by God the Creator. This biblical commentary details the ordered process—from formless void to the creation of light, firmament, earth, and humanity in His image. Gain a deep understanding of divine wisdom, divine order, and human dominion.

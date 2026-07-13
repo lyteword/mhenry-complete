@@ -1,5 +1,5 @@
 ---
-title: "Genesis 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Discover the profound covenant established between God and Abram in Genesis 15, where God assures him of a numerous seed and the inheritance of the promised land of Canaan. This chapter powerfully illustrates the steadfast nature of God's faithfulness, demonstrating how unwavering faith, symbolized by the sign of the furnace and lamp, secures eternal promises for believers. Explore the deep truths of divine promises and righteous inheritance today.

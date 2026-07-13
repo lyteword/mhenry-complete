@@ -1,5 +1,5 @@
 ---
-title: "Genesis 49 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 49 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "49"
 description: >
   Uncover the profound biblical prophecy in Genesis Chapter 49, where Jacob, on his deathbed, lays out the divine destiny for the twelve tribes of Israel. Explore the powerful character traits assigned to each tribe, culminating in the pivotal prophecy concerning Judah—the lion's whelp whose lineage is destined to bear the Messiah. Discover how this ancient scripture reveals God's overarching plan for salvation and the enduring hope of His people.

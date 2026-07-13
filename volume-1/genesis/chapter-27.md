@@ -1,5 +1,5 @@
 ---
-title: "Genesis 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Uncover the dramatic tension in Genesis Chapter 27 as we explore the intense struggle between Esau and Jacob for the birthright and blessing. This chapter reveals Rebekah's clever plot, Jacob's cunning deception, and Esau's furious resentment, all under the watchful eye of divine providence. Discover profound theological lessons on how God orchestrates events, cautioning readers against profaning spiritual blessings for worldly gain.

@@ -1,5 +1,5 @@
 ---
-title: "Genesis 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Explore the profound story of Genesis 22: Abraham's ultimate test of faith as God commands him to sacrifice his son, Isaac. This powerful narrative delves into the depths of obedience, divine provision (Jehovah-jireh), and the renewal of the covenant promise, offering deep theological insight into trusting God through the most challenging trials. Discover the enduring lessons on faith, sacrifice, and God's unwavering faithfulness.

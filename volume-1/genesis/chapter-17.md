@@ -1,5 +1,5 @@
 ---
-title: "Genesis 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Discover the profound covenant established in Genesis 17, where the Almighty God seals an everlasting agreement with Abraham, promising him the blessing of becoming the father of many nations and the eternal possession of the land of Canaan. This chapter deeply explores the theology of God's all-sufficiency and the significance of circumcision as the sacred token of this divine promise. Explore the powerful themes of covenant, grace, and eternal hope in this essential biblical commentary.

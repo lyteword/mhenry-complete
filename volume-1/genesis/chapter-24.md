@@ -1,5 +1,5 @@
 ---
-title: "Genesis 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
   Discover the powerful biblical narrative of Genesis 24, detailing how divine providence guided Abraham's servant to secure a blessed marriage between Isaac and Rebekah. This chapter highlights the importance of faithful service, prayer, and trusting in God's plan for success in life's greatest unions. Explore the timeless lessons on faith, humility, and the power of God's guidance in navigating life's journey.

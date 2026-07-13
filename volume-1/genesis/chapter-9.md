@@ -1,5 +1,5 @@
 ---
-title: "Genesis 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Discover the profound covenant established by God with Noah and his descendants in Genesis Chapter 9, exploring the divine promises for a renewed earth and the enduring symbolism of the rainbow. This commentary delves into the moral lessons of Noah's life, Ham's impiety, and the powerful blessings bestowed upon Shem and Japheth, offering deep theological insights into God's faithfulness and human responsibility. Explore the biblical account of the Great Covenant and its everlasting hope.

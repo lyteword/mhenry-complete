@@ -1,5 +1,5 @@
 ---
-title: "Genesis 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
   Explore the profound story of Genesis Chapter 23 as presented in this comprehensive Bible commentary. Discover the poignant narrative of Abraham mourning the death of Sarah and his humble purchase of the Cave of Machpelah. Uncover timeless lessons on providence, mourning, and the true value of earthly possessions.

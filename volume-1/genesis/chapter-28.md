@@ -1,5 +1,5 @@
 ---
-title: "Genesis 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
   Explore Genesis 28 as Jacob's pivotal journey where he encounters God through a profound vision of the ladder. Discover the powerful blessings of Abraham, including promises of inheritance and divine protection, showing how God's providence guides believers through difficult times. This chapter offers deep insights into faith, divine assurance, and the covenant relationship between God and His people.

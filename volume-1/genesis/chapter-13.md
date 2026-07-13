@@ -1,5 +1,5 @@
 ---
-title: "Genesis 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Explore Genesis Chapter 13 as we delve into the journey of Abram, examining the complex dynamics of wealth, conflict with Lot, and the profound confirmation of God's promise for the land of Canaan. This commentary explores how faith, wisdom, and divine providence guide Abram through separation and towards his inheritance. Discover deep biblical insights on managing riches, resolving conflict, and understanding God's covenant promises.

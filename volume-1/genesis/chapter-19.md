@@ -1,5 +1,5 @@
 ---
-title: "Genesis 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
   Discover the profound biblical narrative of Genesis 19, exploring the devastating divine judgment upon Sodom and Gomorrah and the miraculous rescue of Lot. This commentary delves deep into the themes of extreme wickedness, the peril of sin, and the vital lesson of repentance and seeking God's mercy to escape eternal ruin. Learn how Lot's wife's folly serves as a powerful warning against apostasy.

@@ -1,5 +1,5 @@
 ---
-title: "Genesis 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Uncover the epic tale of Genesis Chapter 14, detailing Abram’s courageous military expedition to rescue his friend Lot from the kings of Sodom. This powerful biblical narrative showcases supreme leadership, strategic brilliance, and selfless charity, illustrating how faith triumphs over conflict. Discover profound lessons on true courage and divine providence in this essential story of Abram's victory and generosity.

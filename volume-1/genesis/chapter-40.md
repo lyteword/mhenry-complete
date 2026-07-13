@@ -1,5 +1,5 @@
 ---
-title: "Genesis 40 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 40 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "40"
 description: >
   Discover the profound lessons of Genesis Chapter 40 as we explore Joseph's ascent through divine providence. This commentary delves into the powerful significance of dream interpretation, showcasing God's extraordinary foresight and the importance of compassion toward those in sorrow. Learn how Joseph's story teaches us about ingratitude and the true meaning of divine guidance in our lives.

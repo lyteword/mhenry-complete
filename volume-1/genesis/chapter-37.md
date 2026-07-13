@@ -1,5 +1,5 @@
 ---
-title: "Genesis 37 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 37 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "37"
 description: >
   Uncover the dramatic story of Joseph in Genesis 37, exploring the malice of his brothers and his journey from deep humiliation to eventual exaltation. This in-depth commentary reveals profound spiritual parallels, showing how Joseph's trials mirror the path of Christ through tribulation and perseverance. Discover powerful lessons of divine providence and godly character in this compelling biblical study.

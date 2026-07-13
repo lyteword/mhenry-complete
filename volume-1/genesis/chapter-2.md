@@ -1,5 +1,5 @@
 ---
-title: "Genesis 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore the profound narrative of Genesis Chapter 2, detailing the divine creation, the perfect Garden of Eden, and the establishment of humanity. This essential commentary delves into the significance of the Tree of Life, the institution of marriage, and Adam's dominion, providing deep insight into the foundation of human existence and divine law. Discover the origins of paradise and the covenant that defines human fellowship.

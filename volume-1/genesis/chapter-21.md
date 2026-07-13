@@ -1,5 +1,5 @@
 ---
-title: "Genesis 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Discover the profound fulfillment of God's promise in Genesis 21 as we explore the birth of Isaac and Abraham's obedience. This chapter offers deep insights into the distinction between the covenant seed and Ishmael's lineage, along with powerful lessons on divine providence, mercy, and the establishment of lasting covenants.

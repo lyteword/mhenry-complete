@@ -1,5 +1,5 @@
 ---
-title: "Genesis 42 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 42 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "42"
 description: >
   Dive into Genesis Chapter 42 to explore the dramatic journey of Jacob's sons to Egypt during a famine. This chapter offers profound insights into divine providence, the consequences of sin, and Joseph's strategic role in guiding his family toward repentance. Discover how obedience and conscience shape the unfolding of God's plan in this essential biblical commentary.

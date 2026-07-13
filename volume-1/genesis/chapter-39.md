@@ -1,5 +1,5 @@
 ---
-title: "Genesis 39 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 39 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "39"
 description: >
   Discover the powerful story of Joseph in Genesis 39, exploring how God's providence elevated him from a slave to a favored man, even while facing intense temptation and unjust imprisonment. Learn how Joseph's unwavering integrity and virtue secured divine favor and mercy through every trial. This chapter offers timeless lessons on overcoming adversity with faith and steadfastness.

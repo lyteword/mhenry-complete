@@ -1,5 +1,5 @@
 ---
-title: "Genesis 32 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 32 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "32"
 description: >
   Discover the powerful story of Genesis 32, where Jacob faces immense fear and wrestles with an angel. This chapter highlights the transformative power of earnest prayer, showcasing how faith leads to divine protection and a new identity as Israel. Read the complete Matthew Henry Bible commentary online to explore these profound themes of faith and victory.

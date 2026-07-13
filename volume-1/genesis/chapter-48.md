@@ -1,5 +1,5 @@
 ---
-title: "Genesis 48 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 48 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "48"
 description: >
   Discover the profound legacy of Genesis Chapter 48, where Jacob imparts his final, powerful blessing upon his grandsons, Ephraim and Manasseh. This commentary delves into the divine promises, the intricate nature of God's grace, and how Jacob's dying words establish a unique inheritance for the lineage. Explore the biblical significance of Jacob's legacy and the enduring themes of divine favor in this essential passage.

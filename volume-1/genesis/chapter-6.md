@@ -1,5 +1,5 @@
 ---
-title: "Genesis 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Discover the profound message of Genesis 6, exploring the devastating wickedness of the old world and the universal deluge decreed by God. This powerful biblical commentary delves into the reasons for the flood, highlighting the corruption of humanity and the crucial role of Noah as a just man who found grace through faithful obedience. Learn how Noah's covenant and unwavering faith served as a profound foreshadowing of Christ's salvific role in preserving humanity.
