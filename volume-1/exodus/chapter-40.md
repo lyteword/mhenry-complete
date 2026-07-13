@@ -2,7 +2,7 @@
 title: "Exodus 40 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "40"
 description: >
-  In this chapter, I. Orders are given for the setting up of the tabernacle and the fixing of all the appurtenances of it in their proper places (Ex 40:1-8), and the consecrating of ...
+  Explore Exodus Chapter 40 to discover the divine blueprint for the Tabernacle—the sacred dwelling place of God—detailing the precise orders for its construction and consecration. This commentary delves into the theological significance of the Shechinah (God's glory) filling the sanctuary, highlighting the eternal priesthood and foreshadowing Christ as the true dwelling place of God.
 weight: 40
 ---
 
