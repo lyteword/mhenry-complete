@@ -2,7 +2,7 @@
 title: "Genesis 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
 description: >
-  We have an account in this chapter of another interview between God and Abraham, probably within a few days after the former, as the reward of his cheerful obedience to the law of ...
+  Discover the profound faith of Abraham in Genesis 18 as he interviews God and intercedes for Sodom. This powerful chapter offers deep theological insights into God's promises, the nature of prayer, and the powerful themes of covenant and divine mercy. Explore how Abraham's bold prayer shaped history and reveals the true power of faith.
 weight: 18
 ---
 
