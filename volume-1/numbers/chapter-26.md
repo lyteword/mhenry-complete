@@ -2,7 +2,7 @@
 title: "Numbers 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
 description: >
-  This book is called Numbers, from the numberings of the children of Israel, of which it gives an account. Once they were numbered at Mount Sinai, in the first year after they came ...
+  Explore Numbers 26, a deep dive into the biblical account of the numbering of the Children of Israel at Mount Sinai and the subsequent division of the land. This commentary reveals the divine principles behind tribe distribution, the significance of family lineage, and God's faithfulness in fulfilling His promises to His people. Discover how numbers and inheritance shaped the destiny of Israel.
 weight: 26
 ---
 
