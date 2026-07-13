@@ -2,7 +2,7 @@
 title: "Deuteronomy 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
 description: >
-  The laws which Moses had hitherto been repeating and urging mostly concerned the acts of religion and devotion towards God; but here he comes more fully to press the duties of righ...
+  Dive deep into Deuteronomy Chapter 19 to explore the foundational laws of righteousness between people. Uncover the critical provisions for the Cities of Refuge, detailing how protection is provided for accidental slayers, alongside strict statutes against false witnesses to uphold truth and justice. Understand the ancient framework for civil law and moral integrity as described in this pivotal biblical chapter.
 weight: 19
 ---
 
