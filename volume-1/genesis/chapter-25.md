@@ -2,7 +2,7 @@
 title: "Genesis 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
 description: >
-  The sacred historian, in this chapter, I. Takes his leave of Abraham, with an account, 1. Of his children by another wife, Ge 25:1-4. 2. Of his last will and testament, Ge 25:5,6. ...
+  Explore Genesis 25 to discover the profound legacy of Abraham, tracing the lineage of Isaac, Jacob, and the pivotal moment when Esau sells his birthright. This commentary delves deep into the themes of divine providence, the struggle between worldly desires and spiritual blessings, and the fulfillment of God's covenant promises. Learn how Jacob's pious pursuit of blessing contrasts with Esau's profane contempt for his inheritance.
 weight: 25
 ---
 
