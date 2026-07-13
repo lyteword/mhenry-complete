@@ -1,8 +1,8 @@
 ---
-title: "Leviticus 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
-  In this chapter we have the institution of the annual solemnity of the day of atonement, or expiation, which had as much gospel in it as perhaps any of the appointments of the cere...
+  Discover the profound meaning of Leviticus 16, detailing the ancient Day of Atonement ritual. This expert commentary explores how the High Priest's annual sacrifices typify the ultimate gospel of Christ's perfect atonement, offering deep biblical insight into sin, forgiveness, and reconciliation. Learn the powerful connection between ancient law and the New Testament truth of salvation.
 weight: 16
 ---
 

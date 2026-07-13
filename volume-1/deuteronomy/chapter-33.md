@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 33 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 33 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "33"
 description: >
-  Yet Moses has not done with the children of Israel; he seemed to have taken final leave of them in the close of the foregoing chapter, but still he has something more to say. He ha...
+  Discover the powerful final blessing from Moses in Deuteronomy 33. This chapter offers profound prophecies about the inheritance, divine law, and God's incredible providence over the tribes of Israel. Explore the covenant promises and understand the enduring message of hope and blessing.
 weight: 33
 ---
 

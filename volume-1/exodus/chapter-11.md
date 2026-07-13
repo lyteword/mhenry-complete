@@ -1,8 +1,8 @@
 ---
-title: "Exodus 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
-  Pharaoh had told Moses to get out of his presence (Ex 10:28), and Moses had promised this should be the last time he would trouble him, yet he resolves to say out what he had to sa...
+  Discover the dramatic climax of the Exodus story in this deep dive into Exodus Chapter 11, exploring the terrifying final plague—the death of the firstborn in Egypt. This biblical commentary analyzes the divine instructions given to Moses, the immense favor shown to Israel, and Pharaoh's stubborn refusal, offering profound insights into God's power and the ultimate deliverance of His people. Uncover the significance of the Plagues of Egypt and the hardening of Pharaoh's heart.
 weight: 11
 ---
 

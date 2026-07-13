@@ -1,8 +1,8 @@
 ---
-title: "Exodus 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
-  This chapter introduces the solemnity of the giving of the law upon Mount Sinai, which was one of the most striking appearances of the divine glory that ever was in this lower worl...
+  Discover the profound solemnity of the covenant as detailed in Exodus 19. This chapter explores the divine giving of the Law upon Mount Sinai, the spectacular appearance of God's glory, and the conditions for Israel to become a holy nation. Learn about the requirements of obedience, divine sovereignty, and the deep meaning behind this foundational biblical event.
 weight: 19
 ---
 

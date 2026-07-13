@@ -1,8 +1,8 @@
 ---
-title: "Numbers 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
-  God having set up house (as it were) in the midst of the camp of Israel, the princes of Israel here come a visiting with their presents, as tenants to their landlord, in the name o...
+  Discover the profound history of the dedication of the Tabernacle in Numbers 7, detailing the generous and structured offerings made by the princes of Israel. This commentary explores the principles of divine providence, showcasing how God graciously accepted the devoted gifts, emphasizing the importance of proportional service and unwavering generosity. Explore this essential biblical narrative to understand the deep connection between human devotion and God's acceptance.
 weight: 7
 ---
 

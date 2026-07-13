@@ -1,8 +1,8 @@
 ---
-title: "Genesis 50 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 50 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "50"
 description: >
-  Here is, I. The preparation for Jacob's funeral, Ge 50:1-6. II. The funeral itself, Ge 50:7-14. III. The settling of a good understanding between Joseph and his brethren after the ...
+  Discover the profound themes of Genesis Chapter 50 as this detailed commentary explores Jacob's funeral, Joseph's reconciliation with his brothers, and the powerful promise of the land of Canaan. This deep dive into Joseph's life and death reveals profound lessons on forgiveness, divine providence, and the enduring hope found in God's promises for believers.
 weight: 50
 ---
 

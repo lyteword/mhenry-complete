@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
-  With this chapter Moses concludes his preface to the repetition of the statutes and judgments which they must observe to do. He repeats the general charge (De 11:1), and, having in...
+  Discover the powerful message of Deuteronomy 11 where Moses outlines the critical choice between God's blessing and a terrible curse. Learn how strict obedience to God's commandments secures prosperity, victory over enemies, and the inheritance of the Promised Land. Read this expert commentary to understand the covenant and ensure your path to blessing.
 weight: 11
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Exodus 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
-  We have here, I. God's kindness to Israel, in multiplying them exceedingly, (Ex 1:1-7). II. The Egyptians' wickedness to them, 1. Oppressing and enslaving them, (Ex 1:8-14). 2. Mur...
+  Explore the profound themes of Exodus 1 through this in-depth biblical commentary. Discover how God's kindness led to the multiplication of Israel despite Egyptian oppression and slavery. This powerful study explores divine providence, the power of faith during persecution, and the enduring promises of God to His people.
 weight: 1
 ---
 

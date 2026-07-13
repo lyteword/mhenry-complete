@@ -1,8 +1,8 @@
 ---
-title: "Leviticus 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  In this chapter we have the law concerning the peace-offerings, whether they were, I. Of the heard, a bullock or a heifer, Le 3:1-5. Or, II. Of the flock, either a lamb (Le 3:6-11)...
+  Explore Leviticus Chapter 3 to uncover the profound biblical laws concerning peace-offerings—whether of the herd or the flock. This commentary delves into the spiritual significance of these ancient sacrificial rites, exploring how peace signifies reconciliation and thanksgiving, and ultimately connecting these practices to Christ as our perfect peace-offering. Discover the deep theological meaning behind these sacrificial laws and their relevance to modern faith.
 weight: 3
 ---
 

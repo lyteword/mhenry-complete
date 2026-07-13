@@ -1,8 +1,8 @@
 ---
-title: "Genesis 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
-  In this chapter we have, I. Isaac, the child of promise born into Abraham's family, Ge 21:1-8. II. Ishmael, the son of the bondwoman, cast out of it, Ge 21:9-21. III. Abraham's lea...
+  Discover the profound fulfillment of God's promise in Genesis 21 as we explore the birth of Isaac and Abraham's obedience. This chapter offers deep insights into the distinction between the covenant seed and Ishmael's lineage, along with powerful lessons on divine providence, mercy, and the establishment of lasting covenants.
 weight: 21
 ---
 

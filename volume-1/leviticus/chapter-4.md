@@ -1,8 +1,8 @@
 ---
-title: "Leviticus 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
-  This chapter is concerning the sin-offering, which was properly intended to make atonement for a sin committed through ignorance, I. By the priest himself, Le 4:1-12. Or, II. By th...
+  Explore Leviticus Chapter 4 to deeply understand the Law of the Sin-Offering, examining how atonement was provided for sins committed through ignorance. This powerful commentary explores the profound theological significance of blood sacrifice, revealing how this ancient ritual foreshadows Christ's perfect, once-for-all sacrifice and ultimate forgiveness. Discover the timeless principles of repentance and redemption found in this essential biblical passage.
 weight: 4
 ---
 

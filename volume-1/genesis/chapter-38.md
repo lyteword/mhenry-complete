@@ -1,8 +1,8 @@
 ---
-title: "Genesis 38 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 38 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "38"
 description: >
-  This chapter gives us an account of Judah and his family, and such an account it is that one would wonder that, of all Jacob's sons, our Lord should spring out of Judah, Heb 7:14. ...
+  Explore the dramatic narrative of Genesis 38, detailing Judah's scandalous actions, including his incest with Tamar and the subsequent shame. Discover how this pivotal story unfolds the lineage that leads to the Messiah, highlighting themes of sin, grace, and divine providence in this powerful chapter.
 weight: 38
 ---
 

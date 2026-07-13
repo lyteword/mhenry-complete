@@ -1,8 +1,8 @@
 ---
-title: "Numbers 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  In this chapter we have, I. The law concerning Nazarites, 1. What it was to which the vow of a Nazarite obliged him, Nu 6:1-8. 2. A remedial law in case a Nazarite happened to be p...
+  Explore the profound biblical text of Numbers Chapter 6, delving into the ancient law of the Nazarite, its requirements for purity, and the solemn instructions for priestly blessings. This detailed commentary unpacks the spiritual significance of separation unto the Lord and reveals how the concept of a spiritual Nazarite relates to the Christian life. Discover the powerful themes of consecration, divine blessing, and enduring holiness.
 weight: 6
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  Moses, in this chapter, relates, I. The conquest of Og, king of Bashan, and the seizing of his country, De 3:1-11. II. The distribution of these new conquests to the two tribes and...
+  Discover the detailed account of the conquest of Bashan and the equitable distribution of land in Deuteronomy Chapter 3. This passage highlights how God empowered Israel through Joshua, ensuring the fulfillment of divine promises and the rightful inheritance of the Promised Land. Explore the powerful themes of divine encouragement, tribal allotments, and the steadfast faith required for victory.
 weight: 3
 ---
 

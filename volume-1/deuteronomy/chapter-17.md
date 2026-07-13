@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
-  The charge of this chapter is, I. Concerning the purity and perfection of all those animals that were offered in sacrifice, De 17:1. II. Concerning the punishment of those that wor...
+  Explore Deuteronomy Chapter 17 to understand the strict biblical laws regarding the purity of sacrifices and the severe punishment for idolatry. Discover the criteria for choosing a righteous king and the crucial judicial authority structure of ancient Israel. This commentary offers deep insights into covenant, worship, and righteous governance.
 weight: 17
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Leviticus 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
-  Here is, I. The law of the trespass-offering (Le 7:1-7), with some further directions concerning the burnt-offering and the meat-offering, Le 7:8-10. II. The law of the peace-offer...
+  Dive deep into Leviticus Chapter 7 to explore the detailed laws governing the trespass, burnt, meat, and peace offerings. Discover the intricate rules of the priesthood, sacrificial rites, and the profound theological meaning behind these ancient rituals. Understand how these laws connect to the ultimate sacrifice of Christ and the necessity of true devotion.
 weight: 7
 ---
 

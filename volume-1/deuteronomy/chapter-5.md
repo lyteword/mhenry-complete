@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
-  In this chapter we have the second edition of the ten commandments. I. The general intent of them; they were in the nature of a covenant between God and Israel, De 5:1-5. II. The p...
+  Dive deep into Deuteronomy 5 with this expert commentary to unlock the profound meaning behind the Ten Commandments and the covenant relationship with God. Discover the significance of Moses as the mediator and learn how faithful obedience leads to a blessed and long life. Explore the powerful themes of divine law, covenant, and spiritual guidance for a deeper understanding of scripture.
 weight: 5
 ---
 

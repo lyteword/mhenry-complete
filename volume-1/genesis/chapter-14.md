@@ -1,8 +1,8 @@
 ---
-title: "Genesis 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
-  We have four things in the story of this chapter. I. A war with the king of Sodom and his allies, Ge 14:1-11. II. The captivity of Lot in that war, Ge 14:12. III. Abram's rescue of...
+  Uncover the epic tale of Genesis Chapter 14, detailing Abram’s courageous military expedition to rescue his friend Lot from the kings of Sodom. This powerful biblical narrative showcases supreme leadership, strategic brilliance, and selfless charity, illustrating how faith triumphs over conflict. Discover profound lessons on true courage and divine providence in this essential story of Abram's victory and generosity.
 weight: 14
 ---
 

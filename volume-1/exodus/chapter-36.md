@@ -1,8 +1,8 @@
 ---
-title: "Exodus 36 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 36 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "36"
 description: >
-  In this chapter, I. The work of the tabernacle is begun, Ex 36:1-4. II. A stop is put to the people's contributions, Ex 36:5-7. III. A particular account is given of the making of ...
+  Explore Exodus 36 to see the foundational work of the tabernacle, detailing the intricate construction of curtains, boards, and the profound symbolism of the church. Discover how divine wisdom and unity build a spiritual house, offering powerful biblical parallels for modern believers seeking holiness and fellowship.
 weight: 36
 ---
 

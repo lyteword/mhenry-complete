@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 29 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 29 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "29"
 description: >
-  The first words of this chapter are the contents of it, "These are the words of the covenant" (De 29:1), that is, these that follow. Here is, I. A recital of God's dealings with th...
+  Uncover the profound meaning of Deuteronomy 29 as you explore the renewal of the covenant, the history of Israel's journey, and the terrifying consequences of idolatry. This expert commentary illuminates the secrets of God's law, offering vital guidance on obedience and distinguishing between revealed and hidden truths.
 weight: 29
 ---
 

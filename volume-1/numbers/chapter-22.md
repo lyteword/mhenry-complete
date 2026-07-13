@@ -1,8 +1,8 @@
 ---
-title: "Numbers 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
-  At this chapter begins the famous story of Balak and Balaam, their attempt to curse Israel, and the baffling of that attempt; God's people are long afterwards told to remember what...
+  Uncover the gripping biblical narrative in Numbers 22, detailing Balak's attempt to curse Israel through the prophet Balaam. This deep dive explores the intense temptation, the surprising divine restraint, and the powerful intervention of God, emphasizing the blessing and protection afforded to God's people. Discover profound insights into prophecy, sin, and God's unwavering defense.
 weight: 22
 ---
 

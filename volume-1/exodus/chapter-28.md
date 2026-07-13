@@ -1,8 +1,8 @@
 ---
-title: "Exodus 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
-  Orders being given for the fitting up of the place of worship, in this and the following chapter care is taken about the priests that were to minister in this holy place, as the me...
+  Explore the profound symbolism of Exodus 28, detailing the sacred orders for the priests' garments—the ephod and breastplate of judgment—and their deep theological meaning. This commentary reveals how the ancient attire served as a powerful foreshadowing of Christ, symbolizing ultimate holiness, righteousness, and the mediation of the High Priest. Discover the rich history and enduring spiritual lessons embedded in these foundational biblical descriptions.
 weight: 28
 ---
 

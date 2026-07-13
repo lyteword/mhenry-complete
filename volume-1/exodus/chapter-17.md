@@ -1,8 +1,8 @@
 ---
-title: "Exodus 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
-  Two passages of story are recorded in this chapter, I. The watering of the host of Israel. 1. In the wilderness they wanted water, Ex 17:1. 2. In their want they chided Moses, Ex 1...
+  Discover the profound spiritual lessons of Exodus 17, exploring the Israelites' thirst and their temptation of God, and how Moses's powerful intercession led to the miraculous water from a rock. This chapter serves as a compelling guide on enduring trials by trusting in God's provision and achieving victory through unwavering faith and prayer. Learn how to rely on God's grace when facing spiritual warfare and doubt.
 weight: 17
 ---
 

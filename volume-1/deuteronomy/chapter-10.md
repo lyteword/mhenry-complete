@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
-  Moses having, in the foregoing chapter, reminded them of their own sin, as a reason why they should not depend upon their own righteousness, in this chapter he sets before them God...
+  Explore Deuteronomy Chapter 10 to understand God's incredible mercy and the covenant He established with Israel. Discover the profound reasons for obedience, including the importance of service, loving strangers, and purifying the heart. Learn how God's great power and grace inspire a life of faithful devotion and lasting happiness.
 weight: 10
 ---
 

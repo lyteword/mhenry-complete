@@ -1,8 +1,8 @@
 ---
-title: "Exodus 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
-  The eighth and ninth of the plagues of Egypt, that of locusts and that of darkness, are recorded in this chapter. I. Concerning the plague of locusts, 1. God instructs Moses in the...
+  Uncover the profound theological depth of Exodus 10 with this detailed commentary on the plagues of Egypt, focusing on the devastating forces of locusts and darkness. Explore God's overwhelming sovereignty, Pharaoh's hardened heart, and the powerful contrast between divine light and spiritual darkness. Gain deep insight into biblical prophecy and divine providence through this essential study.
 weight: 10
 ---
 

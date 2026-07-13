@@ -1,8 +1,8 @@
 ---
-title: "Numbers 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
-  The date of the history contained in this chapter is altogether uncertain. Probably these mutinies happened after their removal back again from Kadesh-barnea, when they were fixed ...
+  Dive deep into Numbers Chapter 16 to explore the dramatic rebellion led by Korah, Dathan, and Abiram against Moses and Aaron over the priesthood. This commentary analyzes the intense conflict, Moses's humble response, and the profound divine judgment that serves as a powerful lesson on the dangers of pride and challenging God's established authority. Discover the biblical narrative detailing how God's power intervenes, offering enduring insights into obedience and divine justice.
 weight: 16
 ---
 

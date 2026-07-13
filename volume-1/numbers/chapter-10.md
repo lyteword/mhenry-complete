@@ -1,8 +1,8 @@
 ---
-title: "Numbers 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
-  In this chapter we have, I. Orders given about the making and using of silver trumpets, which seems to have been the last of all the commandments God gave upon Mount Sinai, and one...
+  Explore Numbers Chapter 10 to discover the profound instructions given by God regarding the making and use of silver trumpets for calling assemblies and leading the camp's journey into the wilderness. This commentary delves into Moses's leadership, the removal from Mount Sinai, and the powerful theme of divine direction that guided Israel's path.
 weight: 10
 ---
 

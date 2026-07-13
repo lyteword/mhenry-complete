@@ -1,8 +1,8 @@
 ---
-title: "Exodus 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
-  The laws of this chapter relate, I. To the eighth commandment, concerning theft (Ex 22:1-4), trespass by cattle (Ex 22:5), damage by fire (Ex 22:6), trusts (Ex 22:7-13), borrowing ...
+  Explore Exodus 22, a profound chapter detailing the ancient Israelite laws on justice, property, and morality. This commentary delves into critical themes such as theft, trusts, the sanctity of oaths, social justice for the poor, and capital laws against witchcraft and idolatry. Discover the enduring principles of moral law and accountability found in this essential biblical text.
 weight: 22
 ---
 

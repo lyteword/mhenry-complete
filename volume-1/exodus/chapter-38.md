@@ -1,8 +1,8 @@
 ---
-title: "Exodus 38 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 38 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "38"
 description: >
-  Here is an account, I. Of the making of the brazen altar (Ex 38:1-7), and the laver, Ex 38:8. II. The preparing of the hangings for the enclosing of the court in which the tabernac...
+  Explore the detailed construction of the Tabernacle in Exodus 38, examining the symbolic use of gold, silver, and brass in the brazen altar and the cleansing laver. Discover how this powerful biblical account reveals profound theological truths about spiritual preparation and the gradual approach to God's presence. This deep dive into Exodus 38 uncovers the intricate details of the sacred furnishings that foreshadow the grace found in Christ.
 weight: 38
 ---
 

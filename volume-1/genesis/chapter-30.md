@@ -1,8 +1,8 @@
 ---
-title: "Genesis 30 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 30 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "30"
 description: >
-  In this chapter we have an account of the increase, I. Of Jacob's family. Eight children more we find registered in this chapter; Dan and Naphtali by Bilhah, Rachel's maid, Ge 30:1...
+  Discover the profound lessons in Genesis 30 as Jacob's family grows and he navigates a shrewd bargain with Laban. This chapter offers deep biblical commentary on themes of divine providence, human envy, and the power of diligent planning to secure blessing. Explore how honesty and ingenuity lead to extraordinary growth and provision.
 weight: 30
 ---
 

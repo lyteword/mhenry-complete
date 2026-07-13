@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
-  Moses in this chapter exhorts Israel, I. In general, to keep God's commandments, De 8:11,12. II. In particular, and in order to that, to keep themselves pure from all communion wit...
+  Discover the profound lessons of Deuteronomy Chapter 7, where Moses delivers a powerful call to uphold God's commandments and utterly destroy the seven devoted nations. This deep dive explores the critical warnings against idolatry, the necessity of covenant faithfulness, and the incredible promise of God's mercy and blessing for those who choose holiness. Learn how to navigate spiritual warfare and secure God's favor through obedience.
 weight: 7
 ---
 

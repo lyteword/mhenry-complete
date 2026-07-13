@@ -1,8 +1,8 @@
 ---
-title: "Leviticus 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
-  The former chapter directed the priests how to convict a leper of ceremonial uncleanness. No prescriptions are given for his cure; but, when God had cured him, the priests are in t...
+  Explore Leviticus Chapter 14 to understand the detailed biblical law concerning leprosy, which serves as a powerful typology for Christ's atonement. This chapter deeply explores the connection between physical cleansing and spiritual purification through the imagery of blood and sacrifice, offering profound insights into repentance and God's mercy. Learn how this ancient text illuminates the path to true cleansing and restoration in Christian life.
 weight: 14
 ---
 

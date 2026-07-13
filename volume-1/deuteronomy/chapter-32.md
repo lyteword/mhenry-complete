@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 32 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 32 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "32"
 description: >
-  In this chapter we have, I. The song which Moses, by the appointment of God, delivered to the children of Israel, for a standing admonition to them, to take heed of forsaking God. ...
+  Dive deep into Deuteronomy 32 with this comprehensive commentary, exploring the powerful Song of Moses that serves as a standing admonition to Israel. This analysis reveals the profound character of God—the Rock of perfect justice—contrasted sharply with the corruption and ingratitude of the people. Discover the biblical prophecies of divine judgment, the call for true devotion, and the enduring lessons on covenant faithfulness.
 weight: 32
 ---
 

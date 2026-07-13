@@ -1,8 +1,8 @@
 ---
-title: "Leviticus 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
-  After the laws concerning clean and unclean food come the laws concerning clean and unclean persons; and the first is in this chapter concerning the ceremonial uncleanness of women...
+  Explore Leviticus 12 to understand the ancient laws of ceremonial uncleanness and purification for women after childbirth. This commentary delves into the theological meaning of these rites, linking maternal purity to the corruption of sin and the ultimate redemption found in Christ. Discover the profound biblical context of these essential passages in this in-depth commentary.
 weight: 12
 ---
 

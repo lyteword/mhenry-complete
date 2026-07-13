@@ -1,8 +1,8 @@
 ---
-title: "Exodus 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
-  This chapter is concerning Moses himself, and the affairs of his own family. I. Jethro his father-in-law brings to him his wife and children, Ex 18:1-6. II. Moses entertains his fa...
+  Explore Exodus Chapter 18 to discover the wisdom behind Moses's leadership. Learn how Jethro, his father-in-law, advised Moses on establishing an efficient judicial system for Israel by delegating authority to lesser magistrates. This chapter highlights the importance of wise counsel and prudent governance in leading a nation.
 weight: 18
 ---
 

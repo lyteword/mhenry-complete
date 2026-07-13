@@ -1,8 +1,8 @@
 ---
-title: "Leviticus 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
-  After the law concerning the atonement to be made for all Israel by the high priest, at the tabernacle, with the blood of bulls and goats, in this chapter we have two prohibitions ...
+  Explore Leviticus Chapter 17 to uncover the profound laws concerning sacrifices and the strict prohibition against eating blood. This chapter deeply explores how these ancient regulations served to guard the honor of God's tabernacle, prevent idolatry, and ultimately point toward the true, final atonement found in Christ's blood. Understand the historical and theological significance of these sacred commandments for deep biblical insight.
 weight: 17
 ---
 

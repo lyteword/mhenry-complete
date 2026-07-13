@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
-  In this chapter we have, I. The toleration of divorce, De 24:1-4. II. A discharge of new-married men from the war, De 24:5. III. Laws concerning pledges, De 24:6,10-13,17. IV. Agai...
+  Explore Deuteronomy 24 to uncover ancient laws on family matters, including strict rules governing divorce, pledges, and the rights of servants. This chapter delves into profound social ethics, emphasizing the necessity of justice for the poor, the dangers of oppression, and the importance of charity and generosity. Discover how divine law balances strict regulation with mercy to ensure fairness in society.
 weight: 24
 ---
 

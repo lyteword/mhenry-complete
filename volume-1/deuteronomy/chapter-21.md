@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
-  In this chapter provision is made, I. For the putting away of the guilt of blood from the land, when he that shed it had fled from justice, De 21:1-9. II. For the preserving of the...
+  Dive deep into Deuteronomy Chapter 21 with this expert commentary, exploring profound ancient Israelite laws concerning justice, family, and morality. This comprehensive overview covers critical themes such as procedures for dealing with undetected murder, the honorable treatment of captive women, the rules of inheritance for the firstborn, and the solemn execution of justice. Discover how these timeless biblical statutes illuminate the intersection of divine law, human conduct, and the pursuit of righteousness.
 weight: 21
 ---
 

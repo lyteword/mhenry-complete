@@ -1,8 +1,8 @@
 ---
-title: "Genesis 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
-  Jacob was a very honest good man, a man of great devotion and integrity, yet he had more trouble and vexation than any of the patriarchs. He left his father's house in a fright, we...
+  Explore the dramatic journey of Jacob's escape from Laban, revealing how divine providence guides his path and secures his future. This chapter showcases the power of faithfulness, the perils of envy, and the establishment of a profound covenant between two figures. Discover timeless lessons on integrity and God's protection in this essential biblical commentary.
 weight: 31
 ---
 

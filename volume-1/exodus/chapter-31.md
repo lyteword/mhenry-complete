@@ -1,8 +1,8 @@
 ---
-title: "Exodus 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
-  God is here drawing towards a conclusion of what he had to say to Moses upon the mount, where he had now been with him forty days and forty nights; and yet no more is recorded of w...
+  Discover the profound details of Exodus 31, where God appoints skilled artisans like Bezaleel and Aholiab to build the Tabernacle, demonstrating how divine wisdom empowers human skill. This chapter powerfully reinforces the sanctity of the Sabbath and reveals the significance of the Tablets of Testimony, offering deep theological insights into covenant, spiritual gifts, and holy rest. Explore the complete commentary for a detailed understanding of God's plan for worship and service.
 weight: 31
 ---
 

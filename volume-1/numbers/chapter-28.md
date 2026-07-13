@@ -1,8 +1,8 @@
 ---
-title: "Numbers 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
-  Now that the people were numbered, orders given for the dividing of the land, and a general of the forces nominated and commissioned, one would have expected that the next chapter ...
+  Discover the profound biblical ordinances of worship in Numbers Chapter 28, exploring the detailed laws concerning daily, monthly, and annual sacrifices. This commentary delves into the theological significance of the Passover and Pentecost feasts, connecting ancient worship rituals to modern Christian devotion and the enduring call to offer our lives as a continual sacrifice to God. Understand how these ancient statutes shape our understanding of faith, obedience, and eternal purpose.
 weight: 28
 ---
 

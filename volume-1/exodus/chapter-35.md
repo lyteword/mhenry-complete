@@ -1,8 +1,8 @@
 ---
-title: "Exodus 35 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 35 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "35"
 description: >
-  What should have been said and done upon Moses' coming down the first time from the mount, if the golden calf had not broken the measures and put all into disorder, now at last, wh...
+  Discover the divine blueprint for worship in Exodus 35, detailing the precise instructions for setting up the Tabernacle, from the sacred Sabbath observance to the required offerings and skilled workmanship. Learn how willing hearts and God-appointed master-workmen guide the construction of God's holy dwelling, providing profound spiritual lessons on dedication, generosity, and serving with divine wisdom. Unlock the principles of faithful service and purposeful creation through this essential biblical commentary.
 weight: 35
 ---
 

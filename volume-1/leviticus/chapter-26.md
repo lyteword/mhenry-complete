@@ -1,8 +1,8 @@
 ---
-title: "Leviticus 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
-  This chapter is a solemn conclusion of the main body of the levitical law. The precepts that follow in this and the following book either relate to some particular matters or are r...
+  Dive deep into Leviticus 26 to understand the profound dualities of God's covenant: the blessings promised for obedience and the severe judgments threatened for disobedience. Uncover the critical path to divine mercy through confession and repentance, revealing the enduring hope rooted in God's faithfulness to His promises.
 weight: 26
 ---
 

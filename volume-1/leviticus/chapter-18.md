@@ -1,8 +1,8 @@
 ---
-title: "Leviticus 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Leviticus 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
-  Here is, I. A general law against all conformity to the corrupt usages of the heathen, Le 18:1-5. II. Particular laws, 1. Against incest, Le 18:6-18. 2. Against beastly lusts, and ...
+  Explore Leviticus 18 to uncover the foundational moral laws against incest, idolatry, and sexual immorality. This chapter powerfully details God's ordinances, warning readers how adherence to these sacred statutes is the only path to life and holiness, contrasting worldly corruption with divine protection. Learn the profound significance of these biblical commands for living a righteous life.
 weight: 18
 ---
 

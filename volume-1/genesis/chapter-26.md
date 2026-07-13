@@ -1,8 +1,8 @@
 ---
-title: "Genesis 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
-  In this chapter we have, I. Isaac in adversity, by reason of a famine in the land, which, 1. Obliges him to change his quarters, Ge 26:1. But, 2. God visits him with direction and ...
+  Dive into Genesis 26 to explore the profound power of God's providence as Isaac navigates famine, temptation, and the envy of the Philistines. This chapter offers timeless lessons on perseverance, the importance of obedience, and how divine blessings secure enduring covenants.
 weight: 26
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  Moses, in this chapter, goes on with his charge to Israel, to be sure to keep up their religion in Canaan. It is much the same with De 4:1-40 I. His preface is a persuasive to obed...
+  Unlock the profound wisdom of Deuteronomy 6 with this expert SEO description. Discover the foundational principles of faith, from the oneness of God to the essential duty of loving Him with all your heart. Learn practical, biblical strategies for religious education, maintaining obedience, and securing your spiritual life against temptation to achieve true righteousness and God's blessing.
 weight: 6
 ---
 

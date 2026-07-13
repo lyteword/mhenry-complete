@@ -1,8 +1,8 @@
 ---
-title: "Numbers 32 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 32 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "32"
 description: >
-  In this chapter we have, I. The humble request of the tribes of Reuben and Gad for an inheritance on that side Jordan where Israel now lay encamped, Nu 32:1-5. II. Moses's misinter...
+  Explore Numbers 32 to understand the pivotal request and subsequent grant of land inheritance to the tribes of Reuben and Gad. This deep commentary analyzes Moses's decision, highlighting crucial biblical themes such as covetousness, pride, and the profound moral lessons woven into Israel's journey. Discover the spiritual and historical depth of this moment in the distribution of the Promised Land.
 weight: 32
 ---
 

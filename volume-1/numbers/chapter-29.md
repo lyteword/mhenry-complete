@@ -1,8 +1,8 @@
 ---
-title: "Numbers 29 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Numbers 29 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "29"
 description: >
-  This chapter appoints the offerings that were to be made by fire unto the Lord in the three great solemnities of the seventh month. I. In the feast of trumpets on the first day of ...
+  Explore Numbers 29 to understand the detailed instructions for the offerings during the major biblical feasts of the seventh month. This commentary delves into the structure of burnt offerings and sin sacrifices, offering deep theological insights into divine mercy and the enduring call to faithful worship. Discover how these ancient ordinances connect to modern devotion and the timeless pursuit of serving the Lord.
 weight: 29
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
-  In this chapter Moses gives orders, I. Concerning the release of debts, every seventh year (De 15:1-6), with a caution that this should be no hindrance to charitable lending, De 15...
+  Discover the profound wisdom of Deuteronomy Chapter 15, exploring ancient laws on debt release, charitable lending, and the release of servants. Learn how this chapter teaches crucial lessons on stewardship, compassion for the poor, and the blessing that comes from giving cheerfully. This commentary illuminates timeless spiritual principles for modern-day generosity and justice.
 weight: 15
 ---
 

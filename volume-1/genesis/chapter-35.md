@@ -1,8 +1,8 @@
 ---
-title: "Genesis 35 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Genesis 35 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "35"
 description: >
-  In this chapter we have three communions and three funerals. I. Three communions between God and Jacob. 1. God ordered Jacob to Beth-el; and, in obedience to that order, he purged ...
+  Discover the profound narrative of Genesis 35, tracing Jacob's journey to Bethel, where he fulfills his vow and reaffirms his covenant with God. Explore the essential themes of spiritual purification, divine protection, and the poignant farewells of three families, including the deaths of Rachel and Isaac. This commentary offers deep insights into Israel's spiritual legacy and the enduring nature of God's promises.
 weight: 35
 ---
 

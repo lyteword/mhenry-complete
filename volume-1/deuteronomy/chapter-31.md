@@ -1,8 +1,8 @@
 ---
-title: "Deuteronomy 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
-  In this chapter Moses, having finished his sermon, I. Encourages both the people who were now to enter Canaan (De 31:1-6), and Joshua who was to lead them, De 31:7,8,23. And, II. H...
+  Explore Deuteronomy Chapter 31 to discover Moses' powerful encouragement to Israel and Joshua as they enter Canaan, alongside profound prophecies about their future covenant relationship. This commentary delves into the solemn delivery of the Law, the assurance of God's unwavering presence, and the warnings of inevitable apostasy, providing deep spiritual insight for modern readers. Discover the biblical wisdom on leadership, divine promise, and the eternal consequences of obedience and disobedience.
 weight: 31
 ---
 

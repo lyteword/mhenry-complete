@@ -1,8 +1,8 @@
 ---
-title: "Exodus 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Exodus 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
-  In this chapter we have an account of three more of the plagues of Egypt. I. Murrain among the cattle, which was fatal to them, Ex 9:1-7. II. Boils upon man and beast, Ex 9:8-12. I...
+  Explore Exodus Chapter 9, detailing the terrifying sequence of plagues—from murrain among cattle to the devastating hail. This commentary explores how God's sovereign judgment against Pharaoh's hardened heart demonstrates His irresistible power and divine providence over Egypt. Discover Moses' role as an intercessor and the profound lessons in divine justice.
 weight: 9
 ---
 
