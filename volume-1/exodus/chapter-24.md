@@ -2,7 +2,7 @@
 title: "Exodus 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
 description: >
-  Moses, as mediator between God and Israel, having received divers laws and ordinances from God privately in the three foregoing chapters, in this chapter, I. Comes down to the peop...
+  Discover the profound covenant established in Exodus 24, where Moses mediates between God and Israel to receive and promulgate the divine laws. Explore the solemn exchange of the covenant through sacrifice and the breathtaking manifestation of God's glory on Mount Sinai. This commentary illuminates the deep meaning of obedience, grace, and the enduring nature of God's promises.
 weight: 24
 ---
 
