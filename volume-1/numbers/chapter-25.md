@@ -2,7 +2,7 @@
 title: "Numbers 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
 description: >
-  Israel, having escaped the curse of Balaam, here sustains a great deal of damage and reproach by the counsel of Balaam, who, it seems, before he left Balak, put him into a more eff...
+  Dive deep into Numbers Chapter 25 to explore the devastating consequences of Israel's sin, including idolatry and whoredom. Discover the dramatic story of Phinehas's zealous act that turned God's wrath away from the people. This commentary reveals profound biblical truths about divine justice and the power of righteous zeal against temptation.
 weight: 25
 ---
 
