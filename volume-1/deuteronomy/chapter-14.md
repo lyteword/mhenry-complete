@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Explore Deuteronomy Chapter 14 to understand how God distinguished Israel as a holy people through election, conduct, and devotion. This chapter details the biblical laws concerning diet, mourning practices, and the essential practices of tithing and charity for the poor. Discover the powerful principles of stewardship and faithfulness that define the covenant relationship with God.

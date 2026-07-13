@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Dive deep into Deuteronomy Chapter 21 with this expert commentary, exploring profound ancient Israelite laws concerning justice, family, and morality. This comprehensive overview covers critical themes such as procedures for dealing with undetected murder, the honorable treatment of captive women, the rules of inheritance for the firstborn, and the solemn execution of justice. Discover how these timeless biblical statutes illuminate the intersection of divine law, human conduct, and the pursuit of righteousness.

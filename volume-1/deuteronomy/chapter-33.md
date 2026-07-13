@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 33 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 33 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "33"
 description: >
   Discover the powerful final blessing from Moses in Deuteronomy 33. This chapter offers profound prophecies about the inheritance, divine law, and God's incredible providence over the tribes of Israel. Explore the covenant promises and understand the enduring message of hope and blessing.

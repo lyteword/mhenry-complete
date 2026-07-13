@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore Deuteronomy Chapter 2 with this detailed biblical commentary to understand Moses' instructions for Israel's journey to Canaan. Discover the divine providence behind conquering Sihon and navigating complex relations with the Moabites, Edomites, and Ammonites. Learn profound lessons on obedience, warfare, and God's ultimate plan for Israel's destiny.

@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 30 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 30 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "30"
 description: >
   Explore Deuteronomy 30 to understand the covenant of grace: how sincere repentance unlocks God's mercy, leading to restoration and abundant blessings. Uncover the profound truth that the Gospel makes obedience simple, offering you a clear path to life and eternal joy by loving and obeying God's voice.

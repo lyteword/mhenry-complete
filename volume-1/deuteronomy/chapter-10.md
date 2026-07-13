@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Explore Deuteronomy Chapter 10 to understand God's incredible mercy and the covenant He established with Israel. Discover the profound reasons for obedience, including the importance of service, loving strangers, and purifying the heart. Learn how God's great power and grace inspire a life of faithful devotion and lasting happiness.

@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
   Uncover the complete laws and ordinances of war in Deuteronomy Chapter 20 with this expert commentary. This in-depth guide explores the biblical directives for encouraging soldiers, negotiating peace treaties, and the ethical rules governing military campaigns, providing essential insights into ancient Israel's approach to conflict and strategy. Essential reading for understanding biblical military ethics and warfare principles.

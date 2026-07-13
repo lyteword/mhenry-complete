@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Explore Deuteronomy Chapter 17 to understand the strict biblical laws regarding the purity of sacrifices and the severe punishment for idolatry. Discover the criteria for choosing a righteous king and the crucial judicial authority structure of ancient Israel. This commentary offers deep insights into covenant, worship, and righteous governance.

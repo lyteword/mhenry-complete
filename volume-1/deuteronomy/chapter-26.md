@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
   Explore Deuteronomy 26 to uncover profound lessons on stewardship, gratitude, and covenant faithfulness. This chapter details the sacred practices of offering first-fruits and the proper administration of tithes, emphasizing humility, community care for the poor, and recognizing God as the ultimate provider. Discover how Israel was called to live as a holy people by obeying God's commands and embracing thankfulness for His blessings.

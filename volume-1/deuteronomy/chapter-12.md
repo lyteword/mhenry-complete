@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Dive into Deuteronomy Chapter 12 to understand Moses' crucial instructions on eradicating all idolatry and establishing the correct worship of the true God. This deep dive covers the laws regarding sacrifices, the sacred chosen place, and the vital distinction between honoring God and succumbing to false worship. Gain profound insight into biblical law and the foundation of true Christian devotion.

@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 34 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 34 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "34"
 description: >
   Dive deep into Deuteronomy 34 with this comprehensive biblical analysis of Moses' death, burial, and enduring legacy. Uncover profound theological insights on faith, divine providence, and the transition of leadership, connecting Moses' life to the ultimate promise of Christ. Explore the significance of his final journey and the meaning of his servant status in the Old Testament.

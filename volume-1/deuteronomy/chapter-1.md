@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore Deuteronomy Chapter 1, featuring Moses's powerful farewell sermon that recounts the journey from the wilderness to the promised land of Canaan. This in-depth commentary explores the critical lessons of faith, the dangers of unbelief, and the divine call for obedience, offering profound insights into God's covenant promises and the true meaning of spiritual perseverance.

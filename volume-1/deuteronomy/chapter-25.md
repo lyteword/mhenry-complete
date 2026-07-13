@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
   Explore the profound legal and moral landscape of Deuteronomy Chapter 25, delving into ancient Israelite laws on justice, mercy, and social order. This chapter details crucial regulations concerning criminal punishment, family kinship laws, fair weights and measures, and the divine mandate for historical remembrance. Discover how these precepts illuminate the balance between righteous judgment and compassionate stewardship in the eyes of God.

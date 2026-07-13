@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Unlock the profound wisdom of Deuteronomy 6 with this expert SEO description. Discover the foundational principles of faith, from the oneness of God to the essential duty of loving Him with all your heart. Learn practical, biblical strategies for religious education, maintaining obedience, and securing your spiritual life against temptation to achieve true righteousness and God's blessing.

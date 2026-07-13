@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Explore Deuteronomy 8 to uncover profound biblical wisdom on navigating prosperity and temptation. This commentary examines God's past provision in the wilderness, the promise of the rich land, and crucial warnings against pride and forgetting God amidst worldly success. Discover how to maintain humility and obedience so that true spiritual wealth endures.

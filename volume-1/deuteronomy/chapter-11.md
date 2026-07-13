@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Discover the powerful message of Deuteronomy 11 where Moses outlines the critical choice between God's blessing and a terrible curse. Learn how strict obedience to God's commandments secures prosperity, victory over enemies, and the inheritance of the Promised Land. Read this expert commentary to understand the covenant and ensure your path to blessing.

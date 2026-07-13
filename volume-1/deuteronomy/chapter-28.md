@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
   Dive deep into Deuteronomy 28 with this comprehensive commentary, exploring the powerful duality of God's blessings and curses. This detailed analysis reveals the specific promises of national prosperity and the severe divine judgments awaiting those who disobey, offering profound insights into covenant, repentance, and the true cost of disobedience. Understand the warning and the hope woven into God's law.

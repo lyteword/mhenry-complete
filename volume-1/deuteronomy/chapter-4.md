@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Dive deep into Deuteronomy Chapter 4 to explore a powerful call to obedience, urging Israel to uphold the covenant and avoid the deadly pitfalls of idolatry. This profound commentary examines the majesty of God—His jealousy, mercy, and eternal sovereignty—while highlighting the immense privilege of the chosen people and the critical necessity of keeping divine law for a prosperous life.

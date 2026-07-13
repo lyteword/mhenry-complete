@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Explore Deuteronomy Chapter 16 to deeply understand the profound significance of the three yearly feasts: Passover, Pentecost, and Tabernacles. Discover the ancient laws governing sacred observance, the importance of joyful gratitude, and the principles of just governance and avoiding idolatry. This commentary reveals how ancient Israel maintained a faithful relationship with God through worship, righteousness, and remembrance.

@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Explore Deuteronomy 27 to understand the profound covenant between God and Israel, detailing the solemn acts required for entering the promised land, including writing the law on stones and offering sacrifices. Discover the specific blessings and severe curses tied to obedience, and learn how Christ's sacrifice offers ultimate redemption from the law's curse.

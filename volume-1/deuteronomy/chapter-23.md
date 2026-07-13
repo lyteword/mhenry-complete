@@ -1,5 +1,5 @@
 ---
-title: "Deuteronomy 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Deuteronomy 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
   Explore the profound laws of Deuteronomy Chapter 23, detailing ancient Israel's comprehensive guidelines on purity, social conduct, and economic fairness. This chapter covers everything from laws of separation and maintaining camp sanctity to protections for fugitives and regulations on usury, offering deep insight into biblical justice and community order.
