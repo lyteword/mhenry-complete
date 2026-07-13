@@ -2,7 +2,7 @@
 title: "Numbers 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
 description: >
-  Hitherto things had gone pretty well in Israel; little interruption had been given to the methods of God's favour to them since the matter of the golden calf; the people seemed tea...
+  Discover the profound lessons in Numbers Chapter 11, exploring how the Israelites' murmuring and discontentment led to divine judgment. This commentary delves into Moses's role, God's gracious provision of flesh, and the critical warning against earthly lusts versus true spiritual faith. Understand why discontentment brings ruin and the necessity of trusting God's word amidst trials.
 weight: 11
 ---
 
