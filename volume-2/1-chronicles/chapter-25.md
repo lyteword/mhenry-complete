@@ -2,7 +2,7 @@
 title: "1 Chronicles 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
 description: >
-  David, having settled the courses of these Levites that were to attend the priests in their ministrations, proceeds, in this chapter, to put those into a method that were appointed...
+  Discover the divine organization of temple worship in 1 Chronicles 25. This commentary explores how David structured the Levites as singers and musicians, detailing the methods of selection by lot and the profound spiritual significance of praise and musical service. Uncover the theological principles behind God's order, the role of music in worship, and the importance of training for spiritual edification.
 weight: 25
 ---
 
