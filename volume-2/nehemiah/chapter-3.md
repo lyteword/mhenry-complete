@@ -2,7 +2,7 @@
 title: "Nehemiah 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  Saying and doing are often two things: many are ready to say, "Let us rise up and build," who sit still and do nothing, like that fair-spoken son who said, "I go, Sir, but went not...
+  Dive into Nehemiah chapter 3 to explore the incredible, collaborative effort of rebuilding the wall of Jerusalem. Discover how priests, nobles, merchants, and common people worked together with zeal and dedication for the public good. This commentary highlights the spiritual commitment and teamwork required for such monumental historical projects in ancient Israel.
 weight: 3
 ---
 
