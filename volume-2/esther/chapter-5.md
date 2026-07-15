@@ -2,7 +2,7 @@
 title: "Esther 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
 description: >
-  The last news we had of Haman left him in his cups, Es 3:15. Our last news of queen Esther left her in tears, fasting and praying. Now this chapter brings in, I. Esther in her joys...
+  Explore Esther Chapter 5 in this in-depth Bible commentary. Discover the drama of Queen Esther's bold petition to the king and the bitter rise of Haman's pride and revenge against Mordecai. Learn profound lessons on courage, the power of prayer, and how God works through even the most wicked schemes.
 weight: 5
 ---
 
