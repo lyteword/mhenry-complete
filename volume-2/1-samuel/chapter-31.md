@@ -2,7 +2,7 @@
 title: "1 Samuel 31 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "31"
 description: >
-  In the foregoing chapter we had David conquering, yea, more than a conqueror. In this chapter we have Saul conquered and worse than a captive. Providence ordered it that both these...
+  Explore the dramatic account of 1 Samuel 31, detailing the tragic downfall and death of King Saul at Gilboa. This in-depth Bible commentary explores profound themes of divine judgment, the consequences of sin, and the crucial difference between worldly honor and true faith. Discover powerful lessons on God's providence and the path of righteousness.
 weight: 31
 ---
 
