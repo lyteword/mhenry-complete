@@ -2,7 +2,7 @@
 title: "Esther 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
 description: >
-  We are now to attend the second banquet to which the king and Haman were invited: and there, I. Esther presents her petition to the king for her life and the life of her people, Es...
+  Discover the powerful biblical narrative of Esther Chapter 7, where Queen Esther bravely petitions the King for her people's survival against the wicked Haman. This commentary explores themes of divine justice, the downfall of pride, and how righteous action leads to the ultimate defeat of evil, providing profound lessons in courage and providence. Read the full commentary to understand the triumph of good over wickedness.
 weight: 7
 ---
 
