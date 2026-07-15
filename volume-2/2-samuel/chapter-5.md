@@ -1,8 +1,8 @@
 ---
-title: "2 Samuel 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
-  How far Abner's deserting the house of Saul, his murder, and the murder of Ish-bosheth, might contribute to the perfecting of the revolution, and the establishing of David as king ...
+  Explore 2 Samuel 5 to discover how David was anointed king over Israel, conquered Jerusalem, and secured divine victory over the Philistines through powerful providence. This comprehensive commentary reveals the foundational establishment of the Messiah's kingdom and the role of God in guiding historical events.
 weight: 5
 ---
 

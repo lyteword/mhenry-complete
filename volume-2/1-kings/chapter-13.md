@@ -1,8 +1,8 @@
 ---
-title: "1 Kings 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
-  In the close of the foregoing chapter we left Jeroboam attending his altar at Beth-el, and there we find him in the beginning of this, when he received a testimony from God against...
+  Uncover the dramatic confrontation in 1 Kings 13 as a profound biblical commentary on the dangers of idolatry and the power of God's word. This chapter explores the conflict between a true prophet and a deceptive messenger, revealing deep truths about divine judgment, the pitfalls of false prophets, and the enduring nature of prophecy. Dive into the story of Jeroboam's downfall and discover how God executes justice through both warning and ultimate consequence.
 weight: 13
 ---
 

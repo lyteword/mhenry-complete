@@ -1,8 +1,8 @@
 ---
-title: "2 Chronicles 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
-  Here begin the life and reign of Jehoshaphat, who was one of the first three among the royal worthies, one of the best that ever swayed the sceptre of Judah since David's head was ...
+  Discover the inspiring reign of King Jehoshaphat of Judah in 2 Chronicles 17. Learn how his deep piety, commitment to religious reform, and walking in God's ways led to immense prosperity and the fear of neighboring nations. This commentary explores the balance between spiritual strength and military might in ancient Israel, revealing how faith established his kingdom's lasting success.
 weight: 17
 ---
 

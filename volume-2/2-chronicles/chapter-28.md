@@ -1,8 +1,8 @@
 ---
-title: "2 Chronicles 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
-  This chapter is the history of the reign of Ahaz the son of Jotham; a bad reign it was, and which helped to augment the fierce anger of the Lord. We have here, I. His great wickedn...
+  Explore 2 Chronicles 28 to understand the tragic reign of King Ahaz, who succumbed to severe idolatry and wickedness. This commentary delves into the devastating consequences of forsaking God, including military defeat, captivity, and divine judgment. Discover profound biblical lessons on the dangers of sin and the necessity of repentance.
 weight: 28
 ---
 

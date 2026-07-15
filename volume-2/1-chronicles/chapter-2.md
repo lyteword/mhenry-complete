@@ -1,8 +1,8 @@
 ---
-title: "1 Chronicles 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  We have now come to what was principally intended, the register of the children of Israel, that distinguished people, that were to "dwell alone, and not be reckoned among the natio...
+  Explore the detailed genealogy of the Children of Israel in 1 Chronicles 2, tracing the illustrious lineage of the Tribe of Judah that leads directly to the Messiah, David. Discover profound insights into the divine providence shaping these ancient family lines and the importance of scripture-learning families throughout biblical history.
 weight: 2
 ---
 

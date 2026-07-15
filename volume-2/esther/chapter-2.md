@@ -1,8 +1,8 @@
 ---
-title: "Esther 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Esther 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  Two things are recorded in this chapter, which were working towards the deliverance of the Jews from Haman's conspiracy:—I. The advancement of Esther to be queen instead of Vashti....
+  Discover the profound lessons in Esther Chapter 2, exploring how divine providence elevated Esther from an orphan Jewess to queen through her virtue and humility. This commentary delves into the crucial role of Mordecai's faithful service in uncovering a plot against the king, offering timeless insights on leadership, faithful service, and the power of God's plan. Read the complete biblical commentary for deep theological understanding.
 weight: 2
 ---
 

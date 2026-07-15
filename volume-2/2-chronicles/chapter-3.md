@@ -1,8 +1,8 @@
 ---
-title: "2 Chronicles 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  It was a much larger and more particular account of the building of the temple which we had in the book of Kings than is here in this book of Chronicles. In this chapter we have, I...
+  Explore the detailed account of Solomon's magnificent Temple construction in 2 Chronicles 3, detailing its dimensions, rich golden ornaments, and sacred architecture. This in-depth commentary reveals the profound theological significance of the Temple, from the cherubim and pillars to the veil, offering a deep dive into ancient history and biblical symbolism. Discover the blueprint of the holy house and its lasting spiritual meaning.
 weight: 3
 ---
 

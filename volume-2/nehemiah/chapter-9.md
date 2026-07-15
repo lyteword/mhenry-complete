@@ -1,8 +1,8 @@
 ---
-title: "Nehemiah 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
-  The tenth day of the seventh month between the feast of trumpets (Ne 8:2) and the feast of tabernacles (Ne 9:14) was appointed to be the day of atonement; we have no reason to thin...
+  Explore the profound theological lessons of Nehemiah 9, examining the journey from rebellion to restoration through a solemn fast and deep confession of sin. This commentary reveals how acknowledging God's boundless mercy and renewing your covenant commitment is the key to overcoming personal failings and finding true spiritual strength. Discover ancient wisdom on repentance, obedience, and the unwavering faithfulness of God.
 weight: 9
 ---
 

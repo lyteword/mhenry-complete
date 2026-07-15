@@ -1,8 +1,8 @@
 ---
-title: "2 Chronicles 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
-  We read, in the foregoing chapter, of the carrying away of Jehoram's sons and his wives; but here we find one of his sons and one of his wives left, his son Ahaziah and his wife At...
+  Explore the dramatic events of 2 Chronicles 22, detailing the downfall of the House of Ahab through the reign of Ahaziah and the usurpation by Athaliah. This in-depth biblical commentary explores themes of divine judgment, wicked counsel, and the ultimate triumph of God's anointed. Read our expert analysis to understand the history and theological significance of this pivotal chapter.
 weight: 22
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "1 Chronicles 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
-  The account we have of David's exit, in the beginning of the first book of Kings, does not make his sun nearly so bright as that given in this and the following chapter, where we h...
+  Explore 1 Chronicles Chapter 28 to understand David's solemn farewell and his crucial charge to Solomon to build the Temple. This detailed commentary reveals the divine mandate, the architectural patterns David provided, and the profound theological significance of the Temple as a type of Christ. Discover vital lessons on faith, perseverance, and divine guidance for any biblical scholar.
 weight: 28
 ---
 

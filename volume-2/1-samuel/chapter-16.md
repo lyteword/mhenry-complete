@@ -1,8 +1,8 @@
 ---
-title: "1 Samuel 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
-  At this chapter begins the story of David, one that makes as great a figure in the sacred story as almost any of the worthies of the Old Testament, one that both with his sword and...
+  Uncover the epic story of David's anointing in 1 Samuel 16. This in-depth biblical commentary explores the profound theological themes of God's sovereign plan, the contrast between Saul's failure and David's destiny, and the powerful role of the Holy Spirit in shaping a king. Discover why David, the overlooked shepherd, was chosen by God.
 weight: 16
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Judges 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
-  Samson, when he courted an alliance with the Philistines, did but seek an occasion against them, Jdg 14:4. Now here we have a further account of the occasions he took to weaken the...
+  Explore Judges Chapter 15 through this in-depth Bible commentary on Samson's dramatic life, analyzing his acts of vengeance, betrayal, and ultimate reliance on God. Discover powerful spiritual lessons on divine intervention, the paradox of strength and vulnerability, and trusting God during moments of intense distress. This commentary offers profound insights into justice, forgiveness, and the triumph of the Spirit over all earthly bonds.
 weight: 15
 ---
 

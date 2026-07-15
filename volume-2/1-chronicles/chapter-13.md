@@ -1,8 +1,8 @@
 ---
-title: "1 Chronicles 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
-  In the foregoing chapter we have David made king, by which the civil government was happily settled. In this chapter care is taken about religion. I. David consults with the repres...
+  Explore the profound narrative of 1 Chronicles 13, detailing David's courageous initiative to bring the Ark of God to Jerusalem, highlighting themes of national faith, reverence, and divine presence. This chapter offers timeless theological insights on leadership, the dangers of presumption, and the importance of honoring God's ordinances. Discover powerful lessons on worship, unity, and approaching the divine with true fear and joy.
 weight: 13
 ---
 

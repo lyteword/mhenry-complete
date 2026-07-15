@@ -1,8 +1,8 @@
 ---
-title: "Ezra 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezra 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
-  We left the temple-work at a full stop; but, being God's work, it shall be revived, and here we have an account of the reviving of it. It was hindered by might and power, but it wa...
+  Dive into Ezra Chapter 5 to witness the miraculous revival of the Temple project, illustrating how God uses prophets and divine providence to overcome political hindrance. This powerful biblical commentary explores the themes of perseverance, faith, and how divine decree leads to the fulfillment of God's eternal plans.
 weight: 5
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "1 Chronicles 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
-  "Out of the eater comes forth meat." It was upon occasion of the terrible judgment inflicted on Israel for the sin of David that God gave intimation of the setting up of another al...
+  Dive deep into 1 Chronicles 22 to understand the profound spiritual journey of David and Solomon as they prepare to build the Temple. Discover the lessons on diligence, divine guidance, and the true meaning of service when undertaking monumental works for God. This commentary explores the significance of preparation, wisdom, and seeking God's will in great endeavors.
 weight: 22
 ---
 

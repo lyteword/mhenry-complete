@@ -1,8 +1,8 @@
 ---
-title: "Ezra 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezra 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
-  This chapter gives us a more particular narrative of Ezra's journey to Jerusalem, of which we had a general account in the foregoing chapter I. The company that went up with him, E...
+  Explore the detailed narrative of Ezra's journey to Jerusalem, focusing on the spiritual discipline, diligent stewardship of the temple treasure, and the role of divine providence. Discover how faith, prayer, and faithful service led to the successful rebuilding of God's house. This commentary provides deep insights into biblical leadership and perseverance.
 weight: 8
 ---
 

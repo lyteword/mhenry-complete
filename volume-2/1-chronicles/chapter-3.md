@@ -1,8 +1,8 @@
 ---
-title: "1 Chronicles 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  Of all the families of Israel none was so illustrious as the family of David. That is the family which was mentioned in the foregoing chapter, 1Ch 2:15. Here we have a full account...
+  Uncover the illustrious Family of David in this in-depth commentary, tracing the royal lineage through his sons and successors. Explore the profound connection between this pivotal biblical history and the promised Messiah, offering deep insights into ancient Israelite genealogy and prophetic scripture. Perfect for Bible study and understanding the foundation of the New Testament.
 weight: 3
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Nehemiah 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
-  Jerusalem was walled round, but it was not as yet fully inhabited, and therefore was weak and despicable. Nehemiah's next care is to bring people into it; of that we have here an a...
+  Dive deep into Nehemiah 11 to uncover the powerful story of Jerusalem's re-peopling. This detailed biblical commentary explores how the city was populated by rulers, priests, and Levites, analyzing the ancient distribution methods and the spiritual significance behind establishing a holy habitation.
 weight: 11
 ---
 

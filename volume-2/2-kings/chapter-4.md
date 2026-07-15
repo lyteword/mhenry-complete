@@ -1,8 +1,8 @@
 ---
-title: "2 Kings 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
-  Great service Elisha had done, in the foregoing chapter, for the three kings: to his prayers and prophecies they owed their lives and triumphs. One would have expected that the nex...
+  Discover the powerful miracles of Elisha in 2 Kings 4, featuring acts of profound charity like multiplying oil for a widow and the miraculous raising of a dead son. This chapter illuminates the incredible power of divine providence, teaching believers how to use their resources wisely and trust in God's goodness during times of need. Explore deep theological lessons on faith, hospitality, and abundant provision.
 weight: 4
 ---
 

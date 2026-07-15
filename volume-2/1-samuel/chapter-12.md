@@ -1,8 +1,8 @@
 ---
-title: "1 Samuel 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
-  We left the general assembly of the states together, in the close of the foregoing chapter; in this chapter we have Samuel's speech to them, when he resigned the government into th...
+  Dive into 1 Samuel 12 with this deep commentary, featuring Samuel's powerful farewell address to Israel. Explore profound themes of leadership, divine accountability, and the critical choice between obedience to God's will and worldly desires. Discover timeless lessons on faith, deliverance, and the true meaning of fearing the Lord to guide your path.
 weight: 12
 ---
 

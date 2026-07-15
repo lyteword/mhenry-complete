@@ -1,8 +1,8 @@
 ---
-title: "2 Samuel 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
-  The contest between David and Absalom is now hasting towards a crisis. It must be determined by the sword, and preparation is made accordingly in this chapter. I. Absalom calls a c...
+  Dive into 2 Samuel 17 to explore the high-stakes political and military drama as David confronts the rebellion of Absalom. This chapter masterfully dissects the conflict between Ahithophel's aggressive strategy and Hushai's measured counsel, offering profound insights into leadership, pride, and divine providence. Essential reading for understanding ancient Israelite warfare and the crucial strategic decisions that shaped David's destiny.
 weight: 17
 ---
 

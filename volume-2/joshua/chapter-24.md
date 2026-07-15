@@ -1,8 +1,8 @@
 ---
-title: "Joshua 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
-  This chapter concludes the life and reign of Joshua, in which we have, I. The great care and pains he took to confirm the people of Israel in the true faith and worship of God, tha...
+  Discover Joshua's powerful final call to Israel to make a covenant choice. This chapter recounts the great works of God and issues a profound challenge to forsake old gods, urging readers to serve the LORD in sincerity and truth. Learn how to renew your faith and make a deliberate commitment to God's enduring faithfulness.
 weight: 24
 ---
 

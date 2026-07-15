@@ -1,8 +1,8 @@
 ---
-title: "2 Chronicles 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
-  We have here, I. The great danger and distress that Jehoshaphat and his kingdom were in from a foreign invasion, 2Ch 20:1,2. II. The pious course he took for their safety, by fasti...
+  Discover the powerful story of 2 Chronicles 20, where King Jehoshaphat turned to fervent prayer and national fasting against a massive foreign invasion, leading to an undeniable divine victory. This chapter offers profound lessons on the power of faith, collective worship, and trusting in God's sovereign promise over overwhelming odds. Explore this rich biblical commentary to find spiritual encouragement on how to seek God for deliverance in your own life.
 weight: 20
 ---
 

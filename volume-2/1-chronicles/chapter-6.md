@@ -1,8 +1,8 @@
 ---
-title: "1 Chronicles 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  Though Joseph and Judah shared between them the forfeited honours of the birthright, yet Levi was first of all the tribes, dignified and distinguished with an honour more valuable ...
+  Explore 1 Chronicles 6 to discover the intricate genealogy and vital roles of the Levites and Priests in ancient Israel. This chapter details their sacred duties, from singing service in the Tabernacle to their crucial work in making atonement, revealing how God provided for their structure and the distribution of their cities throughout the land.
 weight: 6
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Esther 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Esther 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
-  We left two royal edicts in force, both given at the court of Shushan, one bearing date the thirteenth day of the first month, appointing that on the thirteenth day of the twelfth ...
+  Dive deep into the powerful biblical narrative of Esther Chapter 9, exploring the decisive victory of the Jews over their enemies and the role of divine providence. This detailed commentary unveils the profound meaning behind the Feast of Purim, teaching timeless lessons on unity, gratitude, and remembering God's faithfulness.
 weight: 9
 ---
 

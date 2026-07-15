@@ -1,8 +1,8 @@
 ---
-title: "1 Chronicles 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
-  What the mighty men did towards making David king we read in the foregoing chapter. Here we are told what the many did towards it. It was not all at once, but gradually, that David...
+  Discover the incredible story of how David ascended to the throne by examining the diverse military and political support he received in 1 Chronicles chapter 12. This chapter reveals the power of loyalty, divine providence, and the crucial roles of skilled tribes—from the swift Gadites to the strategically wise Issacharites—in establishing the kingdom of Israel. Explore how God orchestrated the support of the mighty men who helped secure David's reign.
 weight: 12
 ---
 

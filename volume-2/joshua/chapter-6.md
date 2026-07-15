@@ -1,8 +1,8 @@
 ---
-title: "Joshua 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  Joshua opened the campaign with the siege of Jericho, a city which could not trust so much to the courage of its people as to act offensively, and to send out its forces to oppose ...
+  Uncover the profound theological meaning behind the siege of Jericho in this in-depth commentary. Explore how unwavering faith, patient obedience, and divine intervention led to the miraculous fall of the walls, demonstrating God's power over any stronghold. Discover powerful lessons on devotion, victory, and the true nature of spiritual warfare found in this essential biblical narrative.
 weight: 6
 ---
 

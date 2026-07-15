@@ -1,8 +1,8 @@
 ---
-title: "1 Kings 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
-  In this chapter we have, I. The answer which God, in a vision, gave to Solomon's prayer, and the terms he settled with him, 1Ki 9:1-9. II. The interchanging of grateful kindnesses ...
+  Explore 1 Kings Chapter 9 to discover God's profound answer to Solomon's prayer and the covenant that established his kingdom. This commentary delves into the wisdom behind Solomon's monumental building projects, the strategic alliances with Hiram of Tyre, and the ultimate lesson that true prosperity lies in wisdom rather than mere gold.
 weight: 9
 ---
 

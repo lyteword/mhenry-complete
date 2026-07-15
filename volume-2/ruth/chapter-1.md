@@ -1,8 +1,8 @@
 ---
-title: "Ruth 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ruth 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
-  In this chapter we have Naomi's afflictions. I. As a distressed housekeeper, forced by famine to remove into the land of Moab, Ru 1:1,2. II. As a mournful widow and mother, bewaili...
+  Explore the profound biblical narrative of Ruth Chapter 1, delving into the deep afflictions of Naomi, the famine in ancient Israel, and the tests of enduring faith. This commentary reveals powerful lessons on navigating loss, steadfast loyalty, and trusting in God's providence during times of severe hardship. Discover how true constancy and divine mercy transform sorrow into hope.
 weight: 1
 ---
 

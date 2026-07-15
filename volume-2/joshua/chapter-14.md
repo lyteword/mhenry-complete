@@ -1,8 +1,8 @@
 ---
-title: "Joshua 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
-  Here is, I. The general method that was taken in dividing the land, Jos 14:1-5. II. The demand Caleb made of Hebron, as his by promise, and therefore not to be put into the lot wit...
+  Dive into Joshua chapter 14 to understand the biblical process of land distribution and the profound significance of covenant faithfulness. This commentary explores Caleb's powerful petition for Hebron, revealing how unwavering trust in God's promise secured his inheritance through obedience, not just by chance. Discover deep insights into divine providence, the power of faith, and the enduring lessons of following God's will.
 weight: 14
 ---
 

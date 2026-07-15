@@ -1,8 +1,8 @@
 ---
-title: "Joshua 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
-  Israel have now got over Jordan, and the waters which had opened before them, to favour their march forward, are closed again behind them, to forbid their retreat backward. They ha...
+  Discover the profound spiritual significance of Joshua Chapter 5, detailing how Israel's miraculous crossing of the Jordan was followed by the renewal of the covenant through circumcision and the celebration of the Passover. Explore the powerful themes of divine encouragement, the appearance of the Captain of the Lord's Host, and how God guided the Israelites into the conquest of Canaan. This commentary reveals the deep theological meaning behind these pivotal moments of faith, covenant, and divine providence.
 weight: 5
 ---
 

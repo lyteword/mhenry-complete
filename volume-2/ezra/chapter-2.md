@@ -1,8 +1,8 @@
 ---
-title: "Ezra 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezra 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  That many returned out of Babylon upon Cyrus's proclamation we were told in the foregoing chapter; we have here a catalogue of the several families that returned, Ezr 2:1. I. The l...
+  Discover the detailed account of the return of the Jewish exiles from Babylon in Ezra Chapter 2. This text provides a comprehensive catalogue of returning families, detailing the return of leaders, priests, and the massive population that rebuilt the temple. Explore the profound theological lessons about faith, destiny, and God's promise for Israel's future.
 weight: 2
 ---
 

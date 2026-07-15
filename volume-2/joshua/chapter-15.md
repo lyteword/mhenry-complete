@@ -1,8 +1,8 @@
 ---
-title: "Joshua 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
-  Though the land was not completely conquered, yet being (as was said in the close of the foregoing chapter) as rest from war for the present, and their armies all drawn out of the ...
+  Explore the detailed geographical boundaries and tribal inheritance of Judah in Joshua Chapter 15. This comprehensive commentary delves into the land division process, the historical significance of key cities like Jerusalem and Hebron, and the accounts of figures such as Caleb, offering a deep, authoritative understanding of Israel's ancient land distribution. Perfect for biblical scholars and history enthusiasts seeking in-depth insights into the geography of Canaan.
 weight: 15
 ---
 

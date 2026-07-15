@@ -1,8 +1,8 @@
 ---
-title: "Ezra 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezra 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
-  In this chapter we have that grievance redressed which was complained of and lamented in the foregoing chapter. Observe, I. How the people's hearts were prepared for the redress of...
+  Explore Ezra Chapter 10 in this detailed biblical commentary to understand the powerful process of national reformation. Discover how the people responded to Ezra's confession, the covenant proposed by Shechaniah, and the successful redress of the sin of taking strange wives through repentance and adherence to God's law. Uncover themes of hope, justice, and spiritual renewal in this essential study of biblical history.
 weight: 10
 ---
 

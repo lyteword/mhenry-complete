@@ -1,8 +1,8 @@
 ---
-title: "Joshua 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
-  More than once we have found the affairs of Israel, even when they were in the happiest posture and gave the most hopeful prospects, perplexed and embarrassed by sin, and a stop th...
+  Explore Joshua Chapter 7 to uncover the profound lesson that personal sin can derail even the greatest national triumphs. This commentary delves into the story of Achan's transgression, the resulting defeat of Israel at Ai, and the severe divine judgment. Discover the essential biblical message on the necessity of repentance, sanctification, and purging sin to restore God's favor and ensure lasting success.
 weight: 7
 ---
 

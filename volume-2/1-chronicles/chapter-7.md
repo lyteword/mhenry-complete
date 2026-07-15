@@ -1,8 +1,8 @@
 ---
-title: "1 Chronicles 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
-  In this chapter we have some account of the genealogies, I. Of Issachar, 1Ch 7:1-5. II. Of Benjamin, 1Ch 7:6-12. III. Of Naphtali, 1Ch 7:13. IV. Of Manasseh, 1Ch 7:14-19. V. Of Eph...
+  Dive deep into the rich history and detailed genealogies of 1 Chronicles Chapter 7. This expert biblical commentary provides an in-depth analysis of the Israelite tribes—including Issachar, Benjamin, Ephraim, and Asher—highlighting their military might, ancestral lines, and the complex interplay of divine providence in ancient Israel's story. Uncover the foundational heritage and significant historical moments that shaped these powerful tribes.
 weight: 7
 ---
 

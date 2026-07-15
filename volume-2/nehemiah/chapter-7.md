@@ -1,8 +1,8 @@
 ---
-title: "Nehemiah 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
-  The success of one good design for God and our generation should encourage us to proceed and form some other; Nehemiah did so, having fortified Jerusalem with gates and walls, his ...
+  Discover the powerful lessons from Nehemiah chapter 7, detailing how rebuilding the walls of Jerusalem was matched by diligent governance and a comprehensive census to restore the community. Learn how Nehemiah established watchmen and appointed faithful leaders to ensure both physical security and spiritual restoration, highlighting the role of divine providence in securing a thriving city. This commentary explores the importance of community, faith, and diligent leadership in achieving lasting success.
 weight: 7
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "1 Samuel 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
-  The predictions in the foregoing chapters concerning the ruin of Eli's house here begin to be fulfilled; how long after does not appear, but certainly not long. Such sinners God of...
+  Explore the dramatic account of 1 Samuel Chapter 4, where Israel faces devastating defeat against the Philistines due to a critical error concerning the Ark of the Covenant. This deep biblical commentary reveals the severe consequences of prioritizing external rituals over true faith, culminating in the tragic loss of glory and the death of Eli. Understand the profound theological lessons on divine judgment, religious failure, and the true source of Israel's security.
 weight: 4
 ---
 

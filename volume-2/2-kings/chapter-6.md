@@ -1,8 +1,8 @@
 ---
-title: "2 Kings 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  In this chapter we have, I. A further account of the wondrous works of Elisha. 1. His making iron to swim, 2Ki 6:1-7. 2. His disclosing to the king of Israel the secret counsels of...
+  Discover the extraordinary miracles of Elisha in 2 Kings Chapter 6, featuring the astonishing feat of making iron swim and his prophetic intervention that saved Samaria from a devastating siege. Explore the powerful themes of divine protection, the humility of the prophets, and the profound lessons on how God's power triumphs over earthly enemies. This commentary reveals the incredible stories of Elisha's counsel and the awe-inspiring relief he brought to the people of Israel.
 weight: 6
 ---
 

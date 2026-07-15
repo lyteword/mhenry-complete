@@ -1,8 +1,8 @@
 ---
-title: "Joshua 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
-  This chapter continues and concludes the history of the conquest of Canaan; of the reduction of the southern parts we had an account in the foregoing chapter, after which we may su...
+  Uncover the epic conclusion of the conquest of Canaan in Joshua Chapter 11. This detailed commentary explores Joshua's decisive military victory over the northern confederacy, revealing profound theological lessons on divine encouragement, strategic obedience, and the fulfillment of God's promises. Dive into this essential study to understand how God's power defeated human opposition and how faithfulness leads to victory.
 weight: 11
 ---
 

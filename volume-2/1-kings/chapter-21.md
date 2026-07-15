@@ -1,8 +1,8 @@
 ---
-title: "1 Kings 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
-  Ahab is still the unhappy subject of the sacred history; from the great affairs of his camp and kingdom this chapter leads us into his garden, and gives us an account of some ill t...
+  Uncover the deep theological lessons of 1 Kings 21. This commentary examines King Ahab's sinful greed, the tragic fate of Naboth, and the devastating consequences of injustice and idolatry. Learn profound warnings about covetousness, divine judgment, and the path to true repentance in this detailed biblical study.
 weight: 21
 ---
 

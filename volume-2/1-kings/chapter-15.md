@@ -1,8 +1,8 @@
 ---
-title: "1 Kings 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
-  In this chapter we have an abstract of the history, I. Of two of the kings of Judah, Abijam, the days of whose reign were few and evil (1Ki 15:1-8), and Asa, who reigned well and l...
+  Explore 1 Kings Chapter 15 to trace the contrasting reigns of Judah's kings Abijam and the righteous reformer Asa, alongside the destructive reigns of Nadab and Baasha. Discover profound lessons on piety, the dangers of idolatry, and how a king can pursue genuine reformation according to God's law. This deep dive into biblical history illuminates the path to true devotion and the consequences of ambition.
 weight: 15
 ---
 

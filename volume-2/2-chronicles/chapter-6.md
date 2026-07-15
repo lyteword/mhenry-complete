@@ -1,8 +1,8 @@
 ---
-title: "2 Chronicles 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  The glory of the Lord, in the vehicle of a thick cloud, having filled the house which Solomon built, by which God manifested his presence there, he immediately improves the opportu...
+  Discover the profound theological depth of 2 Chronicles 6, focusing on Solomon's powerful dedication prayer for the Temple. This chapter explores the incomparable perfection of God, the covenant relationship, and the power of sincere prayer to invoke divine mercy and intervention. Uncover insights on God's presence, the nature of true devotion, and the ultimate hope found in Christ's mediation.
 weight: 6
 ---
 

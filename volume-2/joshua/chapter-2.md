@@ -1,8 +1,8 @@
 ---
-title: "Joshua 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  In this chapter we have an account of the scouts that were employed to bring an account to Joshua of the posture of the city of Jericho. Observe here, I. How Joshua sent them, Jos ...
+  Dive into the powerful biblical account of Joshua chapter 2, exploring the daring mission of spies to Jericho and the incredible faith of Rahab. Discover how divine providence guided the spies to her protection, illustrating the profound truth that faith and God's promises lead to ultimate victory. This commentary reveals lessons on courage, trust in God, and the fulfillment of God's covenant for Israel.
 weight: 2
 ---
 

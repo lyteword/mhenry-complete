@@ -1,8 +1,8 @@
 ---
-title: "Judges 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
-  This chapter gives us a further account of Gideon's victory over the Midianites, with the residue of the story of his life and government. I. Gideon prudently pacifies the offended...
+  Dive deep into Judges Chapter 8 with this expert commentary on Gideon's victory, his remarkable humility, and the challenging aftermath of war. Explore profound lessons on leadership, the dangers of pride, and the severe consequences of ingratitude as Israel turns away from God. Discover the timeless truths about justice, spiritual discipline, and legacy that shape the narrative of Judges.
 weight: 8
 ---
 

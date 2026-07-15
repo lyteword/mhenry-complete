@@ -1,8 +1,8 @@
 ---
-title: "1 Samuel 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
-  The history of Samuel here begins as early as that of Samson did, even before he was born, as afterwards the history of John the Baptist and our blessed Saviour. Some of the script...
+  Explore the profound story of Hannah in 1 Samuel chapter 1, detailing her struggle with barrenness, her heartfelt prayer, and the miraculous birth of the prophet Samuel. This in-depth biblical commentary explores powerful themes of faith, the answered prayer, and the dedication of a child to God, offering deep insights into scripture's message of hope and divine intervention.
 weight: 1
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "1 Samuel 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
-  David was a man after God's own heart, and yet he had his faults, which are recorded, not for our imitation, but for our admonition; witness the story of this chapter, in which, th...
+  Explore the dramatic chapter of 1 Samuel 27, detailing King David's perilous flight from Saul and his strategic move to the land of the Philistines. This biblical commentary dives deep into David's struggle with doubt, his decision to seek refuge, and his decisive military actions against the Amalekites. Discover the profound themes of faith, betrayal, and survival in this essential account of David's journey.
 weight: 27
 ---
 

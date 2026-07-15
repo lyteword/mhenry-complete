@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 36 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 36 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "36"
 description: >
   We have here, I. A short but sad account of the utter ruin of Judah and Jerusalem within a few years after Josiah's death. 1. The history of it in the unhappy reigns of Jehoahaz fo...

@@ -1,8 +1,8 @@
 ---
-title: "2 Chronicles 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
-  This chapter is copied almost verbatim from 1Ki 12:1-19, 2Ch 10:1-19, where it was opened at large. Solomon's defection from God was not repeated, but the defection of the ten trib...
+  Explore 2 Chronicles Chapter 10 to understand the downfall of Rehoboam and the contrasting reigns of Solomon. This detailed Bible commentary explores themes of political folly, divine sovereignty, and the consequences of human disobedience, revealing profound lessons on wisdom and God's ultimate plan.
 weight: 10
 ---
 

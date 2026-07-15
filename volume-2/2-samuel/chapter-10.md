@@ -1,8 +1,8 @@
 ---
-title: "2 Samuel 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
-  This chapter gives us an account of a war David has with the Ammonites and the Syrians their allies, with the occasion and success of it. I. David sent a friendly embassy to Hanun ...
+  Uncover the intense military drama of 2 Samuel 10 as David leads his forces to a decisive victory against the Ammonites and their Syrian allies. This detailed commentary explores the strategic leadership of Joab, the challenges of diplomacy, and the profound biblical lessons on divine providence and righteous warfare. Perfect for studying ancient history and biblical strategy.
 weight: 10
 ---
 

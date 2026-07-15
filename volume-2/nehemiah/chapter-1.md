@@ -1,8 +1,8 @@
 ---
-title: "Nehemiah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
-  Here we first meet with Nehemiah at the Persian court, where we find him, I. Inquisitive concerning the state of the Jews and Jerusalem, Ne 1:1,2. II. Informed of their deplorable ...
+  Discover Nehemiah's powerful response to the destruction of Jerusalem. This commentary explores his profound sorrow, fervent prayer, and repentance, revealing how faith and covenant promises lead to restoration amidst national distress. Learn how to apply Nehemiah's example of seeking God's mercy and divine guidance during times of crisis.
 weight: 1
 ---
 

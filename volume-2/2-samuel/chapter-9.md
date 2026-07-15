@@ -1,8 +1,8 @@
 ---
-title: "2 Samuel 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
-  The only thing recorded in this chapter is the kindness David showed to Jonathan's seed for his sake. I. The kind enquiry he made after the remains of the house of Saul, and his di...
+  Discover the profound act of mercy in 2 Samuel Chapter 9 as we explore David's incredible kindness toward Jonathan's son, Mephibosheth. This deep biblical commentary dives into the themes of covenant faithfulness, divine kindness, and the powerful lessons of forgiveness and compassion. Learn how David's actions illustrate God's boundless love for humanity, encouraging us to seek opportunities to do good.
 weight: 9
 ---
 

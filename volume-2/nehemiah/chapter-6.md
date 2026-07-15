@@ -1,8 +1,8 @@
 ---
-title: "Nehemiah 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  The cries of oppressed poverty being stilled, we are now to enquire how the building of the wall goes forward, and in this chapter we find it carried on with vigour and finished wi...
+  Discover the powerful story of Nehemiah Chapter 6, where unwavering faith and perseverance lead to the completion of the wall of Jerusalem despite relentless plots from his enemies. This biblical commentary explores how divine providence triumphs over cunning opposition, teaching us the importance of spiritual fortitude in overcoming obstacles and achieving great works. Learn how Nehemiah successfully navigated treacherous schemes and how the enemies were ultimately humbled by the success wrought by God's hand.
 weight: 6
 ---
 

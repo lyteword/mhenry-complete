@@ -1,8 +1,8 @@
 ---
-title: "1 Samuel 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
-  David, having several times narrowly escaped Saul's fury, begins to consider at last whether it may not be necessary for him to retire into the country and to take up arms in his o...
+  Uncover the profound story of unwavering loyalty and covenant in 1 Samuel 20, where David faces deadly peril and relies entirely on the steadfast friendship of Jonathan. This biblical commentary explores the deep bond between David and Jonathan, revealing the nature of true friendship, divine promises, and the enduring power of a sacred covenant against the backdrop of political strife. Dive into this compelling narrative to explore themes of loyalty, trust, and enduring brotherhood.
 weight: 20
 ---
 

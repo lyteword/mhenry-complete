@@ -1,8 +1,8 @@
 ---
-title: "1 Samuel 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
-  We have here some intermission of David's troubles by Saul. Providence favoured him with a breathing time, and yet this chapter gives us instances of the troubles of David. If one ...
+  Explore the powerful narrative of 1 Samuel 25, detailing the conflict between David and the ungrateful Nabal. Discover how the wisdom and prudence of Abigail saved her husband and family from ruin, offering profound lessons on forgiveness, virtuous conduct, and God's providence. This commentary reveals timeless truths about handling conflict and the power of wise counsel.
 weight: 25
 ---
 

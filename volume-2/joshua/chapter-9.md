@@ -1,8 +1,8 @@
 ---
-title: "Joshua 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
-  Here is in this chapter, I. The impolite confederacy of the kings of Canaan against Israel, Jos 9:1,2. II. The polite confederacy of the inhabitants of Gibeon with Israel, 1. How i...
+  Dive deep into Joshua 9 and uncover the intricate story of the Gibeonites' fraudulent plea, revealing crucial theological insights on deception, covenant, and divine justice. Learn how this chapter illustrates the critical need for seeking God's counsel and the profound consequences of oaths, leading to a powerful lesson in faith and submission.
 weight: 9
 ---
 

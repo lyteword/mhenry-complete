@@ -1,8 +1,8 @@
 ---
-title: "Joshua 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
-  It is a pity that this and the following chapter should be separated, for both of them give us the lot of the children of Joseph, Ephraim and Manasseh, who, next to Judah, were to ...
+  Explore the detailed boundaries and tribal inheritance described in Joshua Chapter 16, focusing on the lot of the children of Joseph, particularly the vast territory assigned to the tribe of Ephraim. This commentary provides an in-depth look at the geographical distribution of Canaan, key cities like Shiloh and Samaria, and the historical context of this division. Discover the rich biblical narrative behind the land distribution and its lasting impact on Israel's history.
 weight: 16
 ---
 

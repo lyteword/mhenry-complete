@@ -1,8 +1,8 @@
 ---
-title: "Joshua 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
-  In this and the following chapter we have two farewell sermons, which Joshua preached to the people of Israel a little before his death. Had he designed to gratify the curiosity of...
+  Dive into the profound commentary of Joshua 23 to explore Joshua's powerful farewell sermons to Israel. This chapter offers a critical look at the importance of covenant faithfulness, issuing urgent warnings against idolatry, and emphasizing God's unwavering promise amidst the severe consequences of apostasy. Discover why perseverance in faith is essential for securing blessings and avoiding ultimate ruin.
 weight: 23
 ---
 

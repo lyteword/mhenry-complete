@@ -1,8 +1,8 @@
 ---
-title: "2 Kings 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
-  In this chapter, I. The history of two of the kings of Judah is briefly recorded:—1. Of Azariah, or Uzziah, 2Ki 15:1-7. 2. Of Jotham his son, 2Ki 15:32-38. II. The history of many ...
+  Uncover the dramatic history of the kings of Judah and Israel in 2 Kings Chapter 15. This deep commentary explores the reigns of figures like Azariah, Menahem, and Pekah, revealing how political instability, idolatry, and divine judgment shaped the destiny of the ancient kingdoms. Discover profound insights into ancient political conflicts and God's unwavering promises through this essential biblical study.
 weight: 15
 ---
 

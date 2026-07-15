@@ -1,8 +1,8 @@
 ---
-title: "2 Samuel 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
-  The last words of David, which we read in the chapter before, were admirably good, but in this chapter we read of some of his last works, which were none of the best; yet he repent...
+  Explore 2 Samuel 24: A deep dive into King David's sin, profound repentance, and God's powerful mercy. This commentary examines the consequences of pride, the devastating plague inflicted upon Israel, and how David's act of building an altar leads to divine reconciliation and deliverance. Discover the timeless lessons on sin, judgment, and the necessity of sacrifice for true restoration.
 weight: 24
 ---
 

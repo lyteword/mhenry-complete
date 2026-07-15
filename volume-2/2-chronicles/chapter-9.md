@@ -1,8 +1,8 @@
 ---
-title: "2 Chronicles 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
-  Solomon here continues to appear great both at home and abroad. We had this account of his grandeur, 1Ki 10:1-29 Nothing is here added; but his defection towards his latter end, wh...
+  Discover the unparalleled grandeur of King Solomon in 2 Chronicles Chapter 9, examining the lavish gifts from the Queen of Sheba and the immense wealth of his reign. This insightful commentary explores how Solomon's wisdom and splendor demonstrated the connection between earthly success and divine favor, offering timeless lessons on using wisdom and resources for God's glory.
 weight: 9
 ---
 
