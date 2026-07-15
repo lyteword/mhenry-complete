@@ -2,7 +2,7 @@
 title: "Judges 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
 description: >
-  The ruins of the tribe of Benjamin we read of in the foregoing chapter; now here we have, I. The lamentation which Israel made over these ruins, Jdg 21:1-4,6,15. II. The provision ...
+  Dive deep into Judges chapter 21 with this comprehensive Matthew Henry Bible Commentary, exploring the powerful lamentation over the tribe of Benjamin and the subsequent provisions made for its survival. Discover profound insights into Israel's zeal, the nature of repentance, and the complex historical arrangements for tribal restoration. Perfect for in-depth biblical study and understanding ancient Israelite society.
 weight: 21
 ---
 
