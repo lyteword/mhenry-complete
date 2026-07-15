@@ -2,7 +2,7 @@
 title: "2 Kings 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
 description: >
-  In this chapter we have a short but sad account of the reigns of two of the kings of Judah, Manasseh and Amon. I. Concerning Manasseh, all the account we have of him here is, 1. Th...
+  Explore the tragic reigns of kings Manasseh and Amon in 2 Kings Chapter 21, detailing how their rampant idolatry and wickedness led to the severe judgment and impending destruction of Jerusalem. This profound biblical commentary highlights the devastating consequences of sin, warning readers about the perils of forsaking God's covenant and the prophecies of divine retribution. Discover the story of how spiritual decay brought Judah to ruin.
 weight: 21
 ---
 
