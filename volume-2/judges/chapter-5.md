@@ -2,7 +2,7 @@
 title: "Judges 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
 description: >
-  This chapter contains the triumphal song which was composed and sung upon occasion of that glorious victory which Israel obtained over the forces of Jabin king of Canaan and the ha...
+  Dive deep into the theological and historical significance of Judges Chapter 5 with this expert commentary on the Song of Deborah and Barak. Explore the epic account of Israel's glorious victory, focusing on God's sovereign power, the heroic actions of figures like Jael, and the profound lessons in thanksgiving and divine faithfulness. Discover how this ancient text offers timeless wisdom on responding to victory, honoring leaders, and shining as a light for God's people.
 weight: 5
 ---
 
