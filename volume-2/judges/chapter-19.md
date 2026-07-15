@@ -2,7 +2,7 @@
 title: "Judges 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
 description: >
-  The three remaining chapters of this book contain a most tragical story of the wickedness of the men of Gibeah, patronised by the tribe of Benjamin, for which that tribe was severe...
+  Explore Judges Chapter 19, a pivotal biblical narrative detailing the moral decay of the men of Gibeah and the devastating abuse of a Levite's concubine. This gripping account serves as a stark warning about social corruption, unchecked lust, and the severe consequences of sin in ancient Israel. Uncover profound themes of justice, communal responsibility, and the ultimate reckoning for wickedness.
 weight: 19
 ---
 
