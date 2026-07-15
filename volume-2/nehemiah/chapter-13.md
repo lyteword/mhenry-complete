@@ -2,7 +2,7 @@
 title: "Nehemiah 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
 description: >
-  Nehemiah, having finished what he undertook for the fencing and filling of the holy city, returned to the king his master, who was not willing to be long without him, as appears (N...
+  Discover the powerful religious reforms of Nehemiah in chapter 13. This commentary explores how Nehemiah purged foreign influences, restored the sanctity of the Sabbath, and corrected moral abuses, offering deep insights into spiritual leadership and ancient Israel's journey toward holiness.
 weight: 13
 ---
 
