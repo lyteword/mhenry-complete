@@ -2,7 +2,7 @@
 title: "2 Kings 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
 description: >
-  The revolution in the kingdom of Israel was soon perfected in Jehu's settlement; we must now enquire into the affairs of the kingdom of Judah, which lost its head (such as it was) ...
+  Discover the dramatic events in 2 Kings Chapter 11 as Athaliah attempts to destroy the Davidic line. Learn how the pious action of Jehoiada the priest and the covenant made between the king and the people secured the future of Joash, restoring religious order in ancient Israel. This passage highlights divine providence and the importance of faith during times of crisis.
 weight: 11
 ---
 
