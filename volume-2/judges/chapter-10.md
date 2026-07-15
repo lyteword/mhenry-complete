@@ -2,7 +2,7 @@
 title: "Judges 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
 description: >
-  In this chapter we have, I. The peaceable times Israel enjoyed under the government of two judges, Tola and Jair, Jdg 10:1-5. II. The troublesome times that ensued. 1. Israel's sin...
+  Explore Judges Chapter 10 to discover the dramatic cycle of Israel's sin, the devastating oppression by the Ammonites, and the profound call for repentance. This biblical commentary delves into God's tender mercy, showing how Israel's genuine reformation and unity ultimately led to their deliverance from their enemies. Uncover the powerful lessons on faith, forgiveness, and God's unwavering grace in this essential historical narrative.
 weight: 10
 ---
 
