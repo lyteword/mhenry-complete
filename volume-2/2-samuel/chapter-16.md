@@ -2,7 +2,7 @@
 title: "2 Samuel 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
 description: >
-  In the close of the foregoing chapter we left David flying from Jerusalem, and Absalom entering into it; in this chapter, I. We are to follow David in his melancholy flight; and th...
+  This detailed Bible commentary on 2 Samuel 16 delves deep into the political turmoil surrounding David and Absalom. Uncover the complex themes of false accusations, treacherous counsel from Ahithophel, and the role of divine providence amidst human malice. Essential reading for understanding biblical interpretation and ancient Israelite drama.
 weight: 16
 ---
 
