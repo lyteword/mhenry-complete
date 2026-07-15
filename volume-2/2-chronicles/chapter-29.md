@@ -2,7 +2,7 @@
 title: "2 Chronicles 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
 description: >
-  We are here entering upon a pleasant scene, the good and glorious reign of Hezekiah, in which we shall find more of God and religion than perhaps in any of the good reigns we have ...
+  Discover the powerful religious reformation under King Hezekiah in 2 Chronicles 29. This chapter details the zealous cleansing of the Temple, the making of atonement sacrifices, and the revival of God's ordinances. Learn how true repentance and diligent service can bring about a sudden and marvelous turnaround for a nation.
 weight: 29
 ---
 
