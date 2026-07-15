@@ -2,7 +2,7 @@
 title: "Judges 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
 description: >
-  All agree that what is related in this and the rest of the chapters to the end of this book was not done, as the narrative occurs, after Samson, but long before, even soon after th...
+  Dive into the profound narrative of Judges Chapter 17 as this biblical commentary meticulously explores the origins of idolatry in ancient Israel through the story of Micah. This deep dive examines the devastating consequences of personal sin, the establishment of false worship, and the dangerous neglect of religious leadership like the Levites. Discover key theological insights into religious decay, human pride, and the critical need for proper governance in the history of Israel.
 weight: 17
 ---
 
