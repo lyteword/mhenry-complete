@@ -2,7 +2,7 @@
 title: "Ezra 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
 description: >
-  The affairs of the church were in a very good posture, we may well suppose, now that Ezra presided in them. Look without; the government was kind to them. We hear no complaints of ...
+  Dive deep into Ezra Chapter 9 with this expert commentary, exploring the spiritual crisis of ancient Israel. This analysis uncovers the serious issues of intermarriage and the profound repentance Ezra offers to God, highlighting timeless biblical lessons on sin, mercy, and accountability. Understand how God's grace shines amidst human failure and what these historical warnings teach us today.
 weight: 9
 ---
 
