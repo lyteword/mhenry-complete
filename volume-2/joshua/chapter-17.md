@@ -2,7 +2,7 @@
 title: "Joshua 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
 description: >
-  The half tribe of Manasseh comes next to be provided for; and here we have, I. The families of that tribe that were to be portioned, Jos 17:1-6. II. The country that fell to their ...
+  Explore the detailed inheritance division in Joshua 17, examining the lot of the tribe of Manasseh and the disputes over land. This commentary delves into the biblical wisdom of Joshua, teaching valuable lessons about diligence, stewardship, and how faith empowers Israel to conquer formidable challenges. Discover the principles of hard work and rightful inheritance in this in-depth study.
 weight: 17
 ---
 
