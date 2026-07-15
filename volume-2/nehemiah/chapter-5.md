@@ -2,7 +2,7 @@
 title: "Nehemiah 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
 description: >
-  How bravely Nehemiah, as a wise and faithful governor, stood upon his guard against the attacks of enemies abroad, we read in the foregoing chapter. Here we have him no less bold a...
+  Discover the powerful lessons from Nehemiah chapter 5, as this commentary explores how a faithful governor confronted the severe oppression of the poor, including debt and forced servitude. This deep dive into biblical leadership reveals timeless principles of social justice, the dangers of usury, and the true meaning of compassionate governance rooted in the fear of God. Learn how to lead with mercy and restore the oppressed.
 weight: 5
 ---
 
