@@ -2,7 +2,7 @@
 title: "1 Kings 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
 description: >
-  This chapter finishes the history of Ahab's reign. It was promised in the close of the foregoing chapter that the ruin of his house should not come in his days, but his days were s...
+  Dive deep into 1 Kings 22 with this expert biblical commentary on the dramatic clash between true prophecy and false prophets. Discover the tragic fate of King Ahab and the powerful warning delivered by Micaiah about the dangers of deceit and political alliances. Understand the ultimate sovereignty of God in the history of Israel through this profound narrative.
 weight: 22
 ---
 
