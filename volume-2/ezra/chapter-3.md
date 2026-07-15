@@ -2,7 +2,7 @@
 title: "Ezra 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  In the close of the foregoing chapter we left Israel in their cities, but we may well imagine what a bad posture their affairs were in, the ground untilled, the cities in ruins, al...
+  Discover the powerful story of Ezra Chapter 3, detailing how the returned Israelites began the crucial work of rebuilding the Temple in Jerusalem after the Babylonian captivity. This detailed commentary explores the zeal, sacrifices, and the mixture of joy and sorrow that marked this pivotal moment of religious restoration. Dive deep into the biblical narrative to understand the themes of perseverance and faith in the face of rebuilding.
 weight: 3
 ---
 
