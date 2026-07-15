@@ -2,7 +2,7 @@
 title: "Nehemiah 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
 description: >
-  We have in this chapter a particular account of the covenant which in the close of the foregoing chapter was resolved upon; they struck while the iron was hot, and immediately put ...
+  Discover the profound covenant recorded in Nehemiah chapter 10. This passage outlines the binding promises of the people to keep God's laws, including rules for the Sabbath, debt relief, and maintaining temple service. Learn how ancient Israel established a lasting commitment to worship and obedience through structured religious and social obligations. Explore the detailed articles that secured their relationship with God.
 weight: 10
 ---
 
