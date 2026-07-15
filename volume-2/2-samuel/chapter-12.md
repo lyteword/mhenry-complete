@@ -2,7 +2,7 @@
 title: "2 Samuel 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
 description: >
-  The foregoing chapter gave us the account of David's sin; this gives us the account of his repentance. Though he fell, he was not utterly cast down, but, by the grace of God, recov...
+  Explore the profound journey of David's sin, heartfelt repentance, and the overwhelming grace of God in 2 Samuel Chapter 12. This detailed commentary examines Nathan's confrontation, David's deep humiliation, and the ultimate reconciliation, culminating in the birth of Solomon. Discover powerful lessons on forgiveness, divine mercy, and how God restores hope even after grievous sin.
 weight: 12
 ---
 
