@@ -2,7 +2,7 @@
 title: "2 Samuel 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
 description: >
-  The historian is now drawing towards a conclusion of David's reign, and therefore gives us an account here, I. Of some of his last words, which he spoke by inspiration, and which s...
+  Uncover the powerful legacy of King David in 2 Samuel 23, analyzing his final words on justice, covenant, and divine inspiration. This deep commentary details the exploits of David's mighty men, revealing how courage and faith paved the way for God's everlasting promises. Essential reading for understanding kingship, spiritual warfare, and enduring hope.
 weight: 23
 ---
 
