@@ -2,7 +2,7 @@
 title: "Judges 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
 description: >
-  The idea which this chapter gives us of Samson is not what one might have expected concerning one who, by the special designation of heaven, was a Nazarite to God and a deliverer o...
+  Dive into this expert biblical commentary on Judges 14, dissecting Samson's life—from his unconventional marriage to his supernatural feats and the significance of his famous riddle. Discover profound insights into divine providence, human folly, and how God uses seemingly weak means to orchestrate mighty victories against enemies. This in-depth analysis reveals powerful lessons on faith, strength, and the true purpose behind life's unexpected turns.
 weight: 14
 ---
 
