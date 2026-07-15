@@ -2,7 +2,7 @@
 title: "1 Chronicles 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
 description: >
-  We have here an account of the business of the Levites. That tribe had made but a very small figure all the time of the judges, till Eli and Samuel appeared. But when David revived...
+  Explore 1 Chronicles 26 to understand the vital roles of the Levites in ancient Israel. This chapter details their crucial duties as porters, treasurers, and judges, highlighting their essential function in temple service, financial stewardship, and maintaining both religious and civil order. Discover the biblical principles of administration, justice, and divine service as outlined in this historical account.
 weight: 26
 ---
 
