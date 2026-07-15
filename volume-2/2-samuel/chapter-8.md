@@ -2,7 +2,7 @@
 title: "2 Samuel 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
 description: >
-  David having sought first the kingdom of God and the righteousness thereof, settling the ark as soon as he was himself well settled, we are here told how all other things were adde...
+  Explore the powerful reign of King David in this detailed commentary on 2 Samuel chapter 8. Discover the accounts of his significant conquests over the Philistines, Moabites, and Syrians, alongside an in-depth look at his just administration and establishment of a righteous government. This essential reading reveals how David balanced military victory with divine dedication, setting a foundation for Israel's prosperity and showcasing themes of justice, leadership, and spiritual purpose.
 weight: 8
 ---
 
