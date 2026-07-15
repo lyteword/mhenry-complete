@@ -2,7 +2,7 @@
 title: "2 Kings 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
 description: >
-  Ever since David's time Jerusalem had been a celebrated place, beautiful for situation and the joy of the whole earth: while the book of psalms lasts that name will sound great. In...
+  Explore 2 Kings Chapter 25 to witness the catastrophic siege and utter destruction of Jerusalem by the Chaldeans, detailing the fall of the holy city and the burning of the Temple. This profound account explores divine judgment, the captivity of Judah, and the dispersion of the remnant, offering deep theological insight into the consequences of sin. Discover the dramatic history of Zedekiah's fate and the surprising providence shown to the captive king, Jehoiachin.
 weight: 25
 ---
 
