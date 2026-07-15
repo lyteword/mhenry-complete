@@ -2,7 +2,7 @@
 title: "2 Kings 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
 description: >
-  Relief is here brought to Samaria and her king, when the case is, in a manner, desperate, and the king despairing. I. It is foretold by Elisha, and an unbelieving lord shut out fro...
+  Discover the powerful story of 2 Kings Chapter 7, where Elisha's prophecy is fulfilled as relief arrives for Samaria. Explore how divine intervention, the terror of a supernatural noise, and the consequences of unbelief led to a miraculous plenty. Learn about God's power in times of desperate siege and the certainty of divine promises.
 weight: 7
 ---
 
