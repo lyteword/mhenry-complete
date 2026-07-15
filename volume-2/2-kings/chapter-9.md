@@ -2,7 +2,7 @@
 title: "2 Kings 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
 description: >
-  Hazael and Jehu were the men that were designed to be the instruments of God's justice in punishing and destroying the house of Ahab. Elijah was told to appoint them to this servic...
+  Explore 2 Kings Chapter 9 to witness the dramatic execution of divine justice as Jehu is appointed to destroy the house of Ahab. This powerful account details the prophetic mandate, the violent confrontation, and the ultimate downfall of Jezebel, serving as a stark warning against idolatry and persecution in biblical history.
 weight: 9
 ---
 
