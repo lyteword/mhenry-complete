@@ -2,7 +2,7 @@
 title: "2 Kings 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
 description: >
-  Two more of Elisha's miracles are recorded in this chapter. I. The cleansing of Naaman, a Syrian, a stranger, from his leprosy, and there, 1. The badness of his case, 2Ki 5:1. 2. T...
+  Discover the powerful miracles of Elisha in 2 Kings 5, featuring the dramatic cleansing of the Syrian leper Naaman. This chapter offers a profound lesson on the contrast between worldly pride and humble submission to God's divine grace. Learn how greed and deceit lead to devastating consequences, underscoring the importance of spiritual humility.
 weight: 5
 ---
 
