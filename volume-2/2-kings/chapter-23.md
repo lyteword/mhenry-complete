@@ -2,7 +2,7 @@
 title: "2 Kings 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
 description: >
-  We have here, I. The happy continuance of the goodness of Josiah's reign, and the progress of the reformation he began, reading the law (2Ki 23:1,2), renewing the covenant (2Ki 23:...
+  Discover the dramatic religious reformation of King Josiah, a pivotal moment in ancient history where he radically destroyed idolatry in Jerusalem by meticulously reading and implementing the Law of the Covenant. This account details Josiah's intense zeal, the demolition of pagan altars, and his dedication to purifying Judah, offering profound insights into the power of genuine spiritual zeal. Explore the consequences of this monumental effort on the fate of the kingdom.
 weight: 23
 ---
 
