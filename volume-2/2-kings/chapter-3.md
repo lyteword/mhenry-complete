@@ -2,7 +2,7 @@
 title: "2 Kings 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  We are now called to attend the public affairs of Israel, in which we shall find Elisha concerned. Here is, I. The general character of Jehoram, king of Israel, 2Ki 3:1-3. II. A wa...
+  Explore the dramatic account of 2 Kings Chapter 3, detailing King Jehoram's reign and the perilous expedition against the Moabites. Discover how the prophet Elisha intervened with a stunning miracle of water and divine prophecy to ensure victory, highlighting themes of faith, human folly, and God's incredible providence.
 weight: 3
 ---
 
