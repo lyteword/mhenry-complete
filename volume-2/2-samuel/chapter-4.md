@@ -2,7 +2,7 @@
 title: "2 Samuel 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
 description: >
-  When Abner was slain David was at a loss for a friend to perfect the reduction of those tribes that were yet in Ish-bosheth's interest. Which way to adopt for the accomplishment of...
+  Explore 2 Samuel Chapter 4 to witness the tragic downfall of Ish-bosheth and the shocking treachery of his own servants. Discover how King David exercises divine justice to punish betrayal and uphold true leadership in this profound biblical narrative. This commentary offers deep insights into ancient history, the nature of treachery, and the power of God's judgment.
 weight: 4
 ---
 
