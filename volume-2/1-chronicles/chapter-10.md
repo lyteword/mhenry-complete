@@ -2,7 +2,7 @@
 title: "1 Chronicles 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
 description: >
-  The design of Ezra, in these books of the Chronicles, was to preserve the records of the house of David, which, though much sunk and lessened in a common eye by the captivity, yet ...
+  Explore the profound lessons of 1 Chronicles Chapter 10, delving into the fatal downfall of King Saul. This commentary examines the rout against Saul, the desecration of his body by the Philistines, and the ultimate consequences of disobedience. Discover powerful biblical insights on sin, divine judgment, and the crucial importance of obeying God's word for all leaders.
 weight: 10
 ---
 
