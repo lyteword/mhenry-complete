@@ -2,7 +2,7 @@
 title: "2 Chronicles 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
 description: >
-  We have here a further account of the good reign of Jehoshaphat, I. His return in peace to Jerusalem, 2Ch 19:1. II. The reproof given him for his league with Ahab, and his acting i...
+  Discover the profound lessons from 2 Chronicles 19 as we explore King Jehoshaphat's journey of piety, repentance, and righteous governance. This commentary delves into the divine reproof he received for political alliances and the crucial establishment of a just judicial system built on the fear of the Lord. Uncover timeless insights on reform, leadership, and the role of God in upholding justice in the kingdom.
 weight: 19
 ---
 
