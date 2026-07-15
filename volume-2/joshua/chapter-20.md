@@ -2,7 +2,7 @@
 title: "Joshua 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
 description: >
-  This short chapter is concerning the cities of refuge, which we often read of in the writings of Moses, but this is the last time that we find mention of them, for now that matter ...
+  Explore Joshua Chapter 20 and discover the ancient law of the Cities of Refuge, designed to protect the innocent from the avenger of blood. This commentary reveals how this biblical concept of sanctuary perfectly foreshadows the ultimate refuge found in Jesus Christ, offering believers safety and forgiveness. Learn the deep spiritual meaning behind these sacred places.
 weight: 20
 ---
 
