@@ -2,7 +2,7 @@
 title: "1 Kings 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
 description: >
-  An instance of the wisdom God granted to Solomon we had in the close of the foregoing chapter. In this we have an account of his wealth and prosperity, the other branch of the prom...
+  Discover the unparalleled wisdom, immense wealth, and glorious reign of King Solomon in this detailed biblical commentary. Explore the magnificent court, vast dominion, and the profound understanding that positions Solomon as a timeless symbol of divine wisdom and the Messiah. Dive deep into the history and theology that reveals how God grants wisdom to those who seek it.
 weight: 4
 ---
 
