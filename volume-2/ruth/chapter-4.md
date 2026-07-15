@@ -2,7 +2,7 @@
 title: "Ruth 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
 description: >
-  In this chapter we have the wedding between Boaz and Ruth, in the circumstances of which there was something uncommon, which is kept upon record for the illustration, not only of t...
+  Dive into the detailed Bible commentary on Ruth chapter 4, uncovering the profound themes of redemption, justice, and lineage. Learn how Boaz's act of kindness and Ruth's virtue established the crucial connection to King David and the Messiah. Essential reading for understanding biblical history and grace.
 weight: 4
 ---
 
