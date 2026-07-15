@@ -2,7 +2,7 @@
 title: "Judges 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
 description: >
-  In this chapter we have, I. Jephthah's rencounter with the Ephraimites, and the blood shed on that unhappy occasion (Jdg 12:1-6), and the conclusion of Jephthah's life and governme...
+  Dive deep into Judges Chapter 12 with this comprehensive commentary, exploring the intense conflict between Jephthah and the proud Ephraimites. This analysis reveals profound themes of pride, divine justice, and the consequences of tribal strife in ancient Israel's history. Discover the detailed biblical narrative and theological insights that illuminate the dynamics of leadership and conflict.
 weight: 12
 ---
 
