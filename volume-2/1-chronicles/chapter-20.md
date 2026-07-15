@@ -2,7 +2,7 @@
 title: "1 Chronicles 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
 description: >
-  Here is a repetition of the story of David's wars, I. With the Ammonites, and the taking of Rabbah, 1Ch 20:1-3. II. With the giants of the Philistines, 1Ch 20:4-8.
+  Explore the powerful military campaigns of David, detailing the destruction of the Ammonites and the defeat of the mighty giants of Gath. Discover the biblical commentary on these crucial victories, revealing how God's power triumphs over human pride and enduring enemies. This chapter offers deep insight into warfare, faith, and the gradual path to ultimate victory.
 weight: 20
 ---
 
