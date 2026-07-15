@@ -2,7 +2,7 @@
 title: "Joshua 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
 description: >
-  This chapter gives a further account of the miraculous passage of Israel through Jordan. I. The provision that was made at that time to preserve the memorial of it, by twelve stone...
+  Discover the incredible miracle of Israel's passage through the Jordan River in Joshua Chapter 4. Explore the story of the twelve memorial stones and learn how this event powerfully demonstrates the mighty hand of God and His enduring faithfulness. This deep dive into biblical history offers profound lessons on faith, remembrance, and the power of divine intervention.
 weight: 4
 ---
 
