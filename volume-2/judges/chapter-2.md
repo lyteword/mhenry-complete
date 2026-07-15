@@ -2,7 +2,7 @@
 title: "Judges 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
 description: >
-  In this chapter we have, I. A particular message which God sent to Israel by an angel, and the impression it made upon them, Jdg 2:1-5. II. A general idea of the state of Israel du...
+  Explore Judges Chapter 2 through this in-depth biblical commentary to understand the devastating consequences of Israel's spiritual failure. This analysis reveals how disobedience, idolatry, and broken covenants provoked God's judgment, yet also highlights His profound mercy in raising up judges for deliverance. Discover the crucial lessons on covenant faithfulness, spiritual adultery, and the cycle of sin and repentance in Israel's tumultuous history.
 weight: 2
 ---
 
