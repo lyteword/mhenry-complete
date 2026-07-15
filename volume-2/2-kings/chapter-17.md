@@ -2,7 +2,7 @@
 title: "2 Kings 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
 description: >
-  This chapter gives us an account of the captivity of the ten tribes, and so finishes the history of that kingdom, after it had continued about 265 years, from the setting up of Jer...
+  Explore the dramatic downfall of the Kingdom of Israel in 2 Kings 17, detailing the Assyrian conquest and the devastating consequences of widespread idolatry and disobedience. This commentary explores why the tribes were carried into captivity and how their rejection of God's covenant led to their ultimate ruin.
 weight: 17
 ---
 
