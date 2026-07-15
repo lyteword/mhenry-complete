@@ -2,7 +2,7 @@
 title: "Joshua 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
 description: >
-  We have in this chapter an account of the conquest of the kings and kingdoms of the southern part of the land of Canaan, as, in the next chapter, of the reduction of the northern p...
+  Discover the epic military triumph of Joshua Chapter 10, detailing the conquest of the southern lands of Canaan and the astonishing divine intervention. This chapter recounts the miraculous standing still of the sun and moon, showcasing God's unmatched power as He fought for Israel. Explore this powerful biblical narrative to understand themes of faith, perseverance, and ultimate victory over all enemies.
 weight: 10
 ---
 
