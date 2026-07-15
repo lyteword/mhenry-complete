@@ -2,7 +2,7 @@
 title: "1 Samuel 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
 description: >
-  David has now quite taken leave both of Saul's court and of his camp, has bidden farewell to his alter idem—his other self, the beloved Jonathan; and henceforward to the end of thi...
+  Explore 1 Samuel Chapter 21 to witness David's perilous journey as he flees Saul, relying on divine providence and the aid of the priest. This powerful commentary explores themes of suffering, faith, and how true trust in God triumphs over earthly dangers and political turmoil. Learn how David's experience serves as a profound example of patience and reliance on God in times of affliction.
 weight: 21
 ---
 
