@@ -2,7 +2,7 @@
 title: "Esther 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
 description: >
-  This is but a part of a chapter; the rest of it, beginning at Es 10:4, with six chapters more, being found only in the Greek, is rejected as apocryphal. In these three verses we ha...
+  Discover the profound lessons in Esther 10 as this commentary explores the mighty reign of King Ahasuerus and the exceptional virtue of Mordecai. Learn how humility, seeking the welfare of the people, and peace-making leadership define true greatness in biblical history. Dive deep into this commentary to understand the themes of royal power and selfless devotion.
 weight: 10
 ---
 
