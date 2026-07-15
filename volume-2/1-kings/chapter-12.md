@@ -2,7 +2,7 @@
 title: "1 Kings 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
 description: >
-  The glory of the kingdom of Israel was in its height and perfection in Solomon; it was long in coming to it, but it soon declined, and began to sink and wither in the very next rei...
+  Explore 1 Kings Chapter 12 in this comprehensive biblical commentary to understand the tragic division of the kingdom. Discover the folly of Rehoboam, the revolt of the ten tribes, and the devastating consequences of Jeroboam's descent into idolatry. This deep dive reveals key lessons on leadership, obedience, and the path of Israel.
 weight: 12
 ---
 
