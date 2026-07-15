@@ -2,7 +2,7 @@
 title: "Joshua 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
 description: >
-  This chapter is a summary of Israel's conquests. I. Their conquests under Moses, on the other side Jordan (for we now suppose ourselves in Canaan) eastward, which we had the histor...
+  Explore the complete history of Israel's conquests in Joshua 12 through this in-depth Bible commentary. This summary details the lands conquered under both Moses and Joshua, lists the thirty-one kings subdued, and outlines the subsequent division of the promised land. Discover the powerful connection between these historical victories and the enduring spiritual blessings promised through God's covenant.
 weight: 12
 ---
 
