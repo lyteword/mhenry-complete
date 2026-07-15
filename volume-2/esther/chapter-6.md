@@ -2,7 +2,7 @@
 title: "Esther 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
 description: >
-  It is a very surprising scene that opens in this chapter. Haman, when he hoped to be Mordecai's judge, was made his page, to his great confusion and mortification; and thus way was...
+  Uncover the surprising providence of God in Esther Chapter 6, where Haman's ambition meets divine justice. This commentary explores profound themes of honor, humility, and how God orchestrates the downfall of the proud to ensure the ultimate deliverance of the Jewish people. Discover the powerful lessons on the importance of trusting in God's timing and recognizing true dignity.
 weight: 6
 ---
 
