@@ -2,7 +2,7 @@
 title: "2 Kings 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
 description: >
-  Jerusalem's great distress we read of in the foregoing chapter, and left it besieged, insulted, threatened, terrified, and just ready to be swallowed up by the Assyrian army. But i...
+  Discover the powerful story of 2 Kings 19, where King Hezekiah faces an overwhelming siege by the Assyrian army. Through fervent prayer and divine prophecy, God sends an angel to utterly destroy the enemy, showcasing the ultimate power of faith and God's unwavering protection for Jerusalem. Learn how divine intervention ensured the deliverance of Judah.
 weight: 19
 ---
 
