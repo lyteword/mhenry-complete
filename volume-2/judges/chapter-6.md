@@ -2,7 +2,7 @@
 title: "Judges 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
 description: >
-  Nothing that occurred in the quiet and peaceable times of Israel is recorded; the forty years' rest after the conquest of Jabin is passed over in silence; and here begins the story...
+  Discover the dramatic story in Judges Chapter 6 as Israel faces devastation from the Midianites due to their sin. Follow the powerful journey of Gideon, from his doubt to his divine commissioning, as he overcomes idolatry by overturning the Altar of Baal and leading his people to a miraculous deliverance. Explore how God's presence and unwavering faithfulness ensure victory over oppression and guide His people toward repentance.
 weight: 6
 ---
 
