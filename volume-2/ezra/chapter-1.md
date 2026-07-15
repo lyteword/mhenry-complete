@@ -2,7 +2,7 @@
 title: "Ezra 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
 description: >
-  In this chapter we have, I. The proclamation which Cyrus, king of Persia, issued out for the release of all the Jews that he found captives in Babylon, and the building of their te...
+  Explore the profound historical and theological significance of Ezra Chapter 1. This commentary delves into the proclamation by Cyrus the Persian that led to the liberation of the Jewish captives from Babylon and the mandate to rebuild the Temple in Jerusalem. Discover how divine providence, prophecy fulfillment, and the spirit of liberty orchestrated this monumental deliverance, making this essential reading for anyone interested in biblical history and the story of Israel's return.
 weight: 1
 ---
 
