@@ -2,7 +2,7 @@
 title: "Judges 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
 description: >
-  How idolatry crept into the family of Micah we read in the preceding chapter, how it was translated thence into the tribe of Dan we have an account in this chapter, and how it gain...
+  Explore Judges chapter 18 to see how idolatry crept into the Danite family, leading to the theft of Micah's idols and the conquest of Laish. This biblical commentary reveals the dangers of spiritual complacency, poor governance, and the destructive power of worshipping false gods. Discover lessons on security, moral failure, and seeking God's true path in ancient Israel.
 weight: 18
 ---
 
