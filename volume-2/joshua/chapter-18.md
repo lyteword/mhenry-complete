@@ -2,7 +2,7 @@
 title: "Joshua 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
 description: >
-  In this chapter we have, I. The setting up of the tabernacle at Shiloh, Jos 18:1. II. The stirring up of the seven tribes that were yet unsettled to look after their lot, and the p...
+  Explore Joshua Chapter 18 to understand the profound process of land division and the establishment of the Tabernacle at Shiloh. Discover how divine providence guided the settlement of Israel's tribes, including the detailed inheritance boundaries of the tribe of Benjamin. This in-depth commentary offers powerful theological and historical insight into God's plan for the promised land.
 weight: 18
 ---
 
