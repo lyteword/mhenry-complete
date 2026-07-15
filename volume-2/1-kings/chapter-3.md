@@ -2,7 +2,7 @@
 title: "1 Kings 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  Solomon's reign looked bloody in the foregoing chapter, but the necessary acts of justice must not be called cruelty; in this chapter it appears with another face. We must not thin...
+  Explore the profound wisdom of King Solomon in 1 Kings Chapter 3 through this in-depth Bible commentary. This analysis delves into Solomon's prayer for understanding, divine guidance, and the critical distinction between worldly power and true spiritual discernment. Discover powerful biblical lessons on seeking God's wisdom, the balance of grace and riches, and how godly judgment builds lasting, revered leadership.
 weight: 3
 ---
 
