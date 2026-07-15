@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Explore the dramatic downfall of King Solomon in 1 Kings Chapter 11 through this in-depth biblical commentary. This analysis dissects the consequences of his idolatry, moral decline, and spiritual apostasy, revealing God's judgment and the divine plan for restoration through David's lineage. Discover vital lessons on temptation, faith, and the true price of sin.

@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Explore this in-depth commentary on 1 Chronicles 15 to discover the meticulous procedures involved in bringing the Ark of the Covenant to David's city. Discover profound lessons on obedience, divine providence, and the vital roles of the Levites and musicians in sacred worship. Understand how faithful action and God's help lead to complete and joyous devotion.

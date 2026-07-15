@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Discover the pivotal chapter 1 Samuel 10 detailing the divine anointing of Saul and his election as the first king of Israel. Explore how God transformed Saul's heart through prophetic signs and how the monarchy was established. This commentary unpacks the spiritual journey and political destiny of Saul.

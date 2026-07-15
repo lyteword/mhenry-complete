@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
   Uncover the dramatic climax of 1 Samuel 28 as King Saul spirals into despair and consults a witch in a desperate quest for answers. This in-depth commentary explores the terrifying prophecy delivered by the apparition of Samuel, revealing the true cost of spiritual disobedience, divine judgment, and the inevitable downfall of a king forsaken by God. Essential reading for understanding themes of fate, prophecy, and the consequences of seeking counsel outside of God's will.

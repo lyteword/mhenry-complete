@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Dive deep into the profound theological truths of 1 Samuel Chapter 2 with this expert commentary. Explore Hannah's powerful song of thanksgiving, the sobering consequences of Eli's sons' wickedness, and the overarching prophecy of God's sovereignty and the exaltation of the Messiah. Perfect for in-depth Bible study and understanding divine providence.

@@ -1,5 +1,5 @@
 ---
-title: "Judges 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Explore Judges chapter 11, the epic story of Jephthah, Israel's judge, who faced challenges to become a leader against the Ammonites. Discover profound lessons on divine leadership, the perils of rash vows, and the true nature of faith in this powerful Old Testament commentary.

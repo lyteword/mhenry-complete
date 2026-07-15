@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore the deep insights of the 2 Chronicles 2 commentary on Solomon's monumental project: building the Temple and royal palace. Discover the intricate diplomatic treaty with King Huram of Tyre, the divine wisdom behind the construction, and the massive logistical feats involved in this ancient endeavor. This detailed analysis reveals how Solomon applied his wisdom for the glory of God and the welfare of his kingdom.

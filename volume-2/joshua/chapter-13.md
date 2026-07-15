@@ -1,5 +1,5 @@
 ---
-title: "Joshua 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Explore the profound history of Israel's inheritance in Joshua Chapter 13, detailing the divinely guided division of the land of Canaan among the tribes by lot. This detailed biblical geography reveals the specific ancestral territories for Reuben, Gad, and Manasseh, offering deep insights into God's providence and the covenant promises made to the nation of Israel. Perfect for deep Bible study and understanding the foundation of Israel's land ownership.

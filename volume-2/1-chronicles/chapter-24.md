@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
   Explore 1 Chronicles 24 to discover the divine system behind the distribution of priests and Levites, revealing how God establishes order and prevents contention in worship. This chapter details the systematic assignment of duties for the regular discharge of their offices, highlighting the importance of divine structure in ministry. Learn about the principles of order, lot, and precedence for a deeper understanding of biblical organization.

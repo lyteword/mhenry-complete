@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Explore the powerful biblical account of David bringing the Ark of God to Jerusalem. Discover profound lessons on reverence, divine judgment, and the true nature of faith as David navigates error and devotion. Learn how God blesses humility and rewards those who honor His sacred ordinances.

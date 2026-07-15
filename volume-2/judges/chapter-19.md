@@ -1,5 +1,5 @@
 ---
-title: "Judges 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
   Explore Judges Chapter 19, a pivotal biblical narrative detailing the moral decay of the men of Gibeah and the devastating abuse of a Levite's concubine. This gripping account serves as a stark warning about social corruption, unchecked lust, and the severe consequences of sin in ancient Israel. Uncover profound themes of justice, communal responsibility, and the ultimate reckoning for wickedness.

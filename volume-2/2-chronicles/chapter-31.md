@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
   We have here a further account of that blessed reformation of which Hezekiah was a glorious instrument, and of the happy advances he made in it. I. All the remnants of idolatry wer...

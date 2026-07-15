@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Uncover the dramatic history of the kings of Judah and Israel in 2 Kings Chapter 15. This deep commentary explores the reigns of figures like Azariah, Menahem, and Pekah, revealing how political instability, idolatry, and divine judgment shaped the destiny of the ancient kingdoms. Discover profound insights into ancient political conflicts and God's unwavering promises through this essential biblical study.

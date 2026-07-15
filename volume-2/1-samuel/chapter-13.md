@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Dive deep into the theological and historical analysis of 1 Samuel Chapter 13. This commentary meticulously explores the dramatic downfall of King Saul, examining his failures in leadership, disobedience to God, and the devastating impact of the Philistines' invasion on the Israelites. Discover the profound spiritual and political consequences of Saul's errors and the lesson in waiting on God.

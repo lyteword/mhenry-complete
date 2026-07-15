@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Explore the profound theological insights of 1 Kings 14 through this detailed Bible commentary. Discover the tragic downfall of Jeroboam's house and the moral lessons of Rehoboam's reign, revealing how idolatry and disobedience lead to divine judgment and the ruin of kingdoms. Understand the powerful prophecies concerning Israel's fate and the enduring contrast between faithful devotion and apostasy.

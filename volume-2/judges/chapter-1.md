@@ -1,5 +1,5 @@
 ---
-title: "Judges 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the intense biblical account of Israel's journey in conquering Canaan in Judges 1. This in-depth commentary explores the critical distinction between Judah's courageous leadership and the failures of other tribes, revealing profound lessons on divine providence, obedience, and the dangers of fear and sloth. Learn how faith and diligence determine success in spiritual and earthly battles.

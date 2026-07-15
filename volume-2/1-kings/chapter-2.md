@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore 1 Kings 2 with this in-depth Bible commentary on the transition from David to Solomon. Discover David's final charges, Solomon's wise judgments against rivals like Adonijah and Joab, and the theological foundation of a divinely established kingdom. This commentary offers profound insights into divine justice, kingship, and the enduring promise of God.

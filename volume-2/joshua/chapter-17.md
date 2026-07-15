@@ -1,5 +1,5 @@
 ---
-title: "Joshua 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Explore the detailed inheritance division in Joshua 17, examining the lot of the tribe of Manasseh and the disputes over land. This commentary delves into the biblical wisdom of Joshua, teaching valuable lessons about diligence, stewardship, and how faith empowers Israel to conquer formidable challenges. Discover the principles of hard work and rightful inheritance in this in-depth study.

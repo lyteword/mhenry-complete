@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Explore the dramatic account of 2 Kings Chapter 3, detailing King Jehoram's reign and the perilous expedition against the Moabites. Discover how the prophet Elisha intervened with a stunning miracle of water and divine prophecy to ensure victory, highlighting themes of faith, human folly, and God's incredible providence.

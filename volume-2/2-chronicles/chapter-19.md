@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
   Discover the profound lessons from 2 Chronicles 19 as we explore King Jehoshaphat's journey of piety, repentance, and righteous governance. This commentary delves into the divine reproof he received for political alliances and the crucial establishment of a just judicial system built on the fear of the Lord. Uncover timeless insights on reform, leadership, and the role of God in upholding justice in the kingdom.

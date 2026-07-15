@@ -1,5 +1,5 @@
 ---
-title: "Nehemiah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Dive into Nehemiah chapter 3 to explore the incredible, collaborative effort of rebuilding the wall of Jerusalem. Discover how priests, nobles, merchants, and common people worked together with zeal and dedication for the public good. This commentary highlights the spiritual commitment and teamwork required for such monumental historical projects in ancient Israel.

@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Explore 1 Samuel chapter 8 to understand the critical moment when Israel demanded a king. This commentary delves into the theological conflict between the people's desire for worldly power and God's divine will, analyzing the heavy burdens and consequences of establishing a monarchy. Discover the profound lessons on leadership, corruption, and the nature of true divine governance in ancient Israel.

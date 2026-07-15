@@ -1,5 +1,5 @@
 ---
-title: "Judges 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Dive deep into Judges Chapter 12 with this comprehensive commentary, exploring the intense conflict between Jephthah and the proud Ephraimites. This analysis reveals profound themes of pride, divine justice, and the consequences of tribal strife in ancient Israel's history. Discover the detailed biblical narrative and theological insights that illuminate the dynamics of leadership and conflict.

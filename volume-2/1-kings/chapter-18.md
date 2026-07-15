@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
   Uncover the dramatic confrontation in 1 Kings 18, where the prophet Elijah challenges the false worship of Baal on Mount Carmel. This compelling biblical narrative showcases the ultimate power of God, illustrating the necessity of true repentance and the triumph of faith over idolatry. Discover the profound lessons on divine intervention and the return of God's mercy.

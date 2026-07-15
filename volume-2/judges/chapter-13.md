@@ -1,5 +1,5 @@
 ---
-title: "Judges 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Discover the profound story of Samson in Judges Chapter 13 through this in-depth biblical commentary. This analysis explores his divine appointment as a Nazarite, his role as a powerful deliverer of Israel, and how he serves as a compelling type of Christ. Explore the rich themes of faith, obedience, and God's sovereign plan in this essential study of biblical prophecy.

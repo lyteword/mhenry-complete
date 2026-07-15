@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Discover the grand scope of Solomon's reign in 2 Chronicles Chapter 8, exploring his extensive building projects, the meticulous organization of temple service, and his successful trade expeditions for gold. This chapter offers profound insights into the balance between worldly ambition and divine devotion, teaching valuable lessons about diligence, industry, and the true nature of spiritual wealth.

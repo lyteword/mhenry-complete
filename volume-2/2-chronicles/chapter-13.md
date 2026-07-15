@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Dive into the detailed commentary of 2 Chronicles Chapter 13, examining the political and spiritual struggle between Abijah and Jeroboam. Discover the pivotal role of divine intervention, the importance of righteous leadership, and the ultimate triumph of faith over idolatry in this epic account of Judah's victory.

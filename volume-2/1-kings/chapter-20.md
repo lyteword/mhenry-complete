@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
   Uncover the dramatic history of 1 Kings Chapter 20, exploring the intense war between Ahab and Ben-hadad. This profound commentary delves into the critical lessons of leadership, the pitfalls of pride and arrogance, and the undeniable power of divine providence. Discover how humility, the guidance of a prophet, and true faith shape the destiny of kings and conquer worldly ambition.

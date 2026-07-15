@@ -1,5 +1,5 @@
 ---
-title: "Ezra 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezra 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Explore Ezra Chapter 4 through this in-depth commentary to understand the intense opposition faced during the rebuilding of the Temple. Discover how enemies attempted to obstruct God's work through deceit and political manipulation, and learn the powerful lesson of perseverance and trusting in God amidst historical conflict. This commentary provides essential insights into the struggles of faith and the triumph of divine purpose.

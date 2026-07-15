@@ -1,5 +1,5 @@
 ---
-title: "Nehemiah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover Nehemiah's powerful response to the destruction of Jerusalem. This commentary explores his profound sorrow, fervent prayer, and repentance, revealing how faith and covenant promises lead to restoration amidst national distress. Learn how to apply Nehemiah's example of seeking God's mercy and divine guidance during times of crisis.

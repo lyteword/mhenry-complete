@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   This deep dive into 1 Chronicles 4 reveals the powerful lineage of the Tribe of Judah and the profound impact of Jabez's prayer for blessing and divine protection. Uncover ancient genealogies of Simeon and explore timeless lessons on how faith and piety lead to honor, prosperity, and escaping the worst calamities.

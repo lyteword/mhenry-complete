@@ -1,5 +1,5 @@
 ---
-title: "Nehemiah 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Discover the profound significance of Nehemiah Chapter 12, detailing the solemn dedication of the Jerusalem wall, the roles of the Priests and Levites, and the spiritual renewal of the returned community. This passage offers deep insights into biblical restoration, the importance of faithful ministry, and how collective thanksgiving sanctifies the city. Explore the history of religious service and the enduring legacy of devotion in this powerful account.

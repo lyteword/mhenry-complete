@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Discover the powerful narrative of 1 Chronicles 14, exploring how David established his kingdom and achieved victory over the Philistines through unwavering faith and divine providence. This commentary unpacks profound biblical lessons on leadership, the importance of trusting God in times of distress, and how to resist spiritual enemies. Learn how David's triumphs serve as a model for enduring spiritual warfare and recognizing God's exalted honor.

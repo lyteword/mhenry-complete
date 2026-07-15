@@ -1,5 +1,5 @@
 ---
-title: "Esther 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Esther 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Explore Esther Chapter 5 in this in-depth Bible commentary. Discover the drama of Queen Esther's bold petition to the king and the bitter rise of Haman's pride and revenge against Mordecai. Learn profound lessons on courage, the power of prayer, and how God works through even the most wicked schemes.

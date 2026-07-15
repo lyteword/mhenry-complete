@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Explore 2 Samuel Chapter 4 to witness the tragic downfall of Ish-bosheth and the shocking treachery of his own servants. Discover how King David exercises divine justice to punish betrayal and uphold true leadership in this profound biblical narrative. This commentary offers deep insights into ancient history, the nature of treachery, and the power of God's judgment.

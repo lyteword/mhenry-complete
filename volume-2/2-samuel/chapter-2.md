@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Dive deep into 2 Samuel Chapter 2 to explore the dramatic civil war that shaped Israel's history as David secured his kingship at Hebron. This expert commentary analyzes the profound interplay between divine guidance, human ambition, and leadership struggles, offering critical insights into faith, prudence, and the ultimate triumph of God's providence. Discover powerful biblical lessons on navigating conflict and securing your destiny.

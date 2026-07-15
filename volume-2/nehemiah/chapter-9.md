@@ -1,5 +1,5 @@
 ---
-title: "Nehemiah 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Explore the profound theological lessons of Nehemiah 9, examining the journey from rebellion to restoration through a solemn fast and deep confession of sin. This commentary reveals how acknowledging God's boundless mercy and renewing your covenant commitment is the key to overcoming personal failings and finding true spiritual strength. Discover ancient wisdom on repentance, obedience, and the unwavering faithfulness of God.

@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 29 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 29 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "29"
 description: >
   Discover the powerful religious reformation under King Hezekiah in 2 Chronicles 29. This chapter details the zealous cleansing of the Temple, the making of atonement sacrifices, and the revival of God's ordinances. Learn how true repentance and diligent service can bring about a sudden and marvelous turnaround for a nation.

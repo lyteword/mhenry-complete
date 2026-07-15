@@ -1,5 +1,5 @@
 ---
-title: "Nehemiah 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Dive deep into Nehemiah 11 to uncover the powerful story of Jerusalem's re-peopling. This detailed biblical commentary explores how the city was populated by rulers, priests, and Levites, analyzing the ancient distribution methods and the spiritual significance behind establishing a holy habitation.

@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Explore the historical account in 1 Chronicles 5 detailing the journey of the tribes of Reuben, Gad, and Manasseh. Discover how their trust in God led to victory against the Hagarites, and the consequences of their later transgression and idolatry. This powerful passage offers profound insights into the power of faith, divine intervention in warfare, and the ultimate consequences of forsaking God.

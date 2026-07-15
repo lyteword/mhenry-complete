@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Explore 1 Samuel Chapter 11, a profound commentary on the glorious rescue of Jabesh-Gilead from the Ammonites and the rise of King Saul. This deep dive explores themes of divine providence, courageous leadership, Saul's humility, and the confirmation of his reign at Gilgal. Discover how faith and God's guidance shaped this pivotal moment in Israel's history.

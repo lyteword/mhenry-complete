@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 34 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 34 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "34"
 description: >
   Before we see Judah and Jerusalem ruined we shall yet see some glorious years, while good Josiah sits at the helm. By his pious endeavours for reformation God tried them yet once m...

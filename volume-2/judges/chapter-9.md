@@ -1,5 +1,5 @@
 ---
-title: "Judges 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Explore the dramatic downfall of Abimelech, the usurper who betrayed his kin and led Israel into ruin. This detailed commentary of Judges 9 reveals profound lessons on the perils of ambition, the destructive nature of sin, and the ultimate, undeniable power of divine justice. Discover how Jotham's parable warns against the false pursuit of worldly glory and the consequences of perfidious leadership.

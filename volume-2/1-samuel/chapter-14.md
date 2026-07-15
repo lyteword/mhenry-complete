@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Uncover the profound lessons of 1 Samuel 14 through this expert biblical commentary, detailing Jonathan's courageous, faith-driven attack on the Philistines and the role of divine providence in their victory. Explore the complex interplay between human folly, rash leadership decisions, and God's unwavering grace, offering deep theological insights into courage, justice, and the true meaning of faithful service.

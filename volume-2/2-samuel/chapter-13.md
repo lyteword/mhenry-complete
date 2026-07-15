@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Dive deep into 2 Samuel 13 with this expert commentary on the shocking story of Amnon's incest and Absalom's murder. Discover profound insights into the devastating consequences of sin, the nature of revenge, and the tragic ripple effects within a royal family.

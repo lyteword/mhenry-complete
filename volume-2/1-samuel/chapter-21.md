@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Explore 1 Samuel Chapter 21 to witness David's perilous journey as he flees Saul, relying on divine providence and the aid of the priest. This powerful commentary explores themes of suffering, faith, and how true trust in God triumphs over earthly dangers and political turmoil. Learn how David's experience serves as a profound example of patience and reliance on God in times of affliction.

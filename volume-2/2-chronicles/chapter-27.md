@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Discover the reign of King Jotham in 2 Chronicles 27, a study of a pious and prosperous prince whose success stemmed from preparing his ways before the Lord. This commentary explores how Jotham built up his kingdom through righteous governance and military might, offering valuable lessons on consistency, integrity, and the critical difference between a good king and a corrupt people.

@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Uncover the dramatic account of 2 Kings Chapter 10, detailing Jehu's uncompromising execution of his divine commission to eradicate the idolatry of Ahab and the worship of Baal. This deep dive explores the bloody destruction of the house of Ahab and the profound theological implications of Jehu's inconsistent adherence to God's law. Discover the narrative of divine judgment and the consequences of religious inconsistency in ancient Israel's history.

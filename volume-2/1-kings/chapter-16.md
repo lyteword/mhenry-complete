@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Explore the dramatic political and spiritual upheavals of the Kingdom of Israel in 1 Kings chapter 16, detailing the ruin of the Baasha dynasty and the rise of wicked kings like Omri and the notorious Ahab. Discover the intense conflicts between human ambition, idolatry, and divine judgment as you trace the path from Zimri's fleeting reign to Ahab's shocking alliance with Jezebel. This chapter offers deep insights into the cycles of moral decline and the ultimate consequences of forsaking God's covenant.

@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Explore 1 Samuel 22 to witness David's journey from refuge in the cave of Adullam to the tragic persecution of the priests of Nob by Saul. This commentary delves into profound themes of unwavering faith, loyalty, and the devastating consequences of political jealousy and false accusation. Discover how David seeks divine protection amidst turmoil and finds solace in the steadfast companionship of those who stand by him.

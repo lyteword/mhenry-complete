@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Explore 1 Chronicles 6 to discover the intricate genealogy and vital roles of the Levites and Priests in ancient Israel. This chapter details their sacred duties, from singing service in the Tabernacle to their crucial work in making atonement, revealing how God provided for their structure and the distribution of their cities throughout the land.

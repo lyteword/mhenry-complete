@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Explore 1 Chronicles 17 to discover the profound covenant promises made by God to David and the powerful lesson in trusting divine providence. This commentary explores themes of humble faith, the eternal nature of God's blessings, and how to align your life with God's kingdom purpose through fervent prayer. Learn how to magnify God's greatness and embrace the assurance of His everlasting promise.

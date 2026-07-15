@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Dive deep into 1 Samuel Chapter 9, a crucial biblical narrative detailing the selection and anointing of King Saul. This commentary analyzes the divine providence behind Saul's journey, showing how seemingly small events lead to monumental destiny. Explore themes of humility, leadership, and God's plan as He raises up the chosen one to rule Israel.

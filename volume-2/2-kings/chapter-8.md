@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Explore the profound narratives of 2 Kings Chapter 8, featuring Elisha's miracles, the rise of the ruthless king Hazael, and the tragic reigns of Jehoram and Ahaziah. This detailed biblical commentary reveals deep themes of divine providence, the consequences of wickedness, and the power of restoration amidst famine and political turmoil. Discover how prophecy unfolds and how God orchestrates history in these pivotal moments of Israel's story.

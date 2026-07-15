@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
   Dive into 2 Chronicles 23 to uncover the dramatic restoration of the Kingdom of Judah following the tyranny of Athaliah. This pivotal narrative details the strategic actions of Jehoiada, leading to the enthronement of King Joash and a profound religious and civil reform that re-established the covenant with God. Explore the powerful themes of political renewal, divine favor, and the revival of the Temple worship.

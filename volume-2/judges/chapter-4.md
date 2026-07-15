@@ -1,5 +1,5 @@
 ---
-title: "Judges 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Explore the powerful biblical narrative of Judges 4, detailing how God uses the prophetess Deborah and the general Barak to deliver Israel from oppression by Jabin. This commentary explores themes of divine providence, the necessity of courageous partnership, and ultimate victory through faith. Learn how seeking God in trouble leads to salvation and complete deliverance.

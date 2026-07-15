@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
   Explore the rich narrative of 1 Chronicles Chapter 19 through this in-depth biblical commentary. Discover lessons on diplomacy, the consequences of arrogance, and the courage of leaders like Joab during the decisive battles against the Ammonites and the Syrians. Perfect for deep scripture study and understanding ancient warfare and moral principles.

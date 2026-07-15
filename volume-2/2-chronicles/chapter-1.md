@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Unlock the profound lessons of 2 Chronicles Chapter 1 with this expert commentary on King Solomon's reign. Discover how Solomon's devotion, his prayer for wisdom, and his alignment with God led to unparalleled prosperity, wealth, and lasting influence. Explore the powerful biblical narrative that reveals the true path to success by prioritizing wisdom over worldly riches.

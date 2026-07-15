@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Discover the epic biblical story of 1 Samuel 17, where the young shepherd David faces the giant Goliath. This powerful commentary explores timeless themes of faith, courage, and how divine providence enables the weak to conquer overwhelming odds. Learn essential lessons on overcoming fear and achieving victory through unwavering trust in God.

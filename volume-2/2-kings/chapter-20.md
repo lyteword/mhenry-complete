@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
   Explore the powerful narrative of 2 Kings 20, detailing King Hezekiah's miraculous recovery from deadly sickness through fervent prayer and divine signs. This chapter powerfully illustrates the contrast between humble piety and devastating pride, revealing God's faithfulness in healing and warning us about the consequences of vanity. Discover profound lessons on faith, repentance, and trusting in God's providence.

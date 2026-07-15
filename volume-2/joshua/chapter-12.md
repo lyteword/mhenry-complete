@@ -1,5 +1,5 @@
 ---
-title: "Joshua 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Explore the complete history of Israel's conquests in Joshua 12 through this in-depth Bible commentary. This summary details the lands conquered under both Moses and Joshua, lists the thirty-one kings subdued, and outlines the subsequent division of the promised land. Discover the powerful connection between these historical victories and the enduring spiritual blessings promised through God's covenant.

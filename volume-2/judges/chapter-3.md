@@ -1,5 +1,5 @@
 ---
-title: "Judges 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Discover the gripping story of Judges chapter 3, where Israel confronts the perils of idolatry and mingling with foreign nations, leading to divine discipline. Explore the heroic acts of judges Othniel and Ehud as God uses warfare and deliverance to test His people and secure their future. This commentary reveals profound lessons on martial discipline, faith, and how God orchestrates both oppression and salvation.

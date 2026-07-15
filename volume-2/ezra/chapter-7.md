@@ -1,5 +1,5 @@
 ---
-title: "Ezra 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezra 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Discover the pivotal chapter of Ezra 7, detailing the journey of Ezra the scribe and his crucial mission to Jerusalem. This deep dive explores how divine guidance and the decree of King Artaxerxes led to the restoration of the Law of Moses and the revival of ancient religious practices. Uncover the story of faithful leadership, scripture study, and God's providence in rebuilding the heart of Israel.

@@ -1,5 +1,5 @@
 ---
-title: "Joshua 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Explore Joshua Chapter 22 in this profound biblical commentary, delving into the complexities of the Reubenites, Gadites, and half tribe of Manasseh. Discover the crucial lessons on balancing zeal and prudence as they navigated disputes over an altar and maintained religious unity through sincere apology and wisdom. This insightful analysis reveals vital truths about covenant keeping, obedience to God's law, and the enduring importance of fellowship within Israel.

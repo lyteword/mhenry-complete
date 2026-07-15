@@ -1,5 +1,5 @@
 ---
-title: "Ruth 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ruth 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Explore the profound interactions in Ruth Chapter 3 through this Matthew Henry commentary. Discover the deep themes of virtue, honorable conduct, and divine providence as Ruth seeks redemption through Boaz. This insightful study offers powerful biblical teaching on patience, trust, and the transformative power of true character.

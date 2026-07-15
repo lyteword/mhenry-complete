@@ -1,5 +1,5 @@
 ---
-title: "Esther 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Esther 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Uncover the surprising providence of God in Esther Chapter 6, where Haman's ambition meets divine justice. This commentary explores profound themes of honor, humility, and how God orchestrates the downfall of the proud to ensure the ultimate deliverance of the Jewish people. Discover the powerful lessons on the importance of trusting in God's timing and recognizing true dignity.

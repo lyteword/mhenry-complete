@@ -1,5 +1,5 @@
 ---
-title: "Ruth 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ruth 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore the profound biblical narrative of Ruth Chapter 1, delving into the deep afflictions of Naomi, the famine in ancient Israel, and the tests of enduring faith. This commentary reveals powerful lessons on navigating loss, steadfast loyalty, and trusting in God's providence during times of severe hardship. Discover how true constancy and divine mercy transform sorrow into hope.

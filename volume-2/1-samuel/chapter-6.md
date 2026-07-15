@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Uncover the dramatic return of the Ark of the Lord in 1 Samuel Chapter 6, detailing the Philistines' handling of this sacred object and the miraculous journey to Beth-shemesh. This chapter offers profound lessons on divine providence, the critical importance of reverence for holy things, and the powerful judgment against disrespect. Explore how God uses even the actions of animals to demonstrate His sovereignty and the lasting significance of sacred memorials.

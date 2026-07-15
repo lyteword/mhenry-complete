@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
   Explore the dramatic account of 1 Samuel 31, detailing the tragic downfall and death of King Saul at Gilboa. This in-depth Bible commentary explores profound themes of divine judgment, the consequences of sin, and the crucial difference between worldly honor and true faith. Discover powerful lessons on God's providence and the path of righteousness.

@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 30 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 30 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "30"
 description: >
   Explore the profound biblical narrative of 1 Samuel 30, detailing King David's ordeal after the destruction of Ziklag. This in-depth commentary explores themes of unwavering faith, divine providence, and wise leadership as David navigates immense loss and recovers his fortunes. Discover timeless lessons on trust, mercy, and stewardship found in this powerful study of David's trials.

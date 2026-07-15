@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
   Dive deep into 2 Chronicles 25 to analyze the complex reign of King Amaziah of Judah, covering his military campaigns, his fatal idolatry of the Edomites, and the spiritual repercussions of his choices. This detailed biblical commentary reveals powerful lessons on pride, obedience, and the inevitable consequences of forsaking God.

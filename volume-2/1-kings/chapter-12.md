@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Explore 1 Kings Chapter 12 in this comprehensive biblical commentary to understand the tragic division of the kingdom. Discover the folly of Rehoboam, the revolt of the ten tribes, and the devastating consequences of Jeroboam's descent into idolatry. This deep dive reveals key lessons on leadership, obedience, and the path of Israel.

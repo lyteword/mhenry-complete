@@ -1,5 +1,5 @@
 ---
-title: "Nehemiah 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Discover the powerful religious reforms of Nehemiah in chapter 13. This commentary explores how Nehemiah purged foreign influences, restored the sanctity of the Sabbath, and corrected moral abuses, offering deep insights into spiritual leadership and ancient Israel's journey toward holiness.

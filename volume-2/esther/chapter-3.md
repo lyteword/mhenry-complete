@@ -1,5 +1,5 @@
 ---
-title: "Esther 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Esther 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Uncover the dark plot hatched by Haman in Esther Chapter 3 as this detailed biblical commentary explores the perils of malice and persecution. Dive into the moral conflict between Mordecai's defiance and the tragic consequences of mass slaughter orchestrated by King Ahasuerus. Discover how pride, injustice, and divine providence shape the destiny of the Jewish people in this pivotal ancient narrative.

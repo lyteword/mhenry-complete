@@ -1,5 +1,5 @@
 ---
-title: "Judges 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Dive deep into Judges chapter 21 with this comprehensive Matthew Henry Bible Commentary, exploring the powerful lamentation over the tribe of Benjamin and the subsequent provisions made for its survival. Discover profound insights into Israel's zeal, the nature of repentance, and the complex historical arrangements for tribal restoration. Perfect for in-depth biblical study and understanding ancient Israelite society.

@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the profound spiritual lessons in 2 Kings Chapter 2, detailing the extraordinary translation of the prophet Elijah and the miraculous power demonstrated by Elisha. This commentary explores themes of spiritual succession, the promise of the Kingdom of Heaven, and divine intervention through miracles like the parting of the Jordan River. Dive into this in-depth analysis to deepen your understanding of faith, prophecy, and enduring spiritual legacy.

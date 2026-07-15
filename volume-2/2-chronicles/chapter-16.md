@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Explore 2 Chronicles Chapter 16 through this in-depth commentary on King Asa's fateful alliance with Benhadad. Discover the profound theological lessons about trusting in God versus relying on earthly powers, and understand the tragic consequences of Asa's choices. This commentary offers deep insights into biblical history and moral accountability regarding faith and leadership.

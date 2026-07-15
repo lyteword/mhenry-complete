@@ -1,5 +1,5 @@
 ---
-title: "Esther 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Esther 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the dramatic story of Esther 4, where intense mourning among the Jews meets a desperate plea for help. Explore the powerful themes of faith, courage, and the crucial role of intercession as Esther faces a deadly royal decree. Learn how divine providence guides a queen to act boldly for her people's deliverance.

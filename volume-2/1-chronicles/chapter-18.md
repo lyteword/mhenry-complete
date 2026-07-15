@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
   Discover the account of David's remarkable prosperity in 1 Chronicles Chapter 18, detailing his sweeping military victories over the Philistines, Moabites, and Syrians, alongside his establishment of justice and righteous rule over Israel. This in-depth commentary explores how David's deep piety and prayer led to God's favor, showcasing the profound lessons on leadership, spiritual dedication, and how true strength is found in seeking the Kingdom of God.

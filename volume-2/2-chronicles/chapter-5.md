@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Uncover the profound theological significance of 2 Chronicles 5, exploring the solemn dedication of the Ark of the Covenant into Solomon's new Temple. This expert commentary reveals the meaning behind the "cloud of glory," connecting the ancient ceremony to the true presence of Christ in the church today. Dive deep into this pivotal biblical event to understand the enduring power of worship and divine presence.

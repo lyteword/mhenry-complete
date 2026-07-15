@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Discover the profound history and deep theological insights of 1 Chronicles Chapter 11. This comprehensive commentary explores David's ascension, the compilation of his mighty men, and the powerful lessons on leadership, covenant, and God's sovereign providence. Uncover how true greatness is defined by service and devotion to the Lord of hosts.

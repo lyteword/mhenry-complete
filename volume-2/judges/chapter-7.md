@@ -1,5 +1,5 @@
 ---
-title: "Judges 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Discover the powerful biblical story of Gideon's victory over the Midianites in Judges Chapter 7. This commentary delves into how God used faith and a small army of 300 men, employing strategic terror and divine providence to achieve an overwhelming rout. Explore profound lessons on courage, divine encouragement, and how faith can conquer even the greatest odds.

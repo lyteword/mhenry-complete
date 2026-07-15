@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
   Discover the profound theological lessons in 1 Samuel 24 as we examine the dramatic encounter between David and Saul. This in-depth biblical commentary explores themes of God's grace, the power of conscience, and the wisdom of mercy in resisting revenge. Uncover timeless insights on leadership, forgiveness, and divine providence in this essential study of 1 Samuel.

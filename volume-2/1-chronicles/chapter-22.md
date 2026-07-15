@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Dive deep into 1 Chronicles 22 to understand the profound spiritual journey of David and Solomon as they prepare to build the Temple. Discover the lessons on diligence, divine guidance, and the true meaning of service when undertaking monumental works for God. This commentary explores the significance of preparation, wisdom, and seeking God's will in great endeavors.

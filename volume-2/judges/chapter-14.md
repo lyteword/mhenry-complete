@@ -1,5 +1,5 @@
 ---
-title: "Judges 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Dive into this expert biblical commentary on Judges 14, dissecting Samson's life—from his unconventional marriage to his supernatural feats and the significance of his famous riddle. Discover profound insights into divine providence, human folly, and how God uses seemingly weak means to orchestrate mighty victories against enemies. This in-depth analysis reveals powerful lessons on faith, strength, and the true purpose behind life's unexpected turns.

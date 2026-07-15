@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Dive deep into 2 Samuel 15 with this expert biblical commentary on Absalom's rebellion against King David. This analysis explores the political strategy behind Absalom's ambition, David's desperate flight, and the masterful use of counsel and divine providence. Uncover the complex themes of royal ambition, political maneuvering, and profound emotional turmoil in this essential study of ancient Israelite history.

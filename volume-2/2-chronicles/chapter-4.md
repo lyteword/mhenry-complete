@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Explore the profound significance of the Temple's furnishings in 2 Chronicles 4, examining the intricate brass and gold items that define God's house. Discover how these sacred objects—from the brazen altar to the golden candlesticks—symbolically foreshadow the grace of the Gospel and the atonement of Christ. This detailed commentary reveals the deep spiritual truths embedded within the physical structure of God's sanctuary.

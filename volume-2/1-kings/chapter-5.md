@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Explore the profound biblical account in 1 Kings Chapter 5 detailing King Solomon's preparations for building the magnificent Temple of the Lord. This chapter reveals the divine providence, wise alliances with Hiram of Tyre, and the crucial role of Solomon's wisdom in realizing this monumental construction. Discover how peace and collaboration paved the way for one of history's greatest architectural achievements, connecting ancient construction with timeless spiritual truths.

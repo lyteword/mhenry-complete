@@ -1,5 +1,5 @@
 ---
-title: "Esther 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Esther 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Uncover the profound biblical commentary on Esther Chapter 1, exploring the lavish court feasts of King Ahasuerus and the dramatic refusal of Queen Vashti. This in-depth analysis reveals the intricate role of divine providence in shaping history, demonstrating how seemingly small events paved the way for Esther’s destiny to the throne. Dive deep into ancient Persian history, scripture, and theological insights to understand the vast reaches of God's plan.

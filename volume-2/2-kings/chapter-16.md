@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Explore the detailed commentary on 2 Kings Chapter 16, focusing on the wicked reign of King Ahaz of Judah. This analysis delves into his notorious idolatry, his political maneuvering with Assyria, and the desecration of the temple altar. Discover the profound consequences of abandoning God's covenant and the ultimate fate of this notorious king.

@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   This detailed Bible commentary on 2 Samuel 16 delves deep into the political turmoil surrounding David and Absalom. Uncover the complex themes of false accusations, treacherous counsel from Ahithophel, and the role of divine providence amidst human malice. Essential reading for understanding biblical interpretation and ancient Israelite drama.

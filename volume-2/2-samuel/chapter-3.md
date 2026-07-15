@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Uncover the dramatic political drama of 2 Samuel 3 as David solidifies his power while navigating intense internal conflict. This deep commentary explores Abner's ambition, the treacherous murder by Joab, and David's profound reflection on justice, loyalty, and divine providence in the face of betrayal.

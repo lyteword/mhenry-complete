@@ -1,5 +1,5 @@
 ---
-title: "Joshua 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Dive deep into Joshua 21 and uncover the detailed account of how God distributed cities and territories to the tribe of Levi, highlighting the divine plan for Israel's prosperity. This commentary explores the fulfillment of God's promises, revealing the crucial role of the Levites in maintaining the nation's spiritual life and securing their ultimate victory.

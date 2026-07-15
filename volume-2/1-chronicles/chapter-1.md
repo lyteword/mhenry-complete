@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore the profound genealogies in 1 Chronicles 1 with this in-depth biblical commentary. This analysis traces the lineage from Adam to Abraham, revealing how these ancient records illuminate the prophecy of the Messiah and the covenant history of Israel. Discover the deep theological truths behind these foundational biblical accounts.

@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   This in-depth commentary on 1 Kings 1 explores the political drama surrounding King David's final years, the usurpation attempt by Adonijah, and the crucial role of Nathan the prophet. Uncover the divine mandate and the solemn anointing that confirmed Solomon's succession, offering deep insight into themes of leadership, prophecy, and rightful kingship.

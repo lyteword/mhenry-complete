@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Uncover the unparalleled wisdom and staggering wealth of King Solomon in 1 Kings Chapter 10. This detailed commentary explores the Queen of Sheba's visit and reveals the profound spiritual lesson: true riches are found not in earthly possessions, but in seeking God's righteousness. Dive into this deep biblical analysis to understand the vanity of worldly things and discover the enduring truth of divine favor.

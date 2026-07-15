@@ -1,5 +1,5 @@
 ---
-title: "Esther 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Esther 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Discover the profound lessons of Esther 8 in this biblical commentary as Esther's powerful intercession and the king's decree lead to the deliverance of the Jewish people from Haman's plot. Explore themes of divine providence, courage, and how faith inspires widespread joy and spiritual conversion. This passage offers compelling insights into the power of petition and the reward for righteousness.

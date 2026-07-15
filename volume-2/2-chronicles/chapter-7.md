@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Discover the profound answer to Solomon's prayer in 2 Chronicles Chapter 7, exploring God's gracious acceptance through the fire from heaven and the resulting national blessing. This commentary delves into the critical themes of divine acceptance, the power of sincere repentance, and the covenant promises God makes regarding national healing and lasting reign. Learn how obedience and turning from wicked ways lead to profound spiritual and earthly prosperity.

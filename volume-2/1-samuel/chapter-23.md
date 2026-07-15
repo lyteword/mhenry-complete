@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
   Uncover the gripping drama of 1 Samuel 23 as King Saul relentlessly pursues David, showcasing a profound study of faith, loyalty, and divine providence. This insightful commentary explores how steadfast friendship and God's guidance led to David's miraculous escape from treacherous peril. Dive deep into these timeless biblical lessons on perseverance and finding refuge in God.

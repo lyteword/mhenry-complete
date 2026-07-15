@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Explore 2 Chronicles Chapter 10 to understand the downfall of Rehoboam and the contrasting reigns of Solomon. This detailed Bible commentary explores themes of political folly, divine sovereignty, and the consequences of human disobedience, revealing profound lessons on wisdom and God's ultimate plan.

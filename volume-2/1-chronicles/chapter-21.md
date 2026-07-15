@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Explore the profound story of 1 Chronicles 21, detailing King David's pride, his sin in numbering the people, and the devastating consequences of divine judgment. This rich biblical commentary delves deep into David's sincere repentance, God's mercy, and the powerful symbolism of atonement, offering vital lessons on humility and reconciliation.

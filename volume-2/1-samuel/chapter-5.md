@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Explore 1 Samuel 5 to understand the dramatic confrontation between the Ark of God and the Philistines. This commentary delves into the fall of Dagon, God's severe judgment, and the ultimate triumph of faith over idolatry, highlighting the power of divine sovereignty. Discover why human efforts to defy God's will ultimately lead to ruin.

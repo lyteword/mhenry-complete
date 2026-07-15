@@ -1,5 +1,5 @@
 ---
-title: "Judges 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Dive deep into Judges 16 with this expert commentary on Samson's fatal downfall, revealing how lust and betrayal led to his ruin. Discover the profound theological lessons about divine judgment, the fragility of human strength, and Christ's ultimate victory over death.

@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 29 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 29 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "29"
 description: >
   Explore 1 Samuel chapter 29 as we examine the intense "strait" David faced while serving the Philistines. Discover how God's providence delivered him from danger and how an honorable dismissal proved a testament to his upright heart. This biblical commentary delves into themes of loyalty, leadership, and divine guidance in 1 Samuel 29.

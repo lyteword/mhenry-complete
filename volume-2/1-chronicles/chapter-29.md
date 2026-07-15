@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 29 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 29 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "29"
 description: >
   Explore 1 Chronicles 29 to discover David's powerful call for cheerful, willing contributions to the temple building, highlighting the biblical principles of generous giving. This profound passage also features David's heartfelt prayer of praise and a lesson on cultivating a 'perfect heart' for service, offering timeless wisdom on devotion, humility, and honoring God's glory.

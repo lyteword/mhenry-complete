@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Explore the dramatic succession crisis in 2 Kings 14, examining the reigns of King Amaziah of Judah and King Jeroboam of Israel. This commentary delves into profound themes of pride, divine justice, and the role of prophecy, offering deep insights into God's providence over human history and the moral lessons embedded in ancient scripture.

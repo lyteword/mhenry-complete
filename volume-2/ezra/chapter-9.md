@@ -1,5 +1,5 @@
 ---
-title: "Ezra 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezra 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Dive deep into Ezra Chapter 9 with this expert commentary, exploring the spiritual crisis of ancient Israel. This analysis uncovers the serious issues of intermarriage and the profound repentance Ezra offers to God, highlighting timeless biblical lessons on sin, mercy, and accountability. Understand how God's grace shines amidst human failure and what these historical warnings teach us today.

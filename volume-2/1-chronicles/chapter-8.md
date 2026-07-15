@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Explore the detailed genealogy of the Benjamin tribe in 1 Chronicles 8, tracing the lineage of Saul and highlighting the historical journey of this tribe through the ages. Discover the stories of valor, the preservation of righteous names, and how God raises up the weakest, making this essential reading for biblical history enthusiasts and genealogy research.

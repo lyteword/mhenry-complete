@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Explore the profound and melancholy reign of Rehoboam in 2 Chronicles Chapter 12, a deep biblical commentary on the consequences of forsaking God's law. This analysis details divine judgment, the people's repentance, and the complex outcomes for Judah following their disobedience. Dive into this essential commentary to understand the power of divine providence and the enduring lessons of obedience and mercy.

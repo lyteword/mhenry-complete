@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Explore the complete historical account of King Joash of Judah in 2 Kings Chapter 12. This detailed commentary delves into his reign, the critical efforts to repair the Temple, and the profound spiritual lessons found in his zealous actions and eventual apostasy. Discover how divine guidance and earthly power shaped the fate of the kingdom.

@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Discover the profound story of the prophet Elijah in 1 Kings 17, a testament to God's miraculous power and unwavering faithfulness. Explore how divine provision, through the ravens and the compassion of the widow of Zarephath, sustained Elijah during a devastating famine, culminating in a breathtaking miracle that proves God is present in our darkest times. This powerful biblical narrative is a deep dive into themes of faith, obedience, and trusting in God's provision amidst hardship.

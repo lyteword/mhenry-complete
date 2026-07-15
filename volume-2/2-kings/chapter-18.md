@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
   Explore 2 Kings 18 through this detailed commentary on King Hezekiah's courageous religious reforms against idolatry and his unwavering faith. This essential biblical study highlights how true reliance on the Lord guided Judah through the perilous Assyrian invasion and the challenge of false confidence.

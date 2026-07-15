@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Discover the compelling story of King Asa's courageous national reformation in 2 Chronicles 15. This in-depth commentary explores the power of sincere repentance, covenant renewal, and dedicated service to God, revealing how seeking Him leads to peace and divine favor. Learn vital lessons on overcoming idolatry and ensuring God's presence in your life through this profound biblical study.

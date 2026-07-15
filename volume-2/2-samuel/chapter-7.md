@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Uncover the profound theological depth of 2 Samuel Chapter 7 as we examine David's journey from humble ambition to eternal destiny. This commentary explores God's gracious covenant promises, David's prayer for blessing, and the ultimate fulfillment of God's plan through the Messiah's everlasting kingdom. Discover how God's faithfulness ensures that His promises, made to David, are secured for His seed for ever.

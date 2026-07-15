@@ -1,5 +1,5 @@
 ---
-title: "Nehemiah 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Discover the profound lessons from Nehemiah Chapter 8, detailing the powerful public reading and expounding of the Law of Moses by Ezra. Learn how diligent scripture study leads to deep spiritual understanding, transforming sorrow into joyful obedience and strengthening faith. This commentary explores the vital role of worship, communal learning, and the lasting impact of God's Word on the community.

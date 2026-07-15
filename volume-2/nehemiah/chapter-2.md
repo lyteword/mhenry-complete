@@ -1,5 +1,5 @@
 ---
-title: "Nehemiah 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the inspiring biblical story of Nehemiah as he prayed to the king for permission to rebuild the walls of Jerusalem. Learn how faith, earnest effort, and divine favor helped him overcome opposition and unite the people for this monumental work of restoration. This powerful account showcases the power of intercessory prayer and communal action in overcoming adversity.

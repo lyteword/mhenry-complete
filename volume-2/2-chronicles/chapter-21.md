@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Dive deep into 2 Chronicles 21 to understand the profound downfall of King Jehoram, a ruler whose corruption led to national revolt and severe divine judgment. This powerful biblical commentary reveals the devastating consequences of idolatry, betrayal, and disobedience, offering timeless lessons on leadership and covenant faithfulness.

@@ -1,5 +1,5 @@
 ---
-title: "Esther 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Esther 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Discover the profound lessons in Esther 10 as this commentary explores the mighty reign of King Ahasuerus and the exceptional virtue of Mordecai. Learn how humility, seeking the welfare of the people, and peace-making leadership define true greatness in biblical history. Dive deep into this commentary to understand the themes of royal power and selfless devotion.

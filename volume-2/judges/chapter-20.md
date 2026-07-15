@@ -1,5 +1,5 @@
 ---
-title: "Judges 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
   Dive deep into Judges Chapter 20, an intense biblical commentary on the conflict involving Israel, the wickedness of Gibeah, and the stubborn defiance of the tribe of Benjamin. Explore the dynamics of righteous zeal, military strategy, and the powerful lessons on divine judgment and accountability. This comprehensive analysis reveals profound truths about seeking God's justice amidst conflict and the ultimate triumph of righteousness.

@@ -1,5 +1,5 @@
 ---
-title: "Judges 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Judges 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore Judges Chapter 2 through this in-depth biblical commentary to understand the devastating consequences of Israel's spiritual failure. This analysis reveals how disobedience, idolatry, and broken covenants provoked God's judgment, yet also highlights His profound mercy in raising up judges for deliverance. Discover the crucial lessons on covenant faithfulness, spiritual adultery, and the cycle of sin and repentance in Israel's tumultuous history.

@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Explore 1 Chronicles Chapter 27 to uncover the intricate system of David's kingdom management. This chapter details the structure of the Israelite militia, the roles of tribal princes, and the officers who managed the king's vast resources. Learn how David balanced military readiness with prudent civil governance through a model of effective leadership.

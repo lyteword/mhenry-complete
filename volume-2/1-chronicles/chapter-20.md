@@ -1,5 +1,5 @@
 ---
-title: "1 Chronicles 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Chronicles 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
   Explore the powerful military campaigns of David, detailing the destruction of the Ammonites and the defeat of the mighty giants of Gath. Discover the biblical commentary on these crucial victories, revealing how God's power triumphs over human pride and enduring enemies. This chapter offers deep insight into warfare, faith, and the gradual path to ultimate victory.

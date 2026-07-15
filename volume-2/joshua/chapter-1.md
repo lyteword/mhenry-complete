@@ -1,5 +1,5 @@
 ---
-title: "Joshua 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joshua 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the powerful message of Joshua Chapter 1, a profound guide on leadership, faith, and divine mandate. Learn how Joshua was commissioned to conquer the Promised Land by embracing courage, unwavering obedience to God's law, and trusting in the promise of God's constant presence. This commentary explores the biblical principles of strength, diligence, and how to achieve success in your calling.

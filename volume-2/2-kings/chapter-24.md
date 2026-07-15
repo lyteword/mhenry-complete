@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
   Explore the dramatic downfall of Jerusalem in 2 Kings 24, detailing how Jehoiakim's rebellion led to the Babylonian captivity under Nebuchadnezzar. This commentary analyzes the severe divine judgment stemming from past sins and the ultimate removal of Judah from God's sight. Discover the profound biblical prophecies fulfilled as the nation faces utter ruin.

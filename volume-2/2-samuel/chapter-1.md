@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore the profound grief and righteous action of David in 2 Samuel Chapter 1 as this detailed commentary unveils the emotional depth behind the death of King Saul and his beloved son, Jonathan. Dive into David's powerful lamentation, examining themes of divine providence, honour, and public welfare in this essential biblical history. Discover a rich, in-depth analysis of this pivotal moment in Israel's history.

@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Explore the dramatic downfall of the Kingdom of Israel in 2 Kings 17, detailing the Assyrian conquest and the devastating consequences of widespread idolatry and disobedience. This commentary explores why the tribes were carried into captivity and how their rejection of God's covenant led to their ultimate ruin.

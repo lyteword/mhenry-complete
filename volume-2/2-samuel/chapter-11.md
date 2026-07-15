@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Explore the profound moral failure of King David in 2 Samuel 11, a detailed biblical commentary on the sin of adultery, murder plotting, and the devastating consequences of deceit. This in-depth analysis reveals the deep psychological turmoil of lust and the severe spiritual judgment that follows transgression. Discover powerful lessons on conscience, honor, and divine accountability from this essential study of biblical sin.

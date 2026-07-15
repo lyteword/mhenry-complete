@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Explore the dramatic events of 2 Samuel 21 in this detailed biblical commentary, uncovering the interplay of famine, divine judgment, and ancient conflicts. This analysis delves into the vengeance of the Gibeonites, the solemn death of Saul's sons, and David's victory over formidable giants. Discover profound theological insights into how God uses the weak to confound the mighty and the enduring consequences of sin in the history of Israel.

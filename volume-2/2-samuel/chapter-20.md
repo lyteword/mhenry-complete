@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
   Explore 2 Samuel Chapter 20 to delve into the tumultuous period of David's reign, focusing on Sheba's rebellion and the resulting political fallout. This commentary reveals deep insights into tribal conflict, the dangers of personal partiality, and the crucial role of wisdom in resolving deadly political crises. Discover the lessons on leadership, betrayal, and ultimate peace in this in-depth biblical study.

@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Explore 1 Kings 7 and delve into the incredible details of King Solomon's construction of the Temple of the Lord, from the cedar of the palace to the intricate brasswork of the altar. This comprehensive biblical commentary reveals deep spiritual symbolism, exploring how Solomon's magnificent works foreshadow the need for spiritual strength and divine cleansing. Discover the powerful lessons in faith and provision hidden within this account of unparalleled craftsmanship.

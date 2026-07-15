@@ -1,5 +1,5 @@
 ---
-title: "Ruth 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ruth 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the inspiring biblical story of Ruth, a poor widow who exemplifies profound humility and diligence while gleaning in the fields. This narrative showcases how divine providence and the genuine kindness of Boaz transform hardship into grace, offering a powerful lesson on faith, industry, and trusting in God's provision.

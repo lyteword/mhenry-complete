@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Uncover the intricate political maneuvering in 2 Samuel 14 as this commentary details Joab's ingenious stratagem to bring the exiled Absalom back to King David. Explore profound themes of divine mercy, the complexities of justice, and the deep emotional reconciliation between father and son. This in-depth analysis offers crucial biblical insight into sin, repentance, and the power of compassion in ancient history.

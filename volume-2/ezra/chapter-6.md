@@ -1,5 +1,5 @@
 ---
-title: "Ezra 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezra 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Explore Ezra Chapter 6 to discover the powerful story of the Temple's foundation, guided by the decrees of Cyrus and Darius. This commentary delves into divine providence, showing how God works slowly but perfectly to bring about His will, culminating in the joyful dedication of the new sacred space. Discover profound lessons in faith, perseverance, and how God turns the hearts of kings to strengthen His people.

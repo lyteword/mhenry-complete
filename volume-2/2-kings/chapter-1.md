@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore the dramatic downfall of King Ahaziah and the powerful intervention of the prophet Elijah in 2 Kings chapter 1. This deep biblical commentary explores the consequences of covenant breach, divine judgment, and the stark contrast between seeking false gods and obeying God's word. Discover profound insights into the power of prophecy and the inescapable nature of God's justice against wickedness.

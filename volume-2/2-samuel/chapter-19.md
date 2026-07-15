@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
   Dive deep into 2 Samuel 19 with this expert commentary, exploring the emotional depth of David's return after Absalom's death, the intricate political maneuvering between Israel and Judah, and the powerful lessons in forgiveness and righteous kingship. Discover how figures like Shimei and Mephibosheth illustrate the critical themes of mercy, reconciliation, and the dynamics of power in ancient Israel. Essential reading for deep biblical study and understanding the narrative of restoration.

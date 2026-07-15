@@ -1,5 +1,5 @@
 ---
-title: "Nehemiah 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nehemiah 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Discover the profound covenant recorded in Nehemiah chapter 10. This passage outlines the binding promises of the people to keep God's laws, including rules for the Sabbath, debt relief, and maintaining temple service. Learn how ancient Israel established a lasting commitment to worship and obedience through structured religious and social obligations. Explore the detailed articles that secured their relationship with God.

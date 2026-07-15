@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Explore 2 Samuel 22, a powerful psalm of praise by David, detailing his profound trust in God as his rock and deliverer from all enemies. This commentary explores themes of divine mercy, righteous living, and God's eternal faithfulness, offering deep spiritual insight into victory and hope.

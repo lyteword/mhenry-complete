@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Explore the deep themes of 2 Chronicles Chapter 11 with this comprehensive commentary. Discover how King Rehoboam navigated political conflict by obeying God's command, and how the return of the priests and Levites spiritually strengthened the kingdom of Judah. Dive into the biblical history of obedience, national defense, and the role of piety in sustaining a nation.

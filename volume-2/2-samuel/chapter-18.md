@@ -1,5 +1,5 @@
 ---
-title: "2 Samuel 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Samuel 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
   Dive into 2 Samuel 18 to explore the dramatic downfall of Absalom's rebellion and David's strategic military response. This commentary delves deep into the battle, Absalom's tragic end, and David's profound grief, revealing powerful lessons on leadership, divine providence, and the heavy cost of familial conflict in ancient Israel.

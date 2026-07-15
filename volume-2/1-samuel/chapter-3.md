@@ -1,5 +1,5 @@
 ---
-title: "1 Samuel 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Samuel 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Discover the profound biblical narrative of 1 Samuel 3, detailing how God first called the young Samuel and established him as a mighty prophet in Israel. This chapter explores themes of divine revelation, the necessity of obedience, and the serious consequences of sin, making it a must-read for anyone interested in biblical history and spiritual growth.

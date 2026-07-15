@@ -1,5 +1,5 @@
 ---
-title: "2 Chronicles 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Chronicles 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
   Explore the detailed account of King Uzziah's reign in 2 Chronicles 26, tracing his path from remarkable prosperity and military victories to a devastating downfall. This commentary reveals the critical lesson of the chapter: how pride and transgression against the priestly office lead to severe divine judgment, making it a profound study on humility and respecting sacred boundaries. Discover the biblical narrative of success, sin, and lasting consequence.

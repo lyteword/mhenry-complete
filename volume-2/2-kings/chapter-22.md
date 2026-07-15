@@ -1,5 +1,5 @@
 ---
-title: "2 Kings 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Kings 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Explore 2 Kings Chapter 22 to understand the epic biblical narrative of King Josiah's reign and the transformative religious reformation sparked by finding the Book of the Law. This passage powerfully illustrates the intersection of divine judgment, profound repentance, and the ultimate assurance of God's mercy through scripture. Discover the enduring power of the Bible in guiding faith and action.

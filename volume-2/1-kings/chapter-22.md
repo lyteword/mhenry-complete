@@ -1,5 +1,5 @@
 ---
-title: "1 Kings 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Kings 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Dive deep into 1 Kings 22 with this expert biblical commentary on the dramatic clash between true prophecy and false prophets. Discover the tragic fate of King Ahab and the powerful warning delivered by Micaiah about the dangers of deceit and political alliances. Understand the ultimate sovereignty of God in the history of Israel through this profound narrative.
