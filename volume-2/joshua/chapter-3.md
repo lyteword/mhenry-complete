@@ -2,7 +2,7 @@
 title: "Joshua 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  This chapter, and that which follows it, give us the history of Israel's passing through Jordan into Canaan, and a very memorable history it is. Long afterwards, they are told to r...
+  Discover the epic biblical account of Joshua 3, detailing Israel's miraculous passage through the Jordan River, guided by the Ark of the Covenant. Explore how God demonstrated His immense power, providing divine guidance, and assuring His people of victory as they entered the Promised Land. This powerful chapter is a profound testament to unwavering faith and God's faithfulness in conquering every challenge.
 weight: 3
 ---
 
