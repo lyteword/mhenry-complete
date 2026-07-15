@@ -2,7 +2,7 @@
 title: "2 Samuel 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
 description: >
-  The righteous God had lately told David, by Nathan the prophet, that, to chastise him for his son in the matter of Uriah, he would "raise up evil against him out of his own house,"...
+  Dive deep into 2 Samuel 13 with this expert commentary on the shocking story of Amnon's incest and Absalom's murder. Discover profound insights into the devastating consequences of sin, the nature of revenge, and the tragic ripple effects within a royal family.
 weight: 13
 ---
 
