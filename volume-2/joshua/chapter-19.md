@@ -2,7 +2,7 @@
 title: "Joshua 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
 description: >
-  In the description of the lots of Judah and Benjamin we have an account both of the borders that surrounded them and of the cities contained in them. In that of Ephraim and Manasse...
+  Dive deep into Joshua 19 with this expert Bible commentary to uncover the intricate details of the land division among the tribes of Israel, including Simeon, Zebulun, Issachar, and Naphtali. Understand the divine providence behind every tribe's inheritance and learn the profound lessons of leadership and humility from Joshua's specific assignment. This comprehensive analysis brings ancient biblical history and theology to life.
 weight: 19
 ---
 
