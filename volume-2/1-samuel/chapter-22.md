@@ -2,7 +2,7 @@
 title: "1 Samuel 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
 description: >
-  David, being driven from Achish, returns into the land of Israel to be hunted by Saul. I. David sets up his standard in the cave of Adullam, entertains his relations (1Sa 22:1), en...
+  Explore 1 Samuel 22 to witness David's journey from refuge in the cave of Adullam to the tragic persecution of the priests of Nob by Saul. This commentary delves into profound themes of unwavering faith, loyalty, and the devastating consequences of political jealousy and false accusation. Discover how David seeks divine protection amidst turmoil and finds solace in the steadfast companionship of those who stand by him.
 weight: 22
 ---
 
