@@ -2,7 +2,7 @@
 title: "Psalm 125 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "125"
 description: >
-  This short psalm may be summed up in those words of the prophet (Isa 3:10,11), "Say you to the righteous, It shall be well with him. Woe to the wicked, it shall be ill with him." T...
+  Discover the profound assurance of Psalm 125, a powerful meditation on the security and blessing reserved for the righteous. This psalm assures believers that those who trust in the Lord will be established like Mount Zion, protected by God's ever-present providence, while the wicked face inevitable judgment. Explore the themes of faith, divine protection, and the contrasting destinies of the righteous and the unfaithful.
 weight: 125
 ---
 
