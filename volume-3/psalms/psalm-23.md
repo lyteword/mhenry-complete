@@ -2,7 +2,7 @@
 title: "Psalm 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
 description: >
-  Many of David's psalms are full of complaints, but this is full of comforts, and the expressions of delight in God's great goodness and dependence upon him. It is a psalm which has...
+  Discover profound comfort and unwavering hope in Psalm 23. This passage reveals the assurance of being guided by the Divine Shepherd, providing total provision, fearlessness through every trial, and enduring mercy throughout life. Explore how to anchor your faith in God's constant care and eternal dwelling in His presence.
 weight: 23
 ---
 
