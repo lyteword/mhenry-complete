@@ -2,7 +2,7 @@
 title: "Job 42 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "42"
 description: >
-  Solomon says, "Better is the end of a thing than the beginning thereof," Ec 7:8. It was so here in the story of Job; at the evening-time it was light. Three things we have met with...
+  Discover the profound resolution in Job chapter 42, where true repentance leads to divine vindication. This commentary explores how Job's humility, submission to God's sovereignty, and ultimate restoration—including doubled prosperity and renewed family—offer powerful hope for endurance in life's greatest trials.
 weight: 42
 ---
 
