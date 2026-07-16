@@ -1,5 +1,5 @@
 ---
-title: "Psalm 72 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 72 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "72"
 description: >
   Discover the profound prophecy of Psalm 72, revealing the glorious, righteous, and peaceful Kingdom of Christ under the shadow of Solomon's reign. This detailed commentary explores how the Messiah's rule brings universal judgment, immense peace, and deep protection for the poor and oppressed. Read this SEO-optimized analysis to grasp the eternal glory and expansive dominion of God's kingdom.

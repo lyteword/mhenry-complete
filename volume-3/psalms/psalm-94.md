@@ -1,5 +1,5 @@
 ---
-title: "Psalm 94 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 94 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "94"
 description: >
   Discover Psalm 94, a powerful meditation on the struggles of faith, where the psalmist appeals to God against the oppressors and finds profound comfort for the persecuted. Explore themes of divine judgment, the folly of iniquity, and the unwavering hope that God is our ultimate refuge and defender. This scripture offers spiritual strength and assurance amidst persecution, reminding believers that true righteousness and ultimate victory await.

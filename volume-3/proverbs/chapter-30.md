@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 30 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 30 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "30"
 description: >
   Unlock the deep spiritual wisdom of Proverbs 30 with this expert commentary on Agur Ben Jakeh. This analysis explores profound themes of humility, the purity of God's word, the power of prayer, and practical lessons on balancing earthly desires against divine grace. Discover essential guidance for navigating life's challenges and avoiding the pitfalls of pride and insatiable desire.

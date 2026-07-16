@@ -1,5 +1,5 @@
 ---
-title: "Psalm 75 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 75 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "75"
 description: >
   Delve into Psalm 75 to explore the profound themes of God's absolute sovereignty, the proper use of power, and the true source of all earthly promotion. This in-depth biblical commentary examines David's thanksgiving, the duty of righteous judgment, and the inescapable divine judgment awaiting the wicked.

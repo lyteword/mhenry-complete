@@ -1,5 +1,5 @@
 ---
-title: "Psalm 147 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 147 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "147"
 description: >
   Discover the profound message of Psalm 147, a powerful call to praise the Lord for His immense power over nature, His mercy toward the brokenhearted, and His faithful blessings upon His people. Explore how God builds Jerusalem, controls the weather, and extends His grace and divine law to those who trust in Him. This psalm is a celebration of God's sovereignty and His unending goodness.

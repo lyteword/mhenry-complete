@@ -1,5 +1,5 @@
 ---
-title: "Ecclesiastes 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ecclesiastes 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Unlock the secrets of effective governance and personal success with this deep dive into Ecclesiastes Chapter 10. Discover the essential wisdom for rulers and individuals on preserving reputation, mastering self-control, and navigating complex relationships with prudence and integrity. Learn how to avoid the pitfalls of folly and build a lasting legacy through wise decisions in every aspect of life.

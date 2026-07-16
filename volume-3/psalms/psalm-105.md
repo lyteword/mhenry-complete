@@ -1,5 +1,5 @@
 ---
-title: "Psalm 105 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 105 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "105"
 description: >
   Discover the profound history of Psalm 105, celebrating God's covenant faithfulness through the lives of Abraham, Isaac, and Jacob. Learn about the miraculous deliverance from Egypt and God's constant providence that secured the inheritance of the Promised Land. This psalm is a powerful invitation to praise the Lord for His wondrous works and enduring promises.

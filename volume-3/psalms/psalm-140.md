@@ -1,5 +1,5 @@
 ---
-title: "Psalm 140 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 140 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "140"
 description: >
   Discover Psalm 140, a powerful psalm of prayer and divine confidence in the face of intense persecution. This commentary explores David's cry for protection against malicious enemies, revealing the profound comfort found in trusting God as the strength of salvation. Read this inspiring text for assurance, hope, and the promise that the righteous will receive justice and dwell in God's presence.

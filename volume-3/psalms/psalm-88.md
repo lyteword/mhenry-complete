@@ -1,5 +1,5 @@
 ---
-title: "Psalm 88 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 88 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "88"
 description: >
   Dive deep into Psalm 88, one of the most melancholy laments in the Psalter. This in-depth commentary explores intense personal sorrow, the crushing pressure of spirit, and the terrifying wrath of God. Discover profound biblical insight into turning affliction into godly sorrow and the power of persistent prayer during times of despair and betrayal.

@@ -1,5 +1,5 @@
 ---
-title: "Job 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
   Explore Job Chapter 25 through this comprehensive Bible commentary to uncover the profound contrast between God's infinite majesty and human imperfection. This insightful study delves into themes of divine dominion, human sinfulness, and the essential call to humility before the Almighty. Deepen your understanding of scripture and learn how to rightly approach God's greatness.

@@ -1,5 +1,5 @@
 ---
-title: "Psalm 118 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 118 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "118"
 description: >
   Discover the profound message of Psalm 118, celebrating the enduring goodness and mercy of God. This powerful text encourages believers to trust in the Lord amidst trials, culminating in the glorious prophecy of Jesus Christ's exaltation and ultimate salvation. Read the story of triumph, hope, and everlasting joy.

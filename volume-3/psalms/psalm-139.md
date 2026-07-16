@@ -1,5 +1,5 @@
 ---
-title: "Psalm 139 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 139 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "139"
 description: >
   Explore Psalm 139 to discover the breathtaking truth of God's omniscience. Learn how the Lord knows every thought, path, and action, offering profound encouragement for personal reflection and seeking holiness. This powerful meditation reveals the depth of divine love and guides you toward the everlasting way.

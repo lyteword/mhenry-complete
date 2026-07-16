@@ -1,5 +1,5 @@
 ---
-title: "Psalm 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Discover the profound connection between David's devotion and Christ's resurrection in Psalm 16. This powerful text assures believers of unwavering trust, God's provision as their inheritance, and the glorious hope of eternal life. Explore the deep theology of faith, consecration to God, and the ultimate glory awaiting the faithful.

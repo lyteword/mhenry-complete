@@ -1,5 +1,5 @@
 ---
-title: "Psalm 92 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 92 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "92"
 description: >
   Discover the profound message of Psalm 92, an inspiring call to praise God for His eternal works and faithfulness. This scripture offers powerful encouragement to the righteous, promising triumph, flourishing in old age, and unwavering hope in the face of any adversity. Explore how to celebrate God's greatness and stand firm in righteousness.

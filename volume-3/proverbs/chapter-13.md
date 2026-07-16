@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Unlock the timeless wisdom of Proverbs 13 with this comprehensive moral guide. Discover profound maxims on the power of diligence, the necessity of controlling your speech, and the difference between a righteous life and a wicked one. Learn how integrity, fear of God, and wise counsel pave the path to true prosperity and lasting joy.

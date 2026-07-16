@@ -1,5 +1,5 @@
 ---
-title: "Psalm 113 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 113 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "113"
 description: >
   Discover the profound call to worship in Psalm 113, an inspiring reflection on God's immense glory and compassionate condescension. This powerful biblical commentary explores why we are urged to praise the Lord from sunrise to sunset, highlighting His supreme greatness and His mercy in lifting up the poor and blessing the barren. Read this deep dive to strengthen your faith and experience the true, awe-inspiring nature of God's grace.

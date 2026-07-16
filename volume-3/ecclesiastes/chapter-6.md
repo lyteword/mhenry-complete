@@ -1,5 +1,5 @@
 ---
-title: "Ecclesiastes 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ecclesiastes 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Uncover the profound vanity of worldly wealth and insatiable desire in this chapter. Explore why chasing material riches leads to a restless soul and emptiness, and discover the true path to lasting fulfillment beyond the temporary pleasures of the world. Learn the wisdom of contentment and embrace the perspective that true happiness lies in acceptance, not acquisition.

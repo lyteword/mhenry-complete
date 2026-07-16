@@ -1,5 +1,5 @@
 ---
-title: "Psalm 48 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 48 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "48"
 description: >
   Discover the triumphant power of Psalm 48, a powerful hymn celebrating Jerusalem as the 'city of God' and Mount Zion as a refuge. Explore how this psalm reveals God's unwavering protection, divine guidance, and the eternal hope for the Gospel Church, encouraging believers to stand firm against all challenges.

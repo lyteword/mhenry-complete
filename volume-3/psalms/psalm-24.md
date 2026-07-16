@@ -1,5 +1,5 @@
 ---
-title: "Psalm 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
   Explore Psalm 24, a profound meditation on God's absolute sovereignty over creation and the path to His Kingdom. Discover the biblical call to purity—clean hands and a pure heart—and learn how to seek the face of God to receive His blessing. This commentary reveals how Christ, the King of Glory, offers the ultimate entrance into His eternal reign.

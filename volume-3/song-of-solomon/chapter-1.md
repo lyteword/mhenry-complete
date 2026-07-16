@@ -1,5 +1,5 @@
 ---
-title: "Song Of Solomon 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Song Of Solomon 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore a deep biblical commentary on Song of Solomon Chapter 1, revealing the profound, intimate love between Christ and His Church. Discover how this chapter illuminates the power of Christ's grace, the pursuit of spiritual devotion, and the ultimate joy found in true communion with the Beloved. This guide offers powerful insights into Christian love, reconciliation, and the eternal beauty of the believer.

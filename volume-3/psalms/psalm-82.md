@@ -1,5 +1,5 @@
 ---
-title: "Psalm 82 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 82 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "82"
 description: >
   Discover the profound message of Psalm 82, an essential guide on the dignity and duty of earthly magistrates. This psalm calls upon rulers to uphold justice, defend the poor and afflicted, and administer impartial judgment, reminding us that all authority is ultimately subject to God's sovereign rule. Learn how to recognize corrupt leadership and pray for divine intervention to restore righteousness to the earth.

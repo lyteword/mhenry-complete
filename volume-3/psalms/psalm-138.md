@@ -1,5 +1,5 @@
 ---
-title: "Psalm 138 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 138 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "138"
 description: >
   Discover the profound themes of Psalm 138, a powerful psalm of grateful praise, devotion, and unwavering hope. This commentary explores how David finds strength in God's mercy during affliction and rests in the assurance that God will perfect every good work He has started in our lives. Find deep encouragement, spiritual strength, and a renewed sense of faith in the enduring goodness and faithfulness of the Lord.

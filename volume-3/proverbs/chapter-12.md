@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Unlock the profound wisdom of Proverbs Chapter 12 with this in-depth commentary on the advantages of a righteous life. Discover how seeking instruction, valuing truth, and cultivating virtue secures favor with God, ensures enduring stability, and leads to a life filled with lasting joy and true prosperity. Learn the biblical secrets to finding wisdom, avoiding deceit, and walking the path of righteousness.

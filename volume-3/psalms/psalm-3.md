@@ -1,5 +1,5 @@
 ---
-title: "Psalm 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Discover the profound comfort of Psalm 3, where David, fleeing from his enemies, shifts from distress to unwavering faith. This powerful passage reveals the security found in divine protection, assuring believers that God is our shield, our glory, and the ultimate source of salvation. Learn how to find peace and courage by trusting in God's unfailing grace, even amidst life's greatest troubles.

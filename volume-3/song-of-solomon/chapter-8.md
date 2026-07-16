@@ -1,5 +1,5 @@
 ---
-title: "Song Of Solomon 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Song Of Solomon 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Explore the rich theological meaning of Song of Solomon 8, focusing on the powerful, intimate communion between Christ and the Church. This commentary reveals how believers can cultivate a love strong as death, find comfort in Christ's guidance, and eagerly await the promise of His glorious return.

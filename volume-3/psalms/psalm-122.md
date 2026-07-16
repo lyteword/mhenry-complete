@@ -1,5 +1,5 @@
 ---
-title: "Psalm 122 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 122 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "122"
 description: >
   Discover the profound meaning of Psalm 122, which celebrates the joy of gathering in Jerusalem for worship and the unity of the people. This commentary explores how the psalm calls believers to foster community, seek peace, and pray for the prosperity of both the city and the wider Christian church. Dive deep into the themes of public worship, fellowship, and the love for the "Jerusalem that is from above."

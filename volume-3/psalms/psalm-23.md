@@ -1,5 +1,5 @@
 ---
-title: "Psalm 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
   Discover profound comfort and unwavering hope in Psalm 23. This passage reveals the assurance of being guided by the Divine Shepherd, providing total provision, fearlessness through every trial, and enduring mercy throughout life. Explore how to anchor your faith in God's constant care and eternal dwelling in His presence.

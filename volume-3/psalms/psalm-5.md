@@ -1,5 +1,5 @@
 ---
-title: "Psalm 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Discover Psalm 5, a powerful prayer for guidance and protection when facing adversity. This deeply spiritual text guides you on how to direct fervent prayer, seek God's righteousness against enemies, and find unwavering joy in His powerful protection. Learn how to cultivate a deep trust in God's holiness and secure His blessing for a life filled with faith.

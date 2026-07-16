@@ -1,5 +1,5 @@
 ---
-title: "Psalm 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Discover the profound message of Psalm 27, an anthem of steadfast faith and unwavering courage. This scripture inspires believers to find strength in God's light, trust in His protection during times of trouble, and eagerly anticipate the glory of His presence. Learn how to cultivate deep confidence and hope by dwelling in God's house and waiting upon the Lord.

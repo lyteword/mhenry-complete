@@ -1,5 +1,5 @@
 ---
-title: "Ecclesiastes 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ecclesiastes 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Discover Solomon's profound wisdom in Ecclesiastes on the mutability of life and the vanity of worldly pursuits. Learn how to find true purpose by accepting change, trusting in divine providence, and living cheerfully in the present moment. This chapter offers essential spiritual guidance on managing time and understanding life's ultimate meaning amidst life's constant shifts.

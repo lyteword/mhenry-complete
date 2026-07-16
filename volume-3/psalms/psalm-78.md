@@ -1,5 +1,5 @@
 ---
-title: "Psalm 78 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 78 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "78"
 description: >
   Explore Psalm 78, a profound historical narrative detailing the immense mercies God bestowed upon Israel and the corresponding sins of unbelief and ingratitude. This powerful commentary reveals the critical lessons of history, serving as a vital warning against spiritual complacency and reminding readers of God's enduring compassion and faithfulness.

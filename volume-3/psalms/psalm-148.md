@@ -1,5 +1,5 @@
 ---
-title: "Psalm 148 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 148 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "148"
 description: >
   Discover the profound call of Psalm 148, a solemn invitation to praise the Creator from every realm—from the heavens and angels to the mountains and the beasts. This powerful psalm celebrates God's eternal power, the glory of creation, and the unique honor bestowed upon His people. Dive into this inspiring text to experience a deep sense of worship and acknowledge the excellence of God's name above all things.

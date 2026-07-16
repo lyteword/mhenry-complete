@@ -1,5 +1,5 @@
 ---
-title: "Psalm 141 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 141 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "141"
 description: >
   Discover the profound wisdom of Psalm 141, David's heartfelt prayer for God's mercy, guidance, and deliverance. Explore timeless insights on fervent prayer, guarding your heart against sin, and finding unwavering trust in God when facing distress and persecution. Use this commentary to deepen your faith and learn how to seek divine help in every trial.

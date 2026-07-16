@@ -1,5 +1,5 @@
 ---
-title: "Psalm 149 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 149 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "149"
 description: >
   Discover the triumphant message of Psalm 149, a powerful hymn of praise celebrating the Creator and Redeemer. This deeply moving commentary explores themes of abundant joy, spiritual victory over enemies, and the call for the saints to sing new songs in glory. Dive into the rich theological depth of this psalm and find renewed encouragement in God's unwavering power and ultimate triumph.

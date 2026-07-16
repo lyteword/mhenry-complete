@@ -1,5 +1,5 @@
 ---
-title: "Psalm 103 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 103 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "103"
 description: >
   Discover the profound message of Psalm 103, an anthem of gratitude celebrating God's boundless mercy, forgiveness, and healing power. This scripture inspires cheerful praise, reminding us that God redeems our lives and renews our hope through His tender mercies. Dive into this timeless text for deep spiritual encouragement and a powerful reminder of His everlasting goodness and sovereign providence.

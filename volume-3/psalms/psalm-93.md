@@ -1,5 +1,5 @@
 ---
-title: "Psalm 93 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 93 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "93"
 description: >
   Discover the profound majesty and eternal reign of God in Psalm 93. Learn how the Lord's supreme strength triumphs over all earthly troubles, providing ultimate comfort and assurance to His loving subjects. This powerful psalm celebrates God's divine sovereignty, His overwhelming power, and the holiness of His eternal kingdom.

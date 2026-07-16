@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Explore Proverbs Chapter 7 to learn Solomon's powerful warning against the destructive lusts of the flesh. Discover the perilous snare of the adulteress and how worldly temptation leads to ruin. Learn how to keep God's word as a shield against sin and secure a life of true wisdom.

@@ -1,5 +1,5 @@
 ---
-title: "Job 32 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 32 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "32"
 description: >
   Explore Job Chapter 32 through this deep biblical commentary, focusing on the profound intervention of Elihu. Discover timeless lessons on true wisdom, the necessity of impartiality in conflict, and the ethical courage required to speak truth when facing judgment. This commentary illuminates the complex nature of human understanding and God's sovereignty in navigating intense disputes.

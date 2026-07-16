@@ -1,5 +1,5 @@
 ---
-title: "Psalm 76 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 76 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "76"
 description: >
   Discover Psalm 76, a powerful psalm of thanksgiving celebrating the triumphant victory of the church over all enemies. Explore the profound glory and overwhelming power of God, learning why true faith inspires awe and why we should always fear the Lord. This essential biblical commentary reveals the themes of divine triumph, ultimate sovereignty, and the assurance of God's protection.

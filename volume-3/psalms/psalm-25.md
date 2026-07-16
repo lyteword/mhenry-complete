@@ -1,5 +1,5 @@
 ---
-title: "Psalm 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
   Discover the profound truths of Psalm 25, a guide to earnest prayer focused on seeking God's mercy, divine direction, and forgiveness. Learn how to build unshakable faith, trust in God's promises, and find deliverance from troubles and enemies through sincere repentance. This psalm offers deep spiritual comfort and practical guidance for a life lived in devotion to the Lord.

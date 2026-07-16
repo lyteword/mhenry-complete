@@ -1,5 +1,5 @@
 ---
-title: "Psalm 127 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 127 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "127"
 description: >
   Discover the profound wisdom of Psalm 127, a powerful family psalm urging believers to shift their focus from worldly ambition to dependence on God's providence. This passage emphasizes that true success in building a home, securing wealth, and raising a family is only possible when we look up to God for direction and blessing. Learn how to cultivate true peace and prosperity by trusting in divine care rather than relying solely on human effort.

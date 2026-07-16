@@ -1,5 +1,5 @@
 ---
-title: "Psalm 29 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 29 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "29"
 description: >
   Explore Psalm 29 to discover the overwhelming power and majesty of God revealed through thunder and lightning. This commentary uncovers God's absolute sovereignty over the world and how He grants strength and peace to His people. Dive into these profound biblical truths about worship, divine dominion, and His everlasting glory.

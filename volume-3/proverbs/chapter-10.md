@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Discover the profound wisdom of Proverbs 10, where Solomon teaches essential lessons on the power of the tongue, the necessity of diligence, and the difference between righteous living and wicked pursuits. Learn how cultivating integrity and speaking wisely can lead to lasting blessings, while folly and sloth lead to ruin. Unlock the secrets to spiritual wealth and an everlasting foundation.

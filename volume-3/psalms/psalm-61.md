@@ -1,5 +1,5 @@
 ---
-title: "Psalm 61 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 61 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "61"
 description: >
   Discover the profound message of Psalm 61, a timeless guide on how to cry out to God in times of overwhelming distress. Explore themes of seeking refuge, unwavering trust in divine protection, and finding ultimate comfort in God's presence. This powerful psalm inspires believers to maintain steadfast faith and offer eternal praise, no matter the trial.

@@ -1,5 +1,5 @@
 ---
-title: "Psalm 69 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 69 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "69"
 description: >
   Explore Psalm 69 to understand David's intense suffering and his desperate plea for God's deliverance from overwhelming troubles. Discover how this psalm beautifully illustrates the suffering of Christ and offers profound hope and assurance for believers facing persecution. Find deep comfort in God's mercy and the promise of ultimate praise for the faithful.

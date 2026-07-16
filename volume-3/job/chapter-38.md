@@ -1,5 +1,5 @@
 ---
-title: "Job 38 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 38 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "38"
 description: >
   Dive deep into Job Chapter 38 and explore the staggering scope of God's creative power—from the foundations of the earth and the depths of the sea to the movements of the stars. This powerful biblical commentary reveals the limits of human understanding and calls for profound humility before the ultimate divine sovereignty.

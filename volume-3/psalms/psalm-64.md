@@ -1,5 +1,5 @@
 ---
-title: "Psalm 64 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 64 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "64"
 description: >
   Explore Psalm 64 to understand the intense battles faced by the righteous against malicious enemies and slanderers. This powerful text offers profound assurance of divine protection, revealing how God executes judgment against the wicked while bringing joy and glory to those who trust in Him. Discover hope, faith, and the ultimate victory of the righteous.

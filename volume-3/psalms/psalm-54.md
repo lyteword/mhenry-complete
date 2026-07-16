@@ -1,5 +1,5 @@
 ---
-title: "Psalm 54 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 54 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "54"
 description: >
   Seeking comfort in times of distress? Psalm 54 reveals David's powerful prayer against oppressors and the assurance of divine protection. Learn how to find strength, trust in God's faithfulness, and experience ultimate deliverance when you set God before your enemies.

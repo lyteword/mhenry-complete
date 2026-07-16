@@ -1,5 +1,5 @@
 ---
-title: "Psalm 109 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 109 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "109"
 description: >
   Discover Psalm 109, a powerful reflection on suffering, persecution, and the unwavering appeal to God's mercy. This psalm offers profound comfort and a call to prayer for those facing hostility, asserting that even in deep distress, trust in God's deliverance leads to ultimate triumph. Explore the themes of divine justice, prophetic warnings against evil, and the assurance of salvation for those who hold fast to faith.

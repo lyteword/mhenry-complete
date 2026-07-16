@@ -1,5 +1,5 @@
 ---
-title: "Job 37 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 37 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "37"
 description: >
   Dive deep into the Job 37 commentary to understand the terrifying majesty of God revealed in the storms and weather. This study explores divine providence, challenging you to contemplate God's omniscient power and recognize our place as humble servants.

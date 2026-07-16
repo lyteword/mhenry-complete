@@ -1,5 +1,5 @@
 ---
-title: "Job 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Explore the profound theological depth of Job Chapter 9, examining Job's honest reflection on God's justice, divine sovereignty, and the human inability to contend with an infinite power. This commentary delves into the scriptural proofs of God's wisdom through the natural world, while also exploring the intense personal suffering and the paradox of righteous affliction. Discover timeless insights into faith, perseverance, and understanding God's mighty hand in life's trials.

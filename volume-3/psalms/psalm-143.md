@@ -1,5 +1,5 @@
 ---
-title: "Psalm 143 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 143 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "143"
 description: >
   Explore Psalm 143, a profound prayer of David expressing deep distress and persecution. Discover how this powerful psalm offers guidance, solace, and an earnest plea for God's mercy, teaching us to trust in His faithfulness amidst life's greatest troubles. Find hope and spiritual direction in this timeless message of deliverance and unwavering faith.

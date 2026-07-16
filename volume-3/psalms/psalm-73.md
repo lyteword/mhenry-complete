@@ -1,5 +1,5 @@
 ---
-title: "Psalm 73 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 73 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "73"
 description: >
   Explore Psalm 73, a profound reflection on the internal struggle against the temptation to envy the prosperity of the wicked. Discover how the psalmist found victory by anchoring his faith in God's unwavering goodness and trusting in divine guidance. Learn how to maintain a clean heart and find lasting spiritual strength amidst worldly trials.

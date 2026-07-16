@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Unlock the secrets of Proverbs 2 with this in-depth commentary on how to acquire divine wisdom and apply it for a righteous life. Discover practical steps, from diligently seeking God's word to understanding the profound protection wisdom offers against evil men and corrupting influences. Learn how to walk in the path of the righteous, find true understanding, and secure a future of grace and eternal peace.

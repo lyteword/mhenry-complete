@@ -1,5 +1,5 @@
 ---
-title: "Psalm 98 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 98 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "98"
 description: >
   Explore Psalm 98, a powerful prophecy detailing the kingdom of the Messiah's triumph and the establishment of salvation in the world. Discover the wonders wrought by Christ's victory and the universal salvation revealed to the Gentiles. Sing a new song of praise and experience the profound joy of God's triumphant reign.

@@ -1,5 +1,5 @@
 ---
-title: "Psalm 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the profound spiritual guidance of Psalm 4, a powerful reflection on navigating life's challenges, overcoming vanity, and cultivating true joy. This psalm offers a roadmap to stand in awe of God, commit to righteousness, and find unshakable peace by seeking divine favor rather than worldly gain. Learn how to commune with your heart and trust in God's protection for a life filled with lasting spiritual security.

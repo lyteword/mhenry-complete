@@ -1,5 +1,5 @@
 ---
-title: "Job 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
   Explore Job 26 in this in-depth commentary to uncover Job's powerful response to his friend and the boundless nature of God's majesty. Discover profound theological insights into divine omnipotence, witnessing God's power in creation, the control of the seas, and the glory of the heavens. Understand the immense depth of divine wisdom that remains beyond human comprehension.

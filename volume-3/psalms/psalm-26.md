@@ -1,5 +1,5 @@
 ---
-title: "Psalm 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
   Discover the profound spiritual lessons of Psalm 26 as David appeals to God for his integrity, devotion to divine ordinances, and his rejection of sin. This powerful text offers guidance on cultivating sincerity, avoiding wicked company, and finding unwavering comfort in God's mercy and grace. Explore how to walk a holy life and seek God's favor in your daily walk.

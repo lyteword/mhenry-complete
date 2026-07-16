@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Discover the profound conflict in Proverbs 9: The battle between Christ's Wisdom and the seductive lure of Sin for the human soul. This commentary provides essential guidance on how to choose the path of true understanding and spiritual growth, contrasting the blessings of God's fear with the devastating ruin of folly. Learn the vital instructions to avoid temptation and secure a life multiplied by God.

@@ -1,5 +1,5 @@
 ---
-title: "Job 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Dive deep into Job Chapter 6 with this expert commentary, exploring the profound themes of intense suffering, divine struggle, and the complexities of human friendship during crisis. Discover profound biblical wisdom on finding hope, maintaining integrity, and trusting in God amidst life's heaviest afflictions.

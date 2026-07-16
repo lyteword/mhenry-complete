@@ -1,5 +1,5 @@
 ---
-title: "Psalm 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Discover Psalm 13, the powerful psalm of the deserted soul's case and cure. Explore how David navigates deep sorrow and anxiety through earnest prayer to God, seeking light and deliverance. Find profound comfort and hope as you learn how unwavering trust in God's mercy transforms despair into triumphant, joyful praise.

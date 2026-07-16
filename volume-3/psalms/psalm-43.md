@@ -1,5 +1,5 @@
 ---
-title: "Psalm 43 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 43 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "43"
 description: >
   Explore Psalm 43, a profound prayer where David appeals to God for justice against enemies and for restoration of his joy. Discover how to find unwavering hope in God's strength and guidance to lead you back to His holy presence. This scripture offers powerful spiritual comfort and a roadmap for overcoming distress through faith and worship.

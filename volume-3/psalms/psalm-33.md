@@ -1,5 +1,5 @@
 ---
-title: "Psalm 33 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 33 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "33"
 description: >
   Discover the profound message of Psalm 33, a powerful call to praise God for His absolute sovereignty, perfect justice, and creative power. This psalm reveals how God governs the world, sustains creation, and demonstrates boundless mercy towards His chosen people. Learn to find strength, trust in His promises, and rejoice in His unfailing providence.

@@ -1,5 +1,5 @@
 ---
-title: "Job 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Explore Job Chapter 7 to delve into the profound despair of Job as he confronts his calamities and questions the meaning of life. This commentary analyzes Job's intense desire for death, the swift passage of time, and his urgent plea for God's mercy and forgiveness. Discover deep theological insights into human frailty and the ultimate hope found in divine pardon amidst suffering.

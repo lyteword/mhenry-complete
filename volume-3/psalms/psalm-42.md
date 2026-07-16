@@ -1,5 +1,5 @@
 ---
-title: "Psalm 42 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 42 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "42"
 description: >
   Navigate deep spiritual distress with Psalm 42. This powerful psalm explores the internal conflict between human lament and unwavering faith, urging believers to shift from complaints about loss to profound hope in God's lovingkindness. Discover how to find solace, renew your hope, and maintain a fervent desire for communion with God, even in times of exile or sorrow.

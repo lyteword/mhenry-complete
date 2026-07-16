@@ -1,5 +1,5 @@
 ---
-title: "Psalm 40 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 40 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "40"
 description: >
   Discover the profound hope and comfort of Psalm 40, a powerful testament to God's deliverance from deep distress. This psalm encourages believers to wait patiently, trusting in the power of Christ's redemption as the ultimate source of salvation and peace. Find encouragement in prayer and assurance that God's lovingkindness will always preserve and guide you through every trial.

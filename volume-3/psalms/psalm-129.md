@@ -1,5 +1,5 @@
 ---
-title: "Psalm 129 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 129 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "129"
 description: >
   Explore Psalm 129, a powerful biblical reflection on the struggles and ultimate deliverance of God's people from relentless enemies. This psalm assures believers that despite past afflictions, God is righteous, cutting the cords of the wicked, ensuring that the efforts of their adversaries will ultimately wither like grass upon the house-tops. Discover profound themes of faith, perseverance, and the triumphant victory of the church over all opposition.

@@ -1,5 +1,5 @@
 ---
-title: "Psalm 81 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 81 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "81"
 description: >
   Discover the profound message of Psalm 81, an ancient call to praise God and heed His divine law. This powerful psalm encourages believers to remember God's mighty acts of deliverance, commit to obedience, and find strength in His grace during solemn feast days. Learn how to align your life with God's ways to receive His abundant blessings and experience true spiritual victory.

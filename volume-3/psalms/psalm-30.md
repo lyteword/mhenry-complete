@@ -1,5 +1,5 @@
 ---
-title: "Psalm 30 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 30 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "30"
 description: >
   Explore Psalm 30, a powerful psalm of thanksgiving celebrating God's incredible deliverances, healing, and saving grace. Discover how this scripture encourages believers to find comfort in moments of distress, praise God's holiness, and trust in His enduring favor. Learn how to turn mourning into dancing and embrace the joy that comes from God's unwavering mercy.

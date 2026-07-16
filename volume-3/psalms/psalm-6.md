@@ -1,5 +1,5 @@
 ---
-title: "Psalm 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Discover Psalm 6, a profound lamentation that explores the depths of human affliction, from physical sickness to the torment of sin. This powerful text offers a blueprint for approaching God in deep sorrow, teaching us how to plead for mercy, find confidence in divine hearing, and turn our distress into triumphant praise. Explore the journey from weeping complaint to assured deliverance and powerful repentance.

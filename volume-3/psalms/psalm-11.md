@@ -1,5 +1,5 @@
 ---
-title: "Psalm 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Discover the profound message of Psalm 11 as it details David's struggle against the temptation to distrust God during times of danger. This commentary explores how to anchor your faith in God's sovereignty and providence, emphasizing that He tests the righteous and provides ultimate protection. Read this inspiring summary to find encouragement to maintain unwavering confidence in God's love and favor amidst life's challenges.

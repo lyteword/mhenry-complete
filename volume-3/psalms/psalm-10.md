@@ -1,5 +1,5 @@
 ---
-title: "Psalm 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Discover the profound themes of Psalm 10, detailing the nature of wicked pride and the suffering of the oppressed. Find hope and strength in this moving prayer as you trust in God's sovereign justice to appear against evil and bring relief to those who cry out in distress. This psalm is a powerful meditation on faith, persecution, and the ultimate triumph of God's righteous hand.

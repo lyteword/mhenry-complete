@@ -1,5 +1,5 @@
 ---
-title: "Psalm 83 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 83 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "83"
 description: >
   Uncover the powerful spiritual warfare detailed in Psalm 83. This profound psalm chronicles the dangerous confederacies of nations plotting against God's people, offering an urgent prayer for divine intervention and ultimate victory. Explore the prophecy of the enemies' ruin and discover the assurance of God's supreme sovereignty, making this essential reading for understanding faith, perseverance, and the triumph of righteousness over all opposition.

@@ -1,5 +1,5 @@
 ---
-title: "Job 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Explore Job Chapter 12 to understand Job's powerful response, revealing the supreme wisdom and irresistible sovereignty of God over all human affairs and creation. This in-depth commentary delves into divine providence, illustrating how God governs the prosperity of the wicked and orchestrates the revolutions of nations, emphasizing that ultimate control rests with Him. Discover the profound truth behind human folly and the enduring power of God's dominion.

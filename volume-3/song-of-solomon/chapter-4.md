@@ -1,5 +1,5 @@
 ---
-title: "Song Of Solomon 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Song Of Solomon 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the profound beauty of the church as described in Song of Solomon 4. This commentary explores Christ's passionate love for His believers, showing how grace and the Holy Spirit cultivate a beautiful, fruitful spiritual garden. Learn how to deepen your faith and experience God's abundant love.

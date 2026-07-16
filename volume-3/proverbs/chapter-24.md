@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
   Unlock the power of divine wisdom with this deep commentary on Proverbs Chapter 24. Discover how knowledge, prudence, and wise counsel build a strong life, lead to true prosperity, and provide safety in all affairs. Learn crucial lessons on avoiding the destructive traps of envy, malice, and sloth, ensuring you cultivate a soul filled with precious riches and guided by righteous judgment. Embrace the path of wisdom for lasting strength and abundant reward.

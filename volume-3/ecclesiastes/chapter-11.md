@@ -1,5 +1,5 @@
 ---
-title: "Ecclesiastes 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ecclesiastes 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Explore the profound wisdom of Ecclesiastes Chapter 11, which offers a powerful dual lesson: embrace radical generosity by casting your bread upon the waters and trusting in divine providence, while simultaneously preparing for mortality by recognizing the vanity of worldly life. This chapter provides essential biblical guidance on how to live justly, be merciful to the poor, and cultivate early piety to ensure a meaningful life and a favorable judgment.

@@ -1,5 +1,5 @@
 ---
-title: "Psalm 132 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 132 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "132"
 description: >
   Explore the profound themes of Psalm 132, focusing on God's faithfulness to David's covenant and the establishment of the Church. Learn how this ancient text reveals the promise of Mount Zion and the eternal blessings awaiting believers in Christ.

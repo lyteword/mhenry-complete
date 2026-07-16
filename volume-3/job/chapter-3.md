@@ -1,5 +1,5 @@
 ---
-title: "Job 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Dive deep into the profound emotional turmoil of Job in Chapter 3. This detailed commentary explores Job's intense impatience—his curses on his birth and his desperate longing for death—offering deep theological insights into human suffering and the role of divine providence. Discover how to find peace, resilience, and faith amidst life's greatest trials by understanding the balance between endurance and hope.

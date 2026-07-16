@@ -1,5 +1,5 @@
 ---
-title: "Ecclesiastes 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ecclesiastes 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Uncover the profound truths about life's purpose by examining the vanity of fleeting worldly pleasures and transient pursuits. This chapter guides you in distinguishing between wisdom and folly, revealing that lasting contentment is found not in material gain, but in meaningful labor and good works guided by divine wisdom. Learn how to use your resources cheerfully and focus on what truly matters for enduring spiritual satisfaction.

@@ -1,5 +1,5 @@
 ---
-title: "Psalm 39 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 39 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "39"
 description: >
   Explore Psalm 39, a profound meditation on the struggle between human passion and divine patience. Discover how David confronts the vanity of life and mortality, finding ultimate hope and strength by placing his trust entirely in God amidst affliction. This psalm is a powerful guide for seeking peace and enduring life's trials.

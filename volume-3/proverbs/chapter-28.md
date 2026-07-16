@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
   Discover the profound moral wisdom of Proverbs 28, contrasting the fleeting fear of the wicked with the enduring boldness of the righteous. This chapter offers timeless guidance on achieving life security through integrity, understanding the dangers of greed and oppression, and realizing that true wisdom secures lasting prosperity. Learn how to walk uprightly and secure a blessed future by prioritizing faith over false security.

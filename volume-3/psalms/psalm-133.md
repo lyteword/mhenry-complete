@@ -1,5 +1,5 @@
 ---
-title: "Psalm 133 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 133 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "133"
 description: >
   Discover the profound wisdom of Psalm 133, a timeless passage celebrating the beauty and blessing of unity and brotherly love. This psalm reveals how dwelling together in peace fosters divine blessings, providing a fragrant, life-giving fellowship that cools the passions and brings eternal joy. Explore the doctrine of holy love and discover how true community creates lasting peace and eternal life.

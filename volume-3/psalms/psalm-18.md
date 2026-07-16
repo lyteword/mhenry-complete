@@ -1,5 +1,5 @@
 ---
-title: "Psalm 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
   Discover Psalm 18, David's powerful thanksgiving for God's incredible deliverances. Explore how God acts as our strength, rock, and fortress during times of distress. This psalm offers deep comfort and a testament to God's unwavering power and ultimate victory through Christ.

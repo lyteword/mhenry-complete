@@ -1,5 +1,5 @@
 ---
-title: "Psalm 50 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 50 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "50"
 description: >
   Explore Psalm 50, a profound psalm of reproof urging believers to move beyond ritualistic sacrifices and embrace genuine spiritual worship. This text powerfully contrasts superficial piety with the necessity of heartfelt repentance, fervent prayer, and a true covenant relationship with God. Discover the warning against hypocrisy and learn how to order your life for ultimate salvation and God's unwavering judgment.

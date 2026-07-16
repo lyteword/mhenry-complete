@@ -1,5 +1,5 @@
 ---
-title: "Job 29 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 29 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "29"
 description: >
   Discover the profound lessons of Job Chapter 29 in this in-depth commentary, exploring the stark contrast between earthly prosperity and enduring spiritual comfort. This study reveals how Job found true value not in wealth, but in unwavering integrity, compassionate service to the poor, and deep communion with God's divine favour. Learn powerful truths about faith, justice, and finding hope amidst adversity that can transform your perspective on life's greatest challenges.

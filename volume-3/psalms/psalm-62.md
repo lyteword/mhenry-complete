@@ -1,5 +1,5 @@
 ---
-title: "Psalm 62 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 62 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "62"
 description: >
   Discover the profound message of Psalm 62: Cultivate unwavering confidence in God by learning how to wait upon Him as your ultimate Rock and Salvation. This scripture offers powerful encouragement to trust in divine providence over worldly fears and the deceit of men, leading to deep spiritual strength and lasting peace. Explore the biblical wisdom on finding refuge and glory in God's infinite power and mercy.

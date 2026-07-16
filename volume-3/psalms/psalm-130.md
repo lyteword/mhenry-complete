@@ -1,5 +1,5 @@
 ---
-title: "Psalm 130 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 130 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "130"
 description: >
   Discover the profound message of Psalm 130: a powerful guide on how to cry out from the depths of distress, confess your iniquities, and find true forgiveness through God's boundless mercy. This penitential psalm encourages believers to trust in God's patience, wait expectantly for His redemption, and anchor their hope in the promise of divine grace. Learn how to turn despair into dependence and embrace the overwhelming comfort of God's propitiation.

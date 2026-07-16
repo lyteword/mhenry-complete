@@ -1,5 +1,5 @@
 ---
-title: "Psalm 144 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 144 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "144"
 description: >
   Explore Psalm 144 to discover profound reflections on God's strength, His protection against enemies, and the deep desire for national and personal prosperity. This powerful psalm encourages believers to acknowledge divine goodness, pray for victory, and seek lasting peace, revealing how true faith leads to abundant blessings.

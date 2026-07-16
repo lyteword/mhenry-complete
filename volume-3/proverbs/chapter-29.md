@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 29 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 29 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "29"
 description: >
   Unlock profound life lessons from Proverbs Chapter 29. This commentary explores critical maxims on the consequences of obstinacy, the vital role of wise leadership, and the difference between righteous and wicked paths. Discover timeless guidance on seeking justice, navigating moral traps, and understanding how wisdom, humility, and trust in God determine ultimate success and safety.

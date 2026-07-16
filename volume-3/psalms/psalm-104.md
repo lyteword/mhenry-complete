@@ -1,5 +1,5 @@
 ---
-title: "Psalm 104 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 104 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "104"
 description: >
   Discover the breathtaking scope of Psalm 104, a magnificent celebration of God's divine majesty and sovereign dominion over all creation. This powerful text details how God sustains the earth, provides abundant food and water for every creature, and governs the cycles of the sun and moon. Explore the profound themes of divine providence, eternal glory, and the call to praise for the wondrous works of the Creator.

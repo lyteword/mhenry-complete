@@ -1,5 +1,5 @@
 ---
-title: "Psalm 107 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 107 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "107"
 description: >
   Discover Psalm 107, a powerful testament to God's incredible providence and loving-kindness. This commentary explores how the Lord intervenes in human distress—from physical sickness and perilous sea voyages to the liberation of captives—offering profound comfort and hope. Learn how to find thanksgiving in every circumstance and gain wisdom by observing God's wondrous works in the world around you.

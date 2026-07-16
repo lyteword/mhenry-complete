@@ -1,5 +1,5 @@
 ---
-title: "Psalm 120 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 120 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "120"
 description: >
   Discover the profound comfort of Psalm 120, a powerful meditation on seeking deliverance from deceitful tongues and malicious enemies. This psalm offers deep insight into how fervent prayer can bring divine protection against false accusations and the wrath of liars. Learn how to find peace and strength when facing hostility by trusting in God's unwavering defense and wisdom.

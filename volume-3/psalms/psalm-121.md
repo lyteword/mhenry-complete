@@ -1,5 +1,5 @@
 ---
-title: "Psalm 121 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 121 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "121"
 description: >
   Discover Psalm 121, a powerful song of confidence that assures believers that their help and protection come directly from the Lord. Learn how to place your trust in God as your constant keeper against all evil, danger, and affliction. This psalm offers profound spiritual assurance for every journey of life, ensuring safety from the sun and the darkness of night.

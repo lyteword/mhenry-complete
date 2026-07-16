@@ -1,5 +1,5 @@
 ---
-title: "Ecclesiastes 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ecclesiastes 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Discover Solomon's profound wisdom in Chapter 5 of Ecclesiastes, exploring the deep vanity of chasing worldly wealth and superficial religious pursuits. This guide offers practical insights on how to master the business of life—balancing stewardship of earthly resources with sincere devotion and contentment. Learn how to manage your time and treasure to find true joy, purpose, and lasting peace.

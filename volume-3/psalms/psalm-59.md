@@ -1,5 +1,5 @@
 ---
-title: "Psalm 59 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 59 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "59"
 description: >
   Explore Psalm 59, where David passionately prays for deliverance from malicious enemies. This powerful text offers deep insights into trusting in God's unwavering mercy and seeking divine protection amidst life's troubles. Discover the biblical wisdom on faith, judgment, and finding strength in God's defense.

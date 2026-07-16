@@ -1,5 +1,5 @@
 ---
-title: "Psalm 131 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 131 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "131"
 description: >
   Discover Psalm 131, David's profound declaration of humility and trust in God's grace. This powerful psalm teaches us to quiet our hearts, let go of worldly pride, and find true contentment by living as a child under God's care. Learn how to cultivate unwavering hope and peace by resting in the Lord for eternal salvation.

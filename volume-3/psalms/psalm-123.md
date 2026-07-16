@@ -1,5 +1,5 @@
 ---
-title: "Psalm 123 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 123 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "123"
 description: >
   Discover Psalm 123, a profound meditation on seeking divine mercy when facing persecution and worldly scorn. This powerful psalm encourages believers to lift their eyes to God in times of contempt, offering deep spiritual comfort and assurance that His sovereign grace is the ultimate refuge. Find hope and strength in this prayer for protection and unwavering faith.

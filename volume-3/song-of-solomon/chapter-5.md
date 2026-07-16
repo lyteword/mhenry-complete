@@ -1,5 +1,5 @@
 ---
-title: "Song Of Solomon 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Song Of Solomon 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Discover the profound depths of Song of Solomon chapter 5 through this in-depth biblical commentary. Explore themes of Christ's gracious invitation, the tender love of God for His people, and the vital role of divine grace in awakening the soul. Uncover the unparalleled, transcendent beauty of Christ, inspiring a renewed commitment and deep spiritual connection.

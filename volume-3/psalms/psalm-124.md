@@ -1,5 +1,5 @@
 ---
-title: "Psalm 124 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 124 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "124"
 description: >
   Discover Psalm 124, a profound testament to God's mighty deliverance from ruin and threatening dangers. This psalm assures believers that when facing overwhelming odds, their ultimate help is secured in the name of the LORD, offering deep encouragement and trust in divine protection. Reflect on this powerful text to find assurance of God's unwavering redemption during times of crisis.

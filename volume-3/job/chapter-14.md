@@ -1,5 +1,5 @@
 ---
-title: "Job 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Explore the profound themes of Job Chapter 14, delving into the fragility and brevity of human life. This commentary explores the reality of mortality, the struggles of earthly existence, and the ultimate hope found in eternal life and resurrection. A deep dive into biblical wisdom on life, death, and sin for deep spiritual reflection.

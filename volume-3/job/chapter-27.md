@@ -1,5 +1,5 @@
 ---
-title: "Job 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Explore Job chapter 27 as Job passionately defends his integrity against his friends' accusations. This in-depth biblical commentary delves into the deep themes of hypocrisy, the miserable fate of the wicked, and the terrifying reality of divine judgment. Discover profound lessons on maintaining moral righteousness and standing firm against spiritual adversity.

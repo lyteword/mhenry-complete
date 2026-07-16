@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Discover profound wisdom from Proverbs Chapter 21, exploring the difference between the diligent and the hasty, and the true path to a fulfilling life. This commentary delves into the principles of justice, the dangers of pride and greed, and how true righteousness and mercy lead to life and honour. Learn how to apply God's providence to navigate challenges and secure everlasting success.

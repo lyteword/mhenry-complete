@@ -1,5 +1,5 @@
 ---
-title: "Psalm 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
   Discover the powerful message of Psalm 31, a profound guide for finding unwavering trust in God when facing persecution and deep distress. This psalm offers essential prayers for deliverance, reminding believers that God is our strong rock and that our times are in His sovereign hand. Embrace His mercy, hold onto His hope, and find the courage to persevere through every trial.

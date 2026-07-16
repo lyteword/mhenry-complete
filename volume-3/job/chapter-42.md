@@ -1,5 +1,5 @@
 ---
-title: "Job 42 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 42 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "42"
 description: >
   Discover the profound resolution in Job chapter 42, where true repentance leads to divine vindication. This commentary explores how Job's humility, submission to God's sovereignty, and ultimate restoration—including doubled prosperity and renewed family—offer powerful hope for endurance in life's greatest trials.

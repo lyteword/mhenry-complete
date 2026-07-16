@@ -1,5 +1,5 @@
 ---
-title: "Psalm 49 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 49 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "49"
 description: >
   Discover the powerful message of Psalm 49, a profound sermon that confronts the vanity of worldly riches and temporary glory. This passage challenges readers to abandon the folly of trusting in earthly wealth for salvation and instead pursue true spiritual redemption and eternal life. Learn why earthly honor is fleeting and find lasting comfort in the hope of the righteous.

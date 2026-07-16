@@ -1,5 +1,5 @@
 ---
-title: "Psalm 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Discover Psalm 7, a powerful prayer by David against his enemies. This commentary explores how David trusts in God's protection when facing persecution and appeals for divine justice against those who unjustly harm the innocent. Learn about the themes of faith, deliverance, and the certain judgment of God for the wicked.

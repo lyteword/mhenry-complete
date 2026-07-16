@@ -1,5 +1,5 @@
 ---
-title: "Psalm 146 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 146 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "146"
 description: >
   Discover Psalm 146, a powerful psalm of praise that urges us to place our trust not in fleeting human rulers, but in the mighty God. This scripture highlights God's omnipotence—as the Creator, Judge of the oppressed, and eternal King—offering profound hope for those who rely on His everlasting grace and promises.

@@ -1,5 +1,5 @@
 ---
-title: "Psalm 41 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 41 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "41"
 description: >
   Discover the profound comfort of Psalm 41, where David finds solace amidst sickness and the treachery of his enemies. This powerful text explores God's unwavering promises of deliverance, the necessity of mercy, and how to maintain integrity when facing affliction. Read this psalm for deep spiritual healing and assurance that God upholds you through every trial.

@@ -1,5 +1,5 @@
 ---
-title: "Psalm 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
   Discover the powerful message of Psalm 28, a profound journey from desperate prayer for deliverance to triumphant thanksgiving. This deeply moving psalm explores the importance of unwavering faith, the certainty of God's divine justice against wickedness, and the ultimate hope found in His strength and unending blessing for His people. Learn how to anchor your hope in prayer and find joy through praise.

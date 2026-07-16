@@ -1,5 +1,5 @@
 ---
-title: "Psalm 142 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 142 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "142"
 description: >
   Discover Psalm 142, a profound prayer of distress where David cries out to God for help from enemies and isolation. Explore how this psalm teaches believers to find ultimate refuge and assurance in God's constant love, even when facing overwhelming trials and persecution. This powerful text is a guide for finding comfort and praising God for divine deliverance.

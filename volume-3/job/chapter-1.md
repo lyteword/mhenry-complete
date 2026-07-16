@@ -1,5 +1,5 @@
 ---
-title: "Job 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore the profound journey of Job in this in-depth commentary, delving into the clash between immense prosperity and devastating affliction. Discover deep theological insights into Job's unwavering piety, the trial orchestrated by Satan, and the ultimate demonstration of faith amidst unimaginable suffering. This essential study provides powerful lessons on integrity, divine providence, and enduring hope.

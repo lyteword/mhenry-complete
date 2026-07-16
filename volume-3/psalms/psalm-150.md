@@ -1,5 +1,5 @@
 ---
-title: "Psalm 150 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 150 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "150"
 description: >
   Discover Psalm 150, an inspiring call to worship God with every part of your being. This psalm encourages you to praise the Lord for His mighty acts, infinite greatness, and to offer devotion through every instrument and every breath. Join the universal call to praise and experience deep spiritual upliftment today.

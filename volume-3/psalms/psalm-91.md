@@ -1,5 +1,5 @@
 ---
-title: "Psalm 91 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 91 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "91"
 description: >
   Discover the profound promises of Psalm 91, your ultimate source for divine protection and security. This powerful scripture assures true believers of refuge under God's shadow, deliverance from all snares and pestilence, and unwavering peace amidst any danger. Read the complete commentary to understand how to dwell in the secret place of the Most High and experience God's powerful, steadfast care.

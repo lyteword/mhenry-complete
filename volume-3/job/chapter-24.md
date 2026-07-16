@@ -1,5 +1,5 @@
 ---
-title: "Job 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
   Explore Job Chapter 24 in this in-depth biblical commentary to uncover the profound paradox of the prosperity of the wicked. This analysis delves into the types of unrighteousness that thrive in the world, contrasting temporary earthly success with the ultimate, hidden divine judgment. Discover the theological truths about God's providence and the inevitable ruin of those who rebel against the light.

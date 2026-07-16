@@ -1,5 +1,5 @@
 ---
-title: "Job 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore Job Chapter 2 as a profound study of unwavering faith and endurance. Discover how Job maintains his integrity under intense affliction and the powerful role of true friendship in navigating life's toughest trials. This in-depth commentary reveals deep biblical truths about perseverance, divine providence, and surviving suffering.

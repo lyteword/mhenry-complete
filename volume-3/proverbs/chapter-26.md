@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
   Unlock the wisdom of Proverbs 26 and master the art of dealing with fools, recognizing the dangers of slothfulness, and avoiding destructive strife and deceit. Learn how to safeguard your reputation against slander and self-conceit, ensuring your words build up rather than tear down.

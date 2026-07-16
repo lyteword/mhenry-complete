@@ -1,5 +1,5 @@
 ---
-title: "Psalm 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
   Discover Psalm 20, a profound prayer for kings, leaders, and all in authority. This commentary explores how to intercede for divine protection, spiritual strength, and success in times of trouble. Learn how trusting in God's name, rather than worldly powers, leads to triumph and answers in prayer.

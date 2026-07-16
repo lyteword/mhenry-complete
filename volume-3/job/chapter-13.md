@@ -1,5 +1,5 @@
 ---
-title: "Job 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Explore Job Chapter 13 to delve into the profound conflict between human falsehood and unwavering faith. This commentary explores Job's bold confrontation with his friends, his passionate pleas to God, and his ultimate reliance on divine trust amidst immense suffering. Discover deep theological insights into themes of repentance, divine judgment, and finding strength when facing life's greatest trials.

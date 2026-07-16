@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
   Discover the timeless wisdom of Proverbs 31, which unveils the profound characteristics of the virtuous woman. Learn how piety, diligence, and wisdom build a strong family and lead to lasting honor and joy. This essential commentary offers guidance for men and women on achieving true success and a life guided by God's principles.

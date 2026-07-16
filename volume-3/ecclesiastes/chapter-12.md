@@ -1,5 +1,5 @@
 ---
-title: "Ecclesiastes 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ecclesiastes 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Discover the timeless wisdom of Chapter 12, an essential guide to navigating life's challenges by prioritizing true religion and fearing God. This profound text explores the vanity of the world, the infirmities of old age, and the certainty of death, urging you to remember your Creator and fulfill your spiritual duty now. Learn how to find true happiness and prepare for eternal judgment by grounding your life in scripture and unwavering devotion.

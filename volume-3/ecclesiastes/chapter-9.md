@@ -1,5 +1,5 @@
 ---
-title: "Ecclesiastes 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ecclesiastes 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Discover Solomon's profound insights in Chapter 9 on the vanity of worldly pursuits and the mystery of God's providence. This chapter explores the crucial distinction between outward appearances and true moral worth, teaching readers the timeless wisdom that wisdom surpasses strength and that every event, good or bad, is guided by a divine plan. Learn how to live purposefully, embrace the value of good works, and find enduring hope amidst life's uncertainties.

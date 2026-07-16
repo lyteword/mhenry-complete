@@ -1,5 +1,5 @@
 ---
-title: "Psalm 46 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 46 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "46"
 description: >
   Discover the profound hope and unshakable trust found in Psalm 46. This powerful scripture assures believers that God is our ultimate refuge and strength, providing divine protection and comfort even when facing the worst storms and worldly turmoil. Find deep spiritual assurance and conquer fear by resting in the unwavering power and gracious presence of the Lord.

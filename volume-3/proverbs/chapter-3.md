@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Discover the profound wisdom of Proverbs Chapter 3, offering divine guidance on how to achieve a blessed life. Learn the essential principles of trusting in God, obeying His commands, and cultivating true wisdom to secure long life, peace, and prosperity. Unlock the secrets to spiritual growth and lasting happiness through a life governed by faith and righteousness.

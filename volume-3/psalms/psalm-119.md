@@ -1,5 +1,5 @@
 ---
-title: "Psalm 119 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 119 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "119"
 description: >
   Explore the profound wisdom of Psalm 119 through this detailed commentary on the Law of God. Discover how diligent meditation on Scripture provides guidance, purifies the heart, and leads to true blessedness and spiritual growth. Unlock the secrets of keeping God's word and finding deep understanding in His divine precepts.

@@ -1,5 +1,5 @@
 ---
-title: "Psalm 84 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 84 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "84"
 description: >
   Explore Psalm 84 to discover the profound beauty and spiritual longing for God's presence in the sanctuary. This powerful text offers deep encouragement, assuring believers of God's unwavering grace, protection, and the ultimate glory awaiting those who walk uprightly. Find spiritual comfort and deepen your devotion through this timeless message of worship and communion with the Living God.

@@ -1,5 +1,5 @@
 ---
-title: "Psalm 102 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 102 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "102"
 description: >
   Explore Psalm 102, a profound prayer that captures the depths of affliction while offering powerful hope. This text assures believers of God's eternal endurance and promises the future deliverance and restoration of Zion, emphasizing the unwavering perseverance of the faithful through Christ. Discover deep comfort and renewed strength in your prayers today.

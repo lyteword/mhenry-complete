@@ -1,5 +1,5 @@
 ---
-title: "Psalm 128 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 128 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "128"
 description: >
   Discover the divine blueprint for a blessed life in Psalm 128. This powerful scripture reveals that true family prosperity, success in your work, and deep, agreeable relationships are directly linked to fearing the Lord and walking in His ways. Learn how adopting godliness secures abundant blessings for your household, ensuring a thriving legacy that spans generations.

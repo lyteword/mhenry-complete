@@ -1,5 +1,5 @@
 ---
-title: "Job 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Dive deep into the theological insights of Job Chapter 5 through this expert commentary. This analysis explores the connection between sin, affliction, and the profound reassurance of God's sovereignty. Discover powerful themes of hope, divine deliverance, and the promise of a peaceful, blessed future for those who trust in God's unwavering power.

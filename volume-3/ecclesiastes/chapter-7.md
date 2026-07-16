@@ -1,5 +1,5 @@
 ---
-title: "Ecclesiastes 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ecclesiastes 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Discover the profound wisdom of Ecclesiastes as it guides you through the vanity of the world. Learn practical strategies on managing adversity, valuing a good reputation over wealth, and cultivating inner peace through prudence and submission to God. This chapter offers essential life lessons on overcoming folly and understanding the true path to lasting spiritual life.

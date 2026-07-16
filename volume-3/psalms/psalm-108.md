@@ -1,5 +1,5 @@
 ---
-title: "Psalm 108 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 108 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "108"
 description: >
   Discover the profound guidance of Psalm 108, exploring how to praise God with a fixed heart and pray with unwavering faith. This commentary delves into God's boundless mercy, truth, and powerful promises for deliverance and victory over enemies. Gain spiritual insight for fervent devotion and impactful intercession.

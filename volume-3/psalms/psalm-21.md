@@ -1,5 +1,5 @@
 ---
-title: "Psalm 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Explore Psalm 21, a powerful reflection on thanksgiving for God's blessings and the king's triumph. This commentary reveals profound themes of trusting in God's strength and finding ultimate hope in the victory of the Messiah over all enemies. Discover deep encouragement and spiritual assurance in this inspiring passage about God's mercy and power.

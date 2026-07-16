@@ -1,5 +1,5 @@
 ---
-title: "Psalm 63 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 63 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "63"
 description: >
   Discover the profound journey of longing and devotion in Psalm 63. This deeply moving psalm explores the intense desire for God's presence, the pursuit of His glory, and the deep spiritual satisfaction found in His lovingkindness. Use this powerful biblical reflection to strengthen your faith, build confidence in God's unwavering support, and find joyful communion with Him, even in life's wilderness.

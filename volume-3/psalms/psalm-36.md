@@ -1,5 +1,5 @@
 ---
-title: "Psalm 36 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 36 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "36"
 description: >
   Discover the profound contrast between the malice of sin and the unwavering goodness of God in Psalm 36. This commentary explores the root of wickedness and reveals the transcendent mercy, faithfulness, and righteousness of the Lord, offering deep spiritual comfort to those who trust in Him. Learn how to find lasting satisfaction and eternal joy by resting under the shadow of God's wings and embracing the light of divine truth.

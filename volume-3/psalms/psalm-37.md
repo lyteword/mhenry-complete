@@ -1,5 +1,5 @@
 ---
-title: "Psalm 37 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 37 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "37"
 description: >
   Discover the profound spiritual wisdom of Psalm 37, a sermon focused on overcoming envy and embracing divine providence. This powerful text provides practical instruction on how to trust in the Lord, live a righteous life, and find lasting peace amidst worldly corruption. Learn the promises of inheritance and salvation for those who wait upon God for eternal security.

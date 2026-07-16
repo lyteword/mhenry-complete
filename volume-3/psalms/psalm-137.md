@@ -1,5 +1,5 @@
 ---
-title: "Psalm 137 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 137 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "137"
 description: >
   Experience the profound sorrow and steadfast hope of Psalm 137, a powerful lament from the Babylonian exile. This psalm captures the deep anguish of the captives weeping for Zion, yet it anchors their despair in an unshakeable longing for home and a holy zeal for divine justice. Explore the themes of mourning, enduring loyalty, and the ultimate promise of deliverance for those who remember God's people.

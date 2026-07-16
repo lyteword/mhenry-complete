@@ -1,5 +1,5 @@
 ---
-title: "Psalm 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Explore Psalm 14 to delve into the profound depravity of human nature, examining the depths of sin, folly, and the widespread corruption of mankind. This insightful commentary reveals how sin is an epidemic, while simultaneously offering a powerful message of hope in the salvation of Israel through the Redeemer. Discover the truth about human corruption and find ultimate refuge in God's grace.

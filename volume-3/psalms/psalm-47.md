@@ -1,5 +1,5 @@
 ---
-title: "Psalm 47 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 47 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "47"
 description: >
   Discover the profound call to worship in Psalm 47, an inspiring guide to celebrating the majesty and universal dominion of God. This psalm encourages believers to shout praises to the King of all the earth, reflecting on His sovereign rule, His great deeds, and the blessed inheritance He has chosen for His people. Engage with this powerful scripture to find encouragement, celebrate His triumph, and experience the joy of praising the Almighty.

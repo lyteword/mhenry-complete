@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
   Master the wisdom of Proverbs 23 by exploring essential cautions against luxury, covetousness, and intemperance. This deep dive offers critical guidance on moderation, righteous parenting, and how to seek truth to secure a fulfilling spiritual life. Learn practical advice on avoiding destructive habits and cultivating a heart guided by God's principles.

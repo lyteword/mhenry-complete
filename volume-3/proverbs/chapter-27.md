@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Discover profound biblical wisdom from Proverbs Chapter 27, offering practical maxims on navigating life. Learn how to manage your emotions, cultivate true friendship, and exercise diligence in stewardship to ensure a fruitful and content life. This chapter provides essential guidance on reputation, self-knowledge, and the transient nature of worldly pursuits.

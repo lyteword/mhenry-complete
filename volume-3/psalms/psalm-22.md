@@ -1,5 +1,5 @@
 ---
-title: "Psalm 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Explore Psalm 22 to meditate on the deep suffering of Christ and the profound struggle of faith. This commentary delves into the agony of the crucifixion, offering powerful encouragement through the promise of God's faithfulness and the ultimate triumph of the Kingdom of God. Discover hope, redemption, and everlasting life in this essential reflection on Christ's sacrifice.

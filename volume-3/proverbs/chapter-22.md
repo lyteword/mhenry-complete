@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Discover the profound wisdom of Proverbs 22, offering timeless guidance on navigating life's complexities. Learn how to prioritize a good name over riches, cultivate humility, and understand the balance between the rich and the poor. This essential commentary provides practical maxims on prudence, integrity, and the spiritual path to true blessings.

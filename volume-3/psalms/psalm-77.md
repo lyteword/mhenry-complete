@@ -1,5 +1,5 @@
 ---
-title: "Psalm 77 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 77 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "77"
 description: >
   Explore Psalm 77, a powerful journey from deep sorrow and despair to renewed hope. Discover how remembering God's past works and trusting in His enduring mercy can transform personal grief into steadfast faith. This commentary offers profound insights into overcoming affliction and finding comfort in God's unwavering providence.

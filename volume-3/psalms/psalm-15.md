@@ -1,5 +1,5 @@
 ---
-title: "Psalm 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Discover the essential character requirements for a citizen of Zion in Psalm 15. This powerful biblical guide outlines the path to heaven by emphasizing walking uprightly, honesty in dealings, and genuine piety. Learn how to live a life of integrity that secures eternal happiness and eternal reward.

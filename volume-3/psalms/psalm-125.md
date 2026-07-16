@@ -1,5 +1,5 @@
 ---
-title: "Psalm 125 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 125 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "125"
 description: >
   Discover the profound assurance of Psalm 125, a powerful meditation on the security and blessing reserved for the righteous. This psalm assures believers that those who trust in the Lord will be established like Mount Zion, protected by God's ever-present providence, while the wicked face inevitable judgment. Explore the themes of faith, divine protection, and the contrasting destinies of the righteous and the unfaithful.

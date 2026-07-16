@@ -1,5 +1,5 @@
 ---
-title: "Psalm 58 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 58 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "58"
 description: >
   Uncover the profound message of Psalm 58, a powerful cry against the corruption of wicked judges and the dangers of sin. This deep biblical text explores the nature of injustice and the certainty of God's righteous vengeance against oppression. Discover the hope and comfort found in trusting in divine judgment and seeing the ultimate triumph of righteousness.

@@ -1,5 +1,5 @@
 ---
-title: "Psalm 32 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 32 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "32"
 description: >
   Discover the profound gospel in Psalm 32, which explores the path to true blessedness through the forgiveness of sin and sincere repentance. Learn how confessing your faults, praying earnestly, and trusting in God's mercy leads to peace of conscience and divine protection. This psalm offers essential spiritual guidance for finding joy and security in a life reconciled with God.

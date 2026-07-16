@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Explore the profound moral wisdom of Proverbs Chapter 5, offering a crucial guide against the dangers of whoredom, fornication, and sensuality. This commentary delves into the severe consequences of fleshly lusts while prescribing powerful remedies, emphasizing the sanctity of conjugal love and the necessity of divine guidance. Learn how to protect your soul and secure a blessed future through fidelity and reverence for God's watchful eye.

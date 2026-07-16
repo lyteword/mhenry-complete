@@ -1,5 +1,5 @@
 ---
-title: "Psalm 117 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 117 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "117"
 description: >
   Discover the profound message of Psalm 117, a solemn call to all nations to praise the Lord for His great merciful kindness and the enduring truth of His word. Explore the deep gospel meaning of this powerful scripture, understanding how God's grace extends to every people, uniting the Gentiles in worship.

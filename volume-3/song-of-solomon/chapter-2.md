@@ -1,5 +1,5 @@
 ---
-title: "Song Of Solomon 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Song Of Solomon 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the profound beauty of Christ's love as explored in Song of Solomon 2. This commentary delves into how believers are like lilies among thorns, finding deep comfort in communion with Christ, and receiving an urgent call to pursue purity and hope. Embrace the encouragement to overcome spiritual distractions and anticipate the glorious day of His return.

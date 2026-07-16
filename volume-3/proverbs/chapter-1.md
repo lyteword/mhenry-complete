@@ -1,5 +1,5 @@
 ---
-title: "Proverbs 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Unlock the timeless wisdom of Proverbs Chapter 1 with this in-depth commentary, exploring how to cultivate true knowledge and discretion. Discover essential moral guidance on the critical importance of fearing the Lord, discerning truth from falsehood, and avoiding destructive company. Use this guide to understand biblical principles for a life lived with wisdom, safety, and righteous purpose.

@@ -1,5 +1,5 @@
 ---
-title: "Ecclesiastes 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ecclesiastes 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Explore the profound themes of Chapter 4 from Ecclesiastes, uncovering the vanity of worldly pursuits, the pain of oppression, and the pitfalls of selfish ambition. Discover Solomon's wisdom on how to combat envy and solitude by embracing mutual assistance, true friendship, and the strength of a threefold cord. Learn how wisdom and community provide the true meaning and lasting peace in life.

@@ -1,5 +1,5 @@
 ---
-title: "Job 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
   Uncover the profound contrast between worldly wealth and true wisdom in Job Chapter 28. This commentary explores the immense labor and peril of seeking earthly riches, revealing that the most valuable treasure is not found in gold but in the divine revelation of the fear of the Lord and departing from evil. Discover the ultimate wisdom that transcends all material pursuits and guides you toward eternal understanding.

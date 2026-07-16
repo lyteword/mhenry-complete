@@ -1,5 +1,5 @@
 ---
-title: "Psalm 70 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 70 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "70"
 description: >
   Discover Psalm 70, a powerful prayer of urgent supplication for immediate deliverance from affliction. This text guides you in petitioning God for swift help, seeking to shame enemies, and finding enduring joy and salvation through steadfast faith. Use this psalm to turn your troubles into praise and experience God's mighty help.

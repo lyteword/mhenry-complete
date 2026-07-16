@@ -1,5 +1,5 @@
 ---
-title: "Psalm 38 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 38 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "38"
 description: >
   Explore Psalm 38, a profound penitential psalm detailing David's intense grief over sin, bodily sickness, and betrayal. This commentary helps readers process deep suffering by exploring themes of God's wrath, the burden of guilt, and finding ultimate comfort and hope in trusting in God's presence and salvation.

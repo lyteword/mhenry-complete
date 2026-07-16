@@ -1,5 +1,5 @@
 ---
-title: "Job 34 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 34 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "34"
 description: >
   Dive deep into the Job 34 commentary by Elihu to explore profound themes of divine justice, God's absolute sovereignty, and the meaning of suffering. This theological deep-dive guides readers toward true repentance by revealing God's perfect wisdom and irresistible power over all creation. Learn how to find peace and submission in the face of life's trials.

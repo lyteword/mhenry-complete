@@ -1,5 +1,5 @@
 ---
-title: "Ecclesiastes 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ecclesiastes 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Unlock the power of wisdom in this chapter and learn the ultimate antidote to worldly temptation and vexation. Discover practical guidance on how to navigate political challenges, discern divine providence, and maintain inner peace amidst uncertainty. Learn to recognize the vanity of worldly success and find lasting contentment by submitting to God's wise counsel.

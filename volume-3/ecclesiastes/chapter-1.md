@@ -1,5 +1,5 @@
 ---
-title: "Ecclesiastes 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ecclesiastes 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the profound truth of Ecclesiastes: why all worldly pursuits, material wealth, and the endless search for human knowledge are ultimately vanity. This chapter explores the futility of labor, the fleeting nature of life, and the unsatisfying nature of earthly satisfaction. Learn how to shift your focus from temporary achievements to the enduring wisdom found in spiritual life.

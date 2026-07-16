@@ -1,5 +1,5 @@
 ---
-title: "Psalm 96 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 96 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "96"
 description: >
   Discover the powerful message of Psalm 96, an urgent call to sing a new song of praise to the Lord. Explore the majesty of God, His universal sovereignty, and the glorious establishment of the Kingdom of Christ. This psalm invites all to acknowledge God's greatness and rejoice in His righteous reign over the world.

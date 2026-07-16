@@ -1,5 +1,5 @@
 ---
-title: "Psalm 89 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 89 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "89"
 description: >
   Discover the profound comfort of Psalm 89, a timeless exploration of God's unwavering faithfulness and eternal covenant with David. This powerful text assures believers that God's boundless mercy is built up forever, finding ultimate hope and exaltation in the reign of Christ. Explore the depth of divine power and the blessedness of His people in this essential commentary.

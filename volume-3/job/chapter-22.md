@@ -1,5 +1,5 @@
 ---
-title: "Job 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Explore the profound theological insights of Job Chapter 22 through this expert commentary. Discover Eliphaz's deep analysis of divine justice, the perils of human pride, and the ultimate path to repentance and restoration. Learn how to find peace, wisdom, and prosperity by returning to God's counsel and embracing divine guidance.

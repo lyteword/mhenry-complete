@@ -1,5 +1,5 @@
 ---
-title: "Psalm 35 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 35 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "35"
 description: >
   Discover Psalm 35, a powerful biblical account of David's desperate appeal to God against his persecutors who sought his ruin and leveled false accusations. This profound meditation offers essential spiritual guidance on finding divine protection, trusting in God's unwavering justice, and overcoming the malice of enemies through sincere prayer and faith. Learn how to transform suffering into triumph by anchoring your hope in God's salvation.

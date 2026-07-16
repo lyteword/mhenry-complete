@@ -1,5 +1,5 @@
 ---
-title: "Psalm 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
   Discover the breathtaking glory of God revealed in the vastness of creation and the perfect order of the universe through Psalm 19. This powerful psalm also highlights the supreme value of God's Word and divine law, offering profound spiritual wisdom for purification, guidance against sin, and a path to everlasting joy. Dive deep into the scripture to find clarity and divine direction.

@@ -1,5 +1,5 @@
 ---
-title: "Job 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Explore Job chapter 10 through this in-depth commentary to gain profound insight into the nature of suffering and faith. Discover how Job grapples with divine dealings, finds comfort in God's sovereignty, and navigates the intense questions of life, death, and purpose. This study offers powerful biblical wisdom for anyone seeking deep theological understanding and solace during times of hardship.
