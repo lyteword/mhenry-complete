@@ -2,7 +2,7 @@
 title: "Psalm 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
 description: >
-  This psalm is the deserted soul's case and cure. Whether it was penned upon any particular occasion does not appear, but in general, I. David sadly complains that God had long with...
+  Discover Psalm 13, the powerful psalm of the deserted soul's case and cure. Explore how David navigates deep sorrow and anxiety through earnest prayer to God, seeking light and deliverance. Find profound comfort and hope as you learn how unwavering trust in God's mercy transforms despair into triumphant, joyful praise.
 weight: 13
 ---
 
