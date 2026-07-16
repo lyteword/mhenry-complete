@@ -2,7 +2,7 @@
 title: "Psalm 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
 description: >
-  As the foregoing psalm was a prayer for the king that God would protect and prosper him, so this is a thanksgiving for the success God had blessed him with. Those whom we have pray...
+  Explore Psalm 21, a powerful reflection on thanksgiving for God's blessings and the king's triumph. This commentary reveals profound themes of trusting in God's strength and finding ultimate hope in the victory of the Messiah over all enemies. Discover deep encouragement and spiritual assurance in this inspiring passage about God's mercy and power.
 weight: 21
 ---
 
