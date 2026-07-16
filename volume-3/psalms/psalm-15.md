@@ -2,7 +2,7 @@
 title: "Psalm 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
 description: >
-  The scope of this short but excellent psalm is to show us the way to heaven, and to convince us that, if we would be happy, we must be holy and honest. Christ, who is himself the w...
+  Discover the essential character requirements for a citizen of Zion in Psalm 15. This powerful biblical guide outlines the path to heaven by emphasizing walking uprightly, honesty in dealings, and genuine piety. Learn how to live a life of integrity that secures eternal happiness and eternal reward.
 weight: 15
 ---
 
