@@ -2,7 +2,7 @@
 title: "Psalm 40 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "40"
 description: >
-  It should seem David penned this psalm upon occasion of his deliverance, by the power and goodness of God, from some great and pressing trouble, by which he was in danger of being ...
+  Discover the profound hope and comfort of Psalm 40, a powerful testament to God's deliverance from deep distress. This psalm encourages believers to wait patiently, trusting in the power of Christ's redemption as the ultimate source of salvation and peace. Find encouragement in prayer and assurance that God's lovingkindness will always preserve and guide you through every trial.
 weight: 40
 ---
 
