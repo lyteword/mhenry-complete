@@ -2,7 +2,7 @@
 title: "Psalm 81 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "81"
 description: >
-  This psalm was penned, as is supposed, not upon occasion of any particular providence, but for the solemnity of a particular ordinance, either that of the new-moon in general or th...
+  Discover the profound message of Psalm 81, an ancient call to praise God and heed His divine law. This powerful psalm encourages believers to remember God's mighty acts of deliverance, commit to obedience, and find strength in His grace during solemn feast days. Learn how to align your life with God's ways to receive His abundant blessings and experience true spiritual victory.
 weight: 81
 ---
 
