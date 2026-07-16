@@ -2,7 +2,7 @@
 title: "Psalm 64 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "64"
 description: >
-  This whole psalm has reference to David's enemies, persecutors, and slanderers; many such there were, and a great deal of trouble they gave him, almost all his days, so that we nee...
+  Explore Psalm 64 to understand the intense battles faced by the righteous against malicious enemies and slanderers. This powerful text offers profound assurance of divine protection, revealing how God executes judgment against the wicked while bringing joy and glory to those who trust in Him. Discover hope, faith, and the ultimate victory of the righteous.
 weight: 64
 ---
 
