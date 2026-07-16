@@ -2,7 +2,7 @@
 title: "Psalm 37 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "37"
 description: >
-  This psalm is a sermon, and an excellent useful sermon it is, calculated not (as most of the psalms) for our devotion, but for our conversation; there is nothing in it of prayer or...
+  Discover the profound spiritual wisdom of Psalm 37, a sermon focused on overcoming envy and embracing divine providence. This powerful text provides practical instruction on how to trust in the Lord, live a righteous life, and find lasting peace amidst worldly corruption. Learn the promises of inheritance and salvation for those who wait upon God for eternal security.
 weight: 37
 ---
 
