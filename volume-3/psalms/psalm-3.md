@@ -2,7 +2,7 @@
 title: "Psalm 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  As the foregoing psalm, in the type of David in preferment, showed us the royal dignity of the Redeemer, so this, by the example of David in distress, shows us the peace and holy s...
+  Discover the profound comfort of Psalm 3, where David, fleeing from his enemies, shifts from distress to unwavering faith. This powerful passage reveals the security found in divine protection, assuring believers that God is our shield, our glory, and the ultimate source of salvation. Learn how to find peace and courage by trusting in God's unfailing grace, even amidst life's greatest troubles.
 weight: 3
 ---
 
