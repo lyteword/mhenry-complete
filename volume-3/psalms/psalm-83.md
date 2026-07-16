@@ -2,7 +2,7 @@
 title: "Psalm 83 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "83"
 description: >
-  This psalm is the last of those that go under the name of Asaph. It is penned, as most of those, upon a public account, with reference to the insults of the church's enemies, who s...
+  Uncover the powerful spiritual warfare detailed in Psalm 83. This profound psalm chronicles the dangerous confederacies of nations plotting against God's people, offering an urgent prayer for divine intervention and ultimate victory. Explore the prophecy of the enemies' ruin and discover the assurance of God's supreme sovereignty, making this essential reading for understanding faith, perseverance, and the triumph of righteousness over all opposition.
 weight: 83
 ---
 
