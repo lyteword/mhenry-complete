@@ -2,7 +2,7 @@
 title: "Psalm 72 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "72"
 description: >
-  The foregoing psalm was penned by David when he was old, and, it should seem, so was this too; for Solomon was now standing fair for the crown; that was his prayer for himself, thi...
+  Discover the profound prophecy of Psalm 72, revealing the glorious, righteous, and peaceful Kingdom of Christ under the shadow of Solomon's reign. This detailed commentary explores how the Messiah's rule brings universal judgment, immense peace, and deep protection for the poor and oppressed. Read this SEO-optimized analysis to grasp the eternal glory and expansive dominion of God's kingdom.
 weight: 72
 ---
 
