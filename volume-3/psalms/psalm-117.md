@@ -2,7 +2,7 @@
 title: "Psalm 117 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "117"
 description: >
-  This psalm is short and sweet; I doubt the reason why we sing it so often as we do is for the shortness of it; but, if we rightly understood and considered it, we should sing it of...
+  Discover the profound message of Psalm 117, a solemn call to all nations to praise the Lord for His great merciful kindness and the enduring truth of His word. Explore the deep gospel meaning of this powerful scripture, understanding how God's grace extends to every people, uniting the Gentiles in worship.
 weight: 117
 ---
 
