@@ -2,7 +2,7 @@
 title: "Psalm 135 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "135"
 description: >
-  This is one of the Hallelujah-psalms; that is the title of it, and that is the Amen of it, both its Alpha and its Omega. I. It begins with a call to praise God, particularly a call...
+  This deep dive into Psalm 135 reveals the unparalleled majesty and omnipotence of the Lord. Explore the profound themes of God's goodness, His historical triumphs, and the ultimate call to praise Him above all idols. Discover the power of Hallelujah in this inspiring psalm.
 weight: 135
 ---
 
