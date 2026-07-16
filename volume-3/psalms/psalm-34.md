@@ -2,7 +2,7 @@
 title: "Psalm 34 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "34"
 description: >
-  This psalm was penned upon a particular occasion, as appears by the title, and yet there is little in it peculiar to that occasion, but that which is general, both by way of thanks...
+  Discover the profound wisdom of Psalm 34, a powerful guide to praise, thanksgiving, and unwavering trust in God. Learn how to overcome fear, seek His deliverance, and live a life guided by His goodness and the command to fear the Lord. This psalm offers deep comfort and practical direction for a truly blessed life.
 weight: 34
 ---
 
