@@ -2,7 +2,7 @@
 title: "Psalm 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
 description: >
-  This psalm we met with before, in the history of David's life, 2Sa 22:1-51 That was the first edition of it; here we have it revived, altered a little, and fitted for the service o...
+  Discover Psalm 18, David's powerful thanksgiving for God's incredible deliverances. Explore how God acts as our strength, rock, and fortress during times of distress. This psalm offers deep comfort and a testament to God's unwavering power and ultimate victory through Christ.
 weight: 18
 ---
 
