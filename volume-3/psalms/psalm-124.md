@@ -2,7 +2,7 @@
 title: "Psalm 124 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "124"
 description: >
-  David penned this psalm (we suppose) upon occasion of some great deliverance which God wrought for him and his people from some very threatening danger, which was likely to have in...
+  Discover Psalm 124, a profound testament to God's mighty deliverance from ruin and threatening dangers. This psalm assures believers that when facing overwhelming odds, their ultimate help is secured in the name of the LORD, offering deep encouragement and trust in divine protection. Reflect on this powerful text to find assurance of God's unwavering redemption during times of crisis.
 weight: 124
 ---
 
