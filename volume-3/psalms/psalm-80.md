@@ -2,7 +2,7 @@
 title: "Psalm 80 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "80"
 description: >
-  This psalm is much to the same purport with the foregoing. Some think it was penned upon occasion of the desolation and captivity of the ten tribes, as the foregoing psalm of the t...
+  Explore Psalm 80, a profound psalm of lament that explores the distresses of the people and the church through the powerful metaphor of a flourishing vine. This commentary delves into the themes of divine anger, the urgent need for repentance, and the ultimate hope found in God's mercy and salvation. Discover deep theological insights into prayer, Christ as the true vine, and finding strength in God's steadfast hand.
 weight: 80
 ---
 
