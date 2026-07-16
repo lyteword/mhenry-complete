@@ -2,7 +2,7 @@
 title: "Psalm 77 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "77"
 description: >
-  This psalm, according to the method of many other psalms, begins with sorrowful complaints but ends with comfortable encouragements. The complaints seem to be of personal grievance...
+  Explore Psalm 77, a powerful journey from deep sorrow and despair to renewed hope. Discover how remembering God's past works and trusting in His enduring mercy can transform personal grief into steadfast faith. This commentary offers profound insights into overcoming affliction and finding comfort in God's unwavering providence.
 weight: 77
 ---
 
