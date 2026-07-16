@@ -1,8 +1,8 @@
 ---
-title: "Job 41 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 41 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "41"
 description: >
-  The description here given of the leviathan, a very large, strong, formidable fish, or water-animal, is designed yet further to convince Job of his own impotency, and of God's omni...
+  Explore the profound biblical commentary on Job Chapter 41, delving into the terrifying majesty of the leviathan. This in-depth analysis reveals deep truths about God's sovereign power, humanity's limitations, and the awe-inspiring scope of creation. Discover how this ancient text teaches us about humility and divine omnipotence.
 weight: 41
 ---
 

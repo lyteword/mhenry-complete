@@ -1,8 +1,8 @@
 ---
-title: "Psalm 74 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 74 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "74"
 description: >
-  This psalm does so particularly describe the destruction of Jerusalem and the temple, by Nebuchadnezzar and the army of the Chaldeans, and can so ill be applied to any other event ...
+  Explore Psalm 74, a powerful lament detailing the destruction of Jerusalem and the temple by the Chaldeans. This biblical commentary guides you through the people's desperate prayers, emphasizing the importance of faithful faith, remembering God's covenant, and finding hope in His ultimate deliverance during times of intense distress. Discover how to apply this ancient text to modern challenges and strengthen your reliance on God's unwavering power.
 weight: 74
 ---
 

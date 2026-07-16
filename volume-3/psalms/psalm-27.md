@@ -1,8 +1,8 @@
 ---
-title: "Psalm 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
-  Some think David penned this psalm before his coming to the throne, when he was in the midst of his troubles, and perhaps upon occasion of the death of his parents; but the Jews th...
+  Discover the profound message of Psalm 27, an anthem of steadfast faith and unwavering courage. This scripture inspires believers to find strength in God's light, trust in His protection during times of trouble, and eagerly anticipate the glory of His presence. Learn how to cultivate deep confidence and hope by dwelling in God's house and waiting upon the Lord.
 weight: 27
 ---
 

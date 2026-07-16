@@ -1,8 +1,8 @@
 ---
-title: "Psalm 55 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 55 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "55"
 description: >
-  It is the conjecture of many expositors that David penned this psalm upon occasion of Absalom's rebellion, and that the particular enemy he here speaks of, that dealt treacherously...
+  Discover the profound comfort of Psalm 55, where David expresses deep distress and fear while pleading for God's intervention against enemies' treachery and oppression. This powerful psalm offers believers a roadmap for prayer, teaching us to cast our burdens upon the Lord and find unwavering confidence in His ultimate deliverance and righteous judgment. Use this text to find solace, courage, and assurance amidst life's storms.
 weight: 55
 ---
 

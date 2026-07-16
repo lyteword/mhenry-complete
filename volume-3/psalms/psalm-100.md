@@ -1,8 +1,8 @@
 ---
-title: "Psalm 100 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 100 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "100"
 description: >
-  It is with good reason that many sing this psalm very frequently in their religious assemblies, for it is very proper both to express and to excite pious and devout affections towa...
+  Discover the powerful message of Psalm 100, an ancient call to make a joyful noise to the Lord and serve Him with gladness. Explore the profound truths about God's nature—His mercy, truth, and sovereignty—to deepen your devotion and embrace true worship. This psalm is the ultimate guide to thanksgiving and praise.
 weight: 100
 ---
 

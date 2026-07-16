@@ -1,8 +1,8 @@
 ---
-title: "Psalm 134 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 134 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "134"
 description: >
-  This is the last of the fifteen songs of degrees; and, if they were at any time sung all together in the temple-service, it is fitly made the conclusion of them, for the design of ...
+  Discover the powerful message of Psalm 134, a call to lift up your hands in devotion and bless the Lord. Learn how to find encouragement through mutual prayer and the profound spiritual blessings found in serving God. This psalm inspires active worship and deep communion with the Divine.
 weight: 134
 ---
 

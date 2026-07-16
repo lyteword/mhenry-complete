@@ -1,8 +1,8 @@
 ---
-title: "Psalm 112 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 112 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "112"
 description: >
-  This psalm is composed alphabetically, as the former is, and is (like the former) entitled "Hallelujah," though it treats of the happiness of the saints, because it redounds to the...
+  Discover the profound wisdom of Psalm 112, a timeless guide to the character and blessings of the righteous. This psalm explores how fearing God and delighting in His commandments leads to lasting prosperity, inner comfort, and an enduring righteousness that surpasses all worldly gain. Learn how to cultivate a godly life and find unshakable happiness by following the path of the faithful.
 weight: 112
 ---
 

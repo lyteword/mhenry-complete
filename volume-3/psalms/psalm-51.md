@@ -1,8 +1,8 @@
 ---
-title: "Psalm 51 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 51 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "51"
 description: >
-  Though David penned this psalm upon a very particular occasion, yet, it is of as general use as any of David's psalms; it is the most eminent of the penitential psalms, and most ex...
+  Discover the profound message of Psalm 51, the most eminent penitential psalm, offering a powerful guide to genuine repentance. Learn how David's confession, earnest plea for mercy, and pursuit of a clean heart lead to deep spiritual cleansing and reconciliation with God. Use this powerful prayer to seek forgiveness, find inner peace, and experience the renewal of a true, sanctified spirit.
 weight: 51
 ---
 

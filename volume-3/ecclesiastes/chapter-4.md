@@ -1,8 +1,12 @@
 ---
+title: "Ecclesiastes 4 | The Complete Matthew Henry Bible Commentary"
+linkTitle: "4"
+description: >
+  Explore the profound themes of Chapter 4 from Ecclesiastes, uncovering the vanity of worldly pursuits, the pain of oppression, and the pitfalls of selfish ambition. Discover Solomon's wisdom on how to combat envy and solitude by embracing mutual assistance, true friendship, and the strength of a threefold cord. Learn how wisdom and community provide the true meaning and lasting peace in life.
 weight: 4
 ---
 
-# Chapter 4
+# Ecclesiastes 4
 
 Solomon, having shown the vanity of this world in the temptation which those in power feel to oppress and trample upon their subjects, here further shows, I. The temptation which the oppressed feel to discontent and impatience, Ec 4:1-3. II. The temptation which those that love their case feel to take their case and neglect business, for fear of being envied, Ec 4:4-6. III. The folly of hoarding up abundance of worldly wealth, Ec 4:7,8. IV. A remedy against that folly, in being made sensible of the benefit of society and mutual assistance, Ec 4:9-12. V. The mutability even of royal dignity, not only through the folly of the prince himself (Ec 4:13,14), but through the fickleness of the people, let the prince be ever so discreet, Ec 4:15,16. It is not the prerogative even of kings themselves to be exempted from the vanity and vexation that attend these things; let none else then expect it.
 

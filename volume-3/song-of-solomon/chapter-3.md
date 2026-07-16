@@ -1,8 +1,8 @@
 ---
-title: "Song Of Solomon 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Song Of Solomon 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  In this chapter, I. The church gives an account of a sore trial wherewith she was exercised through the withdrawing of her beloved from her, the pains she was at before she recover...
+  Discover the profound journey of faith in Song of Solomon chapter 3, exploring the trials of seeking Christ and finding ultimate comfort in His love. This powerful commentary reveals the magnificent glory of the Gospel, symbolized by Christ's royal chariot and the safety found in the Church's embrace. Learn how perseverance, spiritual warfare, and unwavering love lead believers to secure eternal rest and experience divine triumph.
 weight: 3
 ---
 

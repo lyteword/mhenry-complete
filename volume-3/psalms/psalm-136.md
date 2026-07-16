@@ -1,8 +1,8 @@
 ---
-title: "Psalm 136 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 136 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "136"
 description: >
-  The scope of this psalm is the same with that of the Ps 135:1-21, but there is something very singular in the composition of it; for the latter half of each verse is the same, repe...
+  Discover the profound message of Psalm 136, a timeless call to thanksgiving celebrating the everlasting mercy of God. Explore how this psalm highlights God's power as the Creator, his faithfulness in saving Israel through miraculous redemptions, and His unending provision for all creation. Find deep comfort and inspiration in this powerful scripture that reminds us that God's grace endures forever.
 weight: 136
 ---
 

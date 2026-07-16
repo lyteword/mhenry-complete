@@ -1,8 +1,8 @@
 ---
-title: "Proverbs 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
-  Falsehood and Oppression Reproved: Better is a dry morsel, and quietness therewith, than an house full of sacrifices with strife.
+  Unlock profound life wisdom with Proverbs Chapter 17, exploring the critical contrast between the destructive nature of strife and the peace found in unity and quietness. Discover timeless lessons on true friendship, the dangers of false lips, and the power of self-control to guide your path toward genuine integrity and lasting happiness. Learn how wisdom prevails over folly and how a merry heart can be the best medicine for a troubled spirit.
 weight: 17
 ---
 

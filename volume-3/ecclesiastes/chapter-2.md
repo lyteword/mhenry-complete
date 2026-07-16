@@ -1,8 +1,12 @@
 ---
+title: "Ecclesiastes 2 | The Complete Matthew Henry Bible Commentary"
+linkTitle: "2"
+description: >
+  Uncover the profound truths about life's purpose by examining the vanity of fleeting worldly pleasures and transient pursuits. This chapter guides you in distinguishing between wisdom and folly, revealing that lasting contentment is found not in material gain, but in meaningful labor and good works guided by divine wisdom. Learn how to use your resources cheerfully and focus on what truly matters for enduring spiritual satisfaction.
 weight: 2
 ---
 
-# Chapter 2
+# Ecclesiastes 2
 
 Solomon having pronounced all vanity, and particularly knowledge and learning, which he was so far from giving himself joy of that he found the increase of it did but increase his sorrow, in this chapter he goes on to show what reason he has to be tired of this world, and with what little reason most men are fond of it. I. He shows that there is no true happiness and satisfaction to be had in mirth and pleasure, and the delights of sense, Ec 2:11-11. II. He reconsiders the pretensions of wisdom, and allows it to be excellent and useful, and yet sees it clogged with such diminutions of its worth that it proves insufficient to make a man happy, Ec 2:12-16. III. He enquires how far the business and wealth of this world will go towards making men happy, and concludes, from his own experience, that, to those who set their hearts upon it, "it is vanity and vexation of spirit," (Ec 2:17-23), and that, if there be any good in it, it is only to those that sit loose to it, Ec 2:24-26.
 

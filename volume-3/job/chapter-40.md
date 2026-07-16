@@ -1,8 +1,8 @@
 ---
-title: "Job 40 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 40 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "40"
 description: >
-  Many humbling confounding questions God had put to Job, in the foregoing chapter; now, in this chapter, I. He demands an answer to them, Job 40:1,2. II. Job submits in a humble sil...
+  Explore Job chapter 40 to understand the humbling confrontation between man and God. Discover profound lessons on true repentance, divine sovereignty, and the immense power of the Creator, illustrated by the mighty Behemoth. Learn why humility is the key to facing God's ultimate judgment and embracing God's limitless majesty.
 weight: 40
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Psalm 44 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 44 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "44"
 description: >
-  We are not told either who was the penmen of this psalm or when and upon what occasion it was penned, upon a melancholy occasion, we are sure, not so much to the penman himself (th...
+  Explore Psalm 44, a deep commentary on faith during persecution and captivity. This psalm guides believers through remembering God's past mercies, maintaining integrity amidst suffering, and earnestly petitioning the throne of grace for divine relief and ultimate redemption. Find encouragement and steadfast hope in this powerful biblical reflection on trials and deliverance.
 weight: 44
 ---
 

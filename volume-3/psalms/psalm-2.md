@@ -1,8 +1,8 @@
 ---
-title: "Psalm 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  As the foregoing psalm was moral, and showed us our duty, so this is evangelical, and shows us our Saviour. Under the type of David's kingdom (which was of divine appointment, met ...
+  Explore Psalm 2 to discover the divine decree behind the establishment of the Kingdom of the Messiah and witness the triumphant victory over all earthly opposition. This deep commentary reveals the profound theological truth of Christ's sovereignty and issues a powerful call to believers to embrace submission and worship, ensuring the triumph of God's reign. Discover the ultimate authority and eternal promise found in this essential biblical text.
 weight: 2
 ---
 

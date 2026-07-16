@@ -1,8 +1,12 @@
 ---
+title: "Ecclesiastes 10 | The Complete Matthew Henry Bible Commentary"
+linkTitle: "10"
+description: >
+  Unlock the secrets of effective governance and personal success with this deep dive into Ecclesiastes Chapter 10. Discover the essential wisdom for rulers and individuals on preserving reputation, mastering self-control, and navigating complex relationships with prudence and integrity. Learn how to avoid the pitfalls of folly and build a lasting legacy through wise decisions in every aspect of life.
 weight: 10
 ---
 
-# Chapter 10
+# Ecclesiastes 10
 
 This chapter seems to be like Solomon's proverbs, a collection of wise sayings and observations, rather than a part of his sermon; but the preacher studied to be sententious, and "set in order many proverbs," to be brought in in his preaching. Yet the general scope of all the observations in this chapter is to recommend wisdom to us, and its precepts and rules, as of great use for the right ordering of our conversation and to caution us against folly. I. He recommends wisdom to private persons, who are in an inferior station. 1. It is our wisdom to preserve our reputation, in managing our affairs dexterously, Ec 10:1-3. 2. To be submissive to our superiors if at any time we have offended them, Ec 10:4. 3. To live quiet and peaceable lives, and not to meddle with those that are factious and seditious, and are endeavouring to disturb the government and the public repose, the folly and danger of which disloyal and turbulent practices he shows, Ec 10:8-11. 4. To govern our tongues well, Ec 10:12-15. 5. To be diligent in our business and provide well for our families, Ec 10:18-19. 6. Not to speak ill of our rulers, no, not in secret, Ec 10:20. II. He recommends wisdom to rulers; let them not think that, because their subjects must be quiet under them, therefore they may do what they please; no, but, 1. Let them be careful whom they prefer to places of trust and power, Ec 10:5-7. 2. Let them manage themselves discreetly, be generous and not childish, temperate and not luxurious, Ec 10:16,17. Happy the nation when princes and people make conscience of their duty according to these rules.
 

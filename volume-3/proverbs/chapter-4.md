@@ -1,8 +1,8 @@
 ---
-title: "Proverbs 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
-  When the things of God are to be taught precept must be upon precept, and line upon line, not only because the things themselves are of great worth and weight, but because men's mi...
+  Unlock the timeless wisdom of Proverbs 4 with this in-depth commentary on seeking true instruction and moral guidance. Discover practical biblical principles on how to acquire wisdom, maintain self-control, avoid wicked company, and walk the path of the just for a fulfilling life. Start building a life of integrity and spiritual growth today.
 weight: 4
 ---
 

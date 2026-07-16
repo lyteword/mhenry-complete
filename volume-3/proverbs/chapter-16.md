@@ -1,8 +1,8 @@
 ---
-title: "Proverbs 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
-  The Sovereignty of Divine Providence: The preparations of the heart in man, and the answer of the tongue, is from the LORD.
+  Discover the profound truth of Proverbs 16: The Sovereignty of Divine Providence teaches us that while we plan our ways, the ultimate outcome rests in God's hands. Learn how cultivating wisdom, practicing humility, and committing your works to the Lord leads to lasting peace, true understanding, and a life established by divine direction. Unlock the secrets to navigating life's challenges through faith and righteous living.
 weight: 16
 ---
 

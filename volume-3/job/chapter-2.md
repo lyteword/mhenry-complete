@@ -1,8 +1,8 @@
 ---
-title: "Job 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  We left Job honourably acquitted upon a fair trial between God and Satan concerning him. Satan had leave to touch, to touch and take, all he had, and was confident that he would th...
+  Explore Job Chapter 2 as a profound study of unwavering faith and endurance. Discover how Job maintains his integrity under intense affliction and the powerful role of true friendship in navigating life's toughest trials. This in-depth commentary reveals deep biblical truths about perseverance, divine providence, and surviving suffering.
 weight: 2
 ---
 

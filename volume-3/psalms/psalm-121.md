@@ -1,8 +1,8 @@
 ---
-title: "Psalm 121 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 121 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "121"
 description: >
-  Some call this the soldier's psalm, and think it was penned in the camp, when David was hazarding his life in the high places of the field, and thus trusted God to cover his head i...
+  Discover Psalm 121, a powerful song of confidence that assures believers that their help and protection come directly from the Lord. Learn how to place your trust in God as your constant keeper against all evil, danger, and affliction. This psalm offers profound spiritual assurance for every journey of life, ensuring safety from the sun and the darkness of night.
 weight: 121
 ---
 

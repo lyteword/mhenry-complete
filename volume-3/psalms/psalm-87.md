@@ -1,8 +1,8 @@
 ---
-title: "Psalm 87 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 87 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "87"
 description: >
-  The foregoing psalm was very plain and easy, but in this are things dark and hard to be understood. It is an encomium of Zion, as a type and figure of the gospel-church, to which w...
+  Discover the profound glory of Zion as a model for the gospel-church in Psalm 87. This commentary explores how the church is built on holy foundations and how its spiritual glory surpasses all earthly nations. Find deep encouragement on faith, hope, and the joy found in Christ's worship and the everlasting promises of God.
 weight: 87
 ---
 

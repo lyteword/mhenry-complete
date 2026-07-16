@@ -1,8 +1,8 @@
 ---
-title: "Psalm 85 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 85 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "85"
 description: >
-  Interpreters are generally of the opinion that this psalm was penned after the return of the Jews out of their captivity in Babylon, when they still remained under some tokens of G...
+  Discover the profound message of Psalm 85, a powerful commentary on deliverance, forgiveness, and divine hope. This text guides believers to thank God for past mercies while earnestly praying for continued mercy, grace, and salvation. Explore the promises of divine peace and righteousness awaiting those who turn to Him in times of trouble.
 weight: 85
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Psalm 132 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 132 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "132"
 description: >
-  It is probable that this psalm was penned by Solomon, to be sung at the dedication of the temple which he built according to the charge his father gave him, 1Ch 28:2-21, etc. Havin...
+  Explore the profound themes of Psalm 132, focusing on God's faithfulness to David's covenant and the establishment of the Church. Learn how this ancient text reveals the promise of Mount Zion and the eternal blessings awaiting believers in Christ.
 weight: 132
 ---
 

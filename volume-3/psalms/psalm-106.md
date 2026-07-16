@@ -1,8 +1,8 @@
 ---
-title: "Psalm 106 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 106 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "106"
 description: >
-  We must give glory to God by making confession, not only of his goodness but our own badness, which serve as foils to each other. Our badness makes his goodness appear the more ill...
+  Explore Psalm 106 to deeply reflect on the powerful contrast between God's enduring goodness and Israel's persistent rebellion and sin. This profound commentary examines the history of their provocations, from the Red Sea to idolatry, while highlighting God's astonishing mercy and unwavering covenant faithfulness. Discover a call to humility and repentance, reminding us that even in our failures, God's compassion and desire to restore us are eternal.
 weight: 106
 ---
 

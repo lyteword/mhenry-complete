@@ -1,8 +1,8 @@
 ---
-title: "Job 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
-  The history of Job begins here with an account, I. Of his great piety in general (Job 1:1), and in a particular instance, Job 1:5. II. Of his great prosperity, Job 1:2-4. III. Of t...
+  Explore the profound journey of Job in this in-depth commentary, delving into the clash between immense prosperity and devastating affliction. Discover deep theological insights into Job's unwavering piety, the trial orchestrated by Satan, and the ultimate demonstration of faith amidst unimaginable suffering. This essential study provides powerful lessons on integrity, divine providence, and enduring hope.
 weight: 1
 ---
 

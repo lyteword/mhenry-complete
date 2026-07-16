@@ -1,8 +1,8 @@
 ---
-title: "Psalm 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
-  It is probable that David penned this psalm when he was persecuted by Saul; some passages in it agree particularly to the narrow escapes he had, at Keilah (1Sa 23:13), then in the ...
+  Discover the powerful message of Psalm 31, a profound guide for finding unwavering trust in God when facing persecution and deep distress. This psalm offers essential prayers for deliverance, reminding believers that God is our strong rock and that our times are in His sovereign hand. Embrace His mercy, hold onto His hope, and find the courage to persevere through every trial.
 weight: 31
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Psalm 111 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 111 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "111"
 description: >
-  This and divers of the psalms that follow it seem to have been penned by David for the service of the church in their solemn feasts, and not upon any particular occasion. This is a...
+  Discover the profound praise found in Psalm 111, which celebrates the greatness, righteousness, and power of God's works. Learn how observing His glorious acts, His covenant faithfulness, and His compassion leads to eternal wisdom and lasting happiness. This commentary explores the enduring truth of God's mighty deeds and the path to reverence.
 weight: 111
 ---
 

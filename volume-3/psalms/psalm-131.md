@@ -1,8 +1,8 @@
 ---
-title: "Psalm 131 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 131 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "131"
 description: >
-  This psalm is David's profession of humility, humbly made, with thankfulness to God for his grace, and not in vain-glory. It is probable enough that (as most interpreters suggest) ...
+  Discover Psalm 131, David's profound declaration of humility and trust in God's grace. This powerful psalm teaches us to quiet our hearts, let go of worldly pride, and find true contentment by living as a child under God's care. Learn how to cultivate unwavering hope and peace by resting in the Lord for eternal salvation.
 weight: 131
 ---
 

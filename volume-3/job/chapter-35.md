@@ -1,8 +1,8 @@
 ---
-title: "Job 35 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 35 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "35"
 description: >
-  Job being still silent, Elihu follows his blow, and here, a third time, undertakes to show him that he had spoken amiss, and ought to recant. Three improper sayings he here charges...
+  Explore the profound theological insights of Job 35 through this commentary, examining Job's struggles with questioning divine justice and the cries of the oppressed. Discover how to overcome despair by understanding God's infinite wisdom and trusting in His providence, even during the darkest times.
 weight: 35
 ---
 

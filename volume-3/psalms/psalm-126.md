@@ -1,8 +1,8 @@
 ---
-title: "Psalm 126 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 126 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "126"
 description: >
-  It was with reference to some great and surprising deliverance of the people of God out of bondage and distress that this psalm was penned, most likely their return out of Babylon ...
+  Discover the profound message of Psalm 126, a timeless hymn celebrating divine deliverance and the joy of redemption. This scripture offers deep comfort, teaching that through faithful perseverance—sowing in tears—we will ultimately reap a harvest of joy and blessing. Explore how God turns captivity into triumph and transforms sorrow into everlasting hope.
 weight: 126
 ---
 

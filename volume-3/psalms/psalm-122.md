@@ -1,8 +1,8 @@
 ---
-title: "Psalm 122 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 122 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "122"
 description: >
-  This psalm seems to have been penned by David for the use of the people of Israel, when they came up to Jerusalem to worship at the three solemn feasts. It was in David's time that...
+  Discover the profound meaning of Psalm 122, which celebrates the joy of gathering in Jerusalem for worship and the unity of the people. This commentary explores how the psalm calls believers to foster community, seek peace, and pray for the prosperity of both the city and the wider Christian church. Dive deep into the themes of public worship, fellowship, and the love for the "Jerusalem that is from above."
 weight: 122
 ---
 

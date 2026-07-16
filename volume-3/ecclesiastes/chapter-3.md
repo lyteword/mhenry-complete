@@ -1,8 +1,12 @@
 ---
+title: "Ecclesiastes 3 | The Complete Matthew Henry Bible Commentary"
+linkTitle: "3"
+description: >
+  Discover Solomon's profound wisdom in Ecclesiastes on the mutability of life and the vanity of worldly pursuits. Learn how to find true purpose by accepting change, trusting in divine providence, and living cheerfully in the present moment. This chapter offers essential spiritual guidance on managing time and understanding life's ultimate meaning amidst life's constant shifts.
 weight: 3
 ---
 
-# Chapter 3
+# Ecclesiastes 3
 
 Solomon having shown the vanity of studies, pleasures, and business, and made it to appear that happiness is not to be found in the schools of the learned, nor in the gardens of Epicurus, nor upon the exchange, he proceeds, in this chapter, further to prove his doctrine, and the inference he had drawn from it, That therefore we should cheerfully content ourselves with, and make use of, what God has given us, by showing, I. The mutability of all human affairs, Ec 3:1-10. II. The immutability of the divine counsels concerning them and the unsearchableness of those counsels, Ec 3:11-15. III. The vanity of worldly honour and power, which are abused for the support of oppression and persecution if men be not governed by the fear of God in the use of them, Ec 3:16. For a check to proud oppressors, and to show them their vanity, he reminds them, 1. That they will be called to account for it in the other world, Ec 3:17. 2. That their condition, in reference to this world (for of that he speaks), is no better than that of the beasts, Ec 3:18-21. And therefore he concludes that it is our wisdom to make use of what power we have for our own comfort, and not to oppress others with it.
 

@@ -1,8 +1,8 @@
 ---
-title: "Psalm 141 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 141 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "141"
 description: >
-  David was in distress when he penned this psalm, pursued, it is most likely, by Saul, that violent man. Is any distressed? Let him pray; David did so, and had the comfort of it. I....
+  Discover the profound wisdom of Psalm 141, David's heartfelt prayer for God's mercy, guidance, and deliverance. Explore timeless insights on fervent prayer, guarding your heart against sin, and finding unwavering trust in God when facing distress and persecution. Use this commentary to deepen your faith and learn how to seek divine help in every trial.
 weight: 141
 ---
 

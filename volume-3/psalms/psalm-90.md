@@ -1,8 +1,8 @@
 ---
-title: "Psalm 90 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 90 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "90"
 description: >
-  The foregoing psalm is supposed to have been penned as late as the captivity in Babylon; this, it is plain, was penned as early as the deliverance out of Egypt, and yet they are pu...
+  Explore Psalm 90, a profound prayer by Moses that confronts the frailty of human life against the backdrop of God's eternal existence. This powerful reflection encourages believers to acknowledge mortality, confess their sins, and earnestly pray for divine mercy, wisdom, and joy in God's favor throughout their transient days. Discover a timeless meditation on seeking God's enduring grace.
 weight: 90
 ---
 

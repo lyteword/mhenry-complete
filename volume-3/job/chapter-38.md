@@ -1,8 +1,8 @@
 ---
-title: "Job 38 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 38 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "38"
 description: >
-  In most disputes the strife is who shall have the last word. Job's friends had, in this controversy, tamely yielded it to Job, and then he to Elihu. But, after all the wranglings o...
+  Dive deep into Job Chapter 38 and explore the staggering scope of God's creative power—from the foundations of the earth and the depths of the sea to the movements of the stars. This powerful biblical commentary reveals the limits of human understanding and calls for profound humility before the ultimate divine sovereignty.
 weight: 38
 ---
 

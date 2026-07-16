@@ -1,8 +1,8 @@
 ---
-title: "Job 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
-  Poor Job's wound's were yet bleeding, his sore still runs and ceases not, but none of his friends bring him any oil, any balm; Zophar, the third, pours into them as much vinegar as...
+  Dive deep into Job Chapter 11 with this expert commentary, exploring the profound theological themes of God's unwavering wisdom, human vanity, and the power of repentance. Discover practical spiritual guidance on how to prepare your heart, find true hope in affliction, and achieve lasting peace by aligning your life with divine justice. This study offers essential insights into enduring faith and overcoming life's trials.
 weight: 11
 ---
 

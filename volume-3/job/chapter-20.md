@@ -1,8 +1,8 @@
 ---
-title: "Job 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
-  One would have thought that such an excellent confession of faith as Job made, in the close of the foregoing chapter, would satisfy his friends, or at least mollify them; but they ...
+  Explore Job 20 through this in-depth commentary to uncover the devastating consequences awaiting wicked people and hypocrites. This powerful text details the inevitable ruin—from internal spiritual torment and loss of wealth to ultimate divine wrath—serving as a profound moral warning. Discover the biblical truth about the inescapable judgment that awaits those who oppress others.
 weight: 20
 ---
 

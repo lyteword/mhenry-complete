@@ -1,8 +1,12 @@
 ---
+title: "Ecclesiastes 11 | The Complete Matthew Henry Bible Commentary"
+linkTitle: "11"
+description: >
+  Explore the profound wisdom of Ecclesiastes Chapter 11, which offers a powerful dual lesson: embrace radical generosity by casting your bread upon the waters and trusting in divine providence, while simultaneously preparing for mortality by recognizing the vanity of worldly life. This chapter provides essential biblical guidance on how to live justly, be merciful to the poor, and cultivate early piety to ensure a meaningful life and a favorable judgment.
 weight: 11
 ---
 
-# Chapter 11
+# Ecclesiastes 11
 
 In this chapter we have, I. A pressing exhortation to works of charity and bounty to the poor, as the best cure of the vanity which our worldly riches are subject to and the only way of making them turn to a substantial good account, Ec 11:1-6. II. A serious admonition to prepare for death and judgment, and to begin betimes, even in the days of our youth, to do so, Ec 11:7-10.
 

@@ -1,8 +1,8 @@
 ---
-title: "Psalm 67 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 67 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "67"
 description: >
-  This psalm relates to the church and is calculated for the public. Here is, I. A prayer for the prosperity of the church of Israel, Ps 67:1. II. A prayer for the conversion of the ...
+  Discover the profound vision of Psalm 67, a powerful prayer for the prosperity and universal conversion of the Church. This psalm vividly describes a glorious future where Jews and Gentiles unite in praise, leading to God's blessing upon the entire earth. Explore how this text calls us to seek universal salvation and witness the triumph of God's kingdom.
 weight: 67
 ---
 

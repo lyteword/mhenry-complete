@@ -1,8 +1,8 @@
 ---
-title: "Psalm 97 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 97 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "97"
 description: >
-  This psalm dwells upon the same subject, and is set to the same tune, with the foregoing psalm. Christ is the Alpha and the Omega of both; they are both penned, and are both to be ...
+  Discover the profound truth of Psalm 97, celebrating the supreme sovereignty and undeniable righteousness of God. This powerful psalm assures believers of Christ's unstoppable reign, His mighty judgment over enemies, and the ultimate protection and joy awaiting the righteous. Embrace the glory of the divine government and find lasting hope in God's unwavering preservation.
 weight: 97
 ---
 

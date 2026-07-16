@@ -1,8 +1,8 @@
 ---
-title: "Psalm 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
-  This psalm is a solemn meditation on, and admiration of, the glory and greatness of God, of which we are all concerned to think highly and honourably. It begins and ends with the s...
+  Explore Psalm 8 for a profound meditation on the glory and greatness of God and His magnificent creation. This powerful text explores God's divine dominion over all things and highlights the ultimate honor bestowed upon Jesus Christ, the Son of Man, as He is crowned with glory and authority. Discover the deep theological truth about divine condescension and how the Gospel reveals God's power in the world.
 weight: 8
 ---
 

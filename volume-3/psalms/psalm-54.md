@@ -1,8 +1,8 @@
 ---
-title: "Psalm 54 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 54 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "54"
 description: >
-  The key of this psalm hangs at the door, for the title tells us upon what occasion it was penned—when the inhabitants of Ziph, men of Judah (types of Judas the traitor), betrayed D...
+  Seeking comfort in times of distress? Psalm 54 reveals David's powerful prayer against oppressors and the assurance of divine protection. Learn how to find strength, trust in God's faithfulness, and experience ultimate deliverance when you set God before your enemies.
 weight: 54
 ---
 

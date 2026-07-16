@@ -1,8 +1,8 @@
 ---
-title: "Psalm 95 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 95 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "95"
 description: >
-  For the expounding of this psalm we may borrow a great deal of light from the apostle's discourse, Heb 3:1-4:16, where it appears both to have been penned by David and to have been...
+  Discover the powerful message of Psalm 95, an invitation to joyful worship and thanksgiving to the Great God. This commentary explores the importance of praising Him as King and Creator, while urgently warning believers against a hardened heart and unbelief, urging us to heed God's voice for spiritual rest.
 weight: 95
 ---
 

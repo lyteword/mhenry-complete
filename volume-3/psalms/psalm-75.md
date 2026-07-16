@@ -1,8 +1,8 @@
 ---
-title: "Psalm 75 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 75 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "75"
 description: >
-  Though this psalm is attributed to Asaph in the title, yet it does so exactly agree with David's circumstances, at his coming to the crown after the death of Saul, that most interp...
+  Delve into Psalm 75 to explore the profound themes of God's absolute sovereignty, the proper use of power, and the true source of all earthly promotion. This in-depth biblical commentary examines David's thanksgiving, the duty of righteous judgment, and the inescapable divine judgment awaiting the wicked.
 weight: 75
 ---
 

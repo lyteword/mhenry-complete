@@ -1,8 +1,8 @@
 ---
-title: "Job 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
-  In this chapter Bildad makes a second assault upon Job. In his first discourse (Job 8:1-22) he had given him encouragement to hope that all should yet be well with him. But here th...
+  Explore Job Chapter 18 through this in-depth commentary where Bildad powerfully describes the inevitable destruction awaiting the wicked. Discover profound biblical insights into the consequences of sin, the loss of life, and the terrifying reality of divine judgment. This commentary offers deep wisdom on suffering and the true condition of those who know not God.
 weight: 18
 ---
 

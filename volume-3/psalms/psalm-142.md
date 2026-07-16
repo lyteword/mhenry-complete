@@ -1,8 +1,8 @@
 ---
-title: "Psalm 142 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 142 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "142"
 description: >
-  This psalm is a prayer, the substance of which David offered up to God when he was forced by Saul to take shelter in a cave, and which he afterwards penned in this form. Here is, I...
+  Discover Psalm 142, a profound prayer of distress where David cries out to God for help from enemies and isolation. Explore how this psalm teaches believers to find ultimate refuge and assurance in God's constant love, even when facing overwhelming trials and persecution. This powerful text is a guide for finding comfort and praising God for divine deliverance.
 weight: 142
 ---
 

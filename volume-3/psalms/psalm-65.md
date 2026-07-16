@@ -1,8 +1,8 @@
 ---
-title: "Psalm 65 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 65 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "65"
 description: >
-  In this psalm we are directed to give to God the glory of his power and goodness, which appear, I. In the kingdom of grace (Ps 65:1), hearing prayer (Ps 65:2), pardoning sin (Ps 65...
+  Explore Psalm 65 to discover the profound power and goodness of God revealed in His creation. This scripture guides us to offer praise, trust in His mercy to pardon sin, and marvel at His sovereign providence over the mountains, seas, and the fruitful earth. Deepen your faith by meditating on these blessings and experiencing the comfort of God's unwavering care.
 weight: 65
 ---
 

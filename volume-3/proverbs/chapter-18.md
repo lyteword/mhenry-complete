@@ -1,8 +1,8 @@
 ---
-title: "Proverbs 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
-  Wisdom and Folly: Through desire a man, having separated himself, seeketh *and* intermeddleth with all wisdom.
+  Uncover the timeless wisdom of Proverbs Chapter 18, exploring the profound contrast between worldly folly and true wisdom. Discover essential biblical guidance on controlling your speech, overcoming pride, and building meaningful relationships. Learn how to seek genuine knowledge and find lasting security in God's strength.
 weight: 18
 ---
 

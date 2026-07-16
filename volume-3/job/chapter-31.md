@@ -1,8 +1,8 @@
 ---
-title: "Job 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
-  Job had often protested his integrity in general; here he does it in particular instances, not in a way of commendation (for he does not here proclaim his good deeds), but in his o...
+  Discover the profound self-vindication of Job in Chapter 31 through this detailed biblical commentary. Explore a timeless model of biblical integrity, showcasing how Job maintained purity, honesty in business, and deep compassion for the poor amidst intense accusations. Learn enduring lessons on piety, the dangers of greed, and the ultimate assurance of standing firm on righteous principles.
 weight: 31
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Psalm 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
-  It is supposed that David penned this psalm in Saul's reign, when there was a general decay of honesty and piety both in court and country, which he here complains of to God, and v...
+  Explore Psalm 12, a powerful psalm of lament that addresses the decay of honesty, flattery, and societal injustice. Discover how this scripture offers comfort by reminding us of God's ultimate faithfulness, His promise to uplift the oppressed, and the enduring purity of His Word amidst wicked times. Find hope and strength in this timeless prayer for divine intervention.
 weight: 12
 ---
 

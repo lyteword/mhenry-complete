@@ -1,8 +1,8 @@
 ---
-title: "Psalm 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
-  This psalm is full of devout affection to God, the out-goings of holy desires towards his favour and grace and the lively actings of faith in his promises. We may learn out of it, ...
+  Discover the profound truths of Psalm 25, a guide to earnest prayer focused on seeking God's mercy, divine direction, and forgiveness. Learn how to build unshakable faith, trust in God's promises, and find deliverance from troubles and enemies through sincere repentance. This psalm offers deep spiritual comfort and practical guidance for a life lived in devotion to the Lord.
 weight: 25
 ---
 

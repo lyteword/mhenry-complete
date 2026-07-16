@@ -1,8 +1,8 @@
 ---
-title: "Psalm 123 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 123 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "123"
 description: >
-  This psalm was penned at a time when the church of God was brought low and trampled upon; some think it was when the Jews were captives in Babylon, though that was not the only tim...
+  Discover Psalm 123, a profound meditation on seeking divine mercy when facing persecution and worldly scorn. This powerful psalm encourages believers to lift their eyes to God in times of contempt, offering deep spiritual comfort and assurance that His sovereign grace is the ultimate refuge. Find hope and strength in this prayer for protection and unwavering faith.
 weight: 123
 ---
 

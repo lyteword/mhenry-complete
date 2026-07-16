@@ -1,8 +1,8 @@
 ---
-title: "Psalm 116 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 116 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "116"
 description: >
-  This is a thanksgiving psalm; it is not certain whether David penned it upon any particular occasion or upon a general review of the many gracious deliverances God had wrought for ...
+  Discover the powerful message of Psalm 116, a profound thanksgiving psalm detailing David's deliverance from severe distress. Explore themes of God's unwavering mercy, the power of prayer, and the commitment to lifelong devotion. Learn how to express genuine gratitude and walk in faith through every season of life.
 weight: 116
 ---
 

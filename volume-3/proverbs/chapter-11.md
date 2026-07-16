@@ -1,8 +1,8 @@
 ---
-title: "Proverbs 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
-  Weighty Sayings: A false balance is abomination to the LORD: but a just weight is his delight.
+  Unlock the timeless wisdom of Proverbs 11 and discover the core principles of a flourishing life. This chapter reveals how integrity, humility, and generosity serve as the surest path to success, guiding you away from the pitfalls of deceit, pride, and malice. Learn how righteousness delivers you from ruin and how a wise heart leads to lasting reward.
 weight: 11
 ---
 

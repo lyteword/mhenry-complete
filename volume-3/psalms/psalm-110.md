@@ -1,8 +1,8 @@
 ---
-title: "Psalm 110 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 110 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "110"
 description: >
-  This psalm is pure gospel; it is only, and wholly, concerning Christ, the Messiah promised to the fathers and expected by them. It is plain that the Jews of old, even the worst of ...
+  Discover the profound gospel of Psalm 110, revealing Christ's identity as the Messiah—King, Prophet, and Priest. Explore the divine dominion of the Lord as He conquers enemies and establishes His eternal kingdom. Embrace the truth of this psalm to find ultimate salvation and reign in Christ.
 weight: 110
 ---
 

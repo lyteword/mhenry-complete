@@ -1,8 +1,8 @@
 ---
-title: "Psalm 145 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 145 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "145"
 description: >
-  The five foregoing psalms were all of a piece, all full of prayers; this, and the five that follow it to the end of the book, are all of a piece too, all full of praises; and thoug...
+  Discover the profound truths of Psalm 145 through this commentary, exploring God's unsearchable greatness, boundless goodness, and the everlasting nature of His kingdom. Learn how to offer constant praise and experience His mighty works and tender mercy in every aspect of life. Dive deep into this scripture to find inspiration for worship and eternal hope.
 weight: 145
 ---
 

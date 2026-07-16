@@ -1,8 +1,8 @@
 ---
-title: "Proverbs 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Proverbs 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
-  Hitherto we have been in the porch or preface to the proverbs, here they begin. They are short but weighty sentences; most of them are distichs, two sentences in one verse, illustr...
+  Discover the profound wisdom of Proverbs 10, where Solomon teaches essential lessons on the power of the tongue, the necessity of diligence, and the difference between righteous living and wicked pursuits. Learn how cultivating integrity and speaking wisely can lead to lasting blessings, while folly and sloth lead to ruin. Unlock the secrets to spiritual wealth and an everlasting foundation.
 weight: 10
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Psalm 86 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 86 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "86"
 description: >
-  This psalm is entitled "a prayer of David;" probably it was not penned upon any particular occasion, but was a prayer he often used himself, and recommended to others for their use...
+  Discover Psalm 86, a profound prayer of David filled with humble petitions for mercy, grace, and divine protection. Explore how this psalm teaches us to lift our souls to God, trust in His unfailing goodness, and offer eternal praise for His boundless compassion. This is a guide to fervent prayer and deep dependence on God.
 weight: 86
 ---
 

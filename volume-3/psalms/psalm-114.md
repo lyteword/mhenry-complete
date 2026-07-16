@@ -1,8 +1,8 @@
 ---
-title: "Psalm 114 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 114 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "114"
 description: >
-  The deliverance of Israel out of Egypt gave birth to their church and nation, which were then founded, then formed; that work of wonder ought therefore to be had in everlasting rem...
+  Celebrate the incredible deliverance of Israel from Egypt in Psalm 114, a powerful testament to God's awe-inspiring power and mercy. This psalm recounts the miraculous parting of the Red Sea and the provision of water from the rock, serving as a profound reminder of God's faithfulness. Discover how this ancient story applies directly to our personal redemption through Christ and how to find unwavering trust in God during life's greatest challenges.
 weight: 114
 ---
 

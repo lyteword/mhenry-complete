@@ -1,8 +1,8 @@
 ---
-title: "Job 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
-  This is Job's short reply to Bildad's short discourse, in which he is so far from contradicting him that he confirms what he had said, and out-does him in magnifying God and settin...
+  Explore Job 26 in this in-depth commentary to uncover Job's powerful response to his friend and the boundless nature of God's majesty. Discover profound theological insights into divine omnipotence, witnessing God's power in creation, the control of the seas, and the glory of the heavens. Understand the immense depth of divine wisdom that remains beyond human comprehension.
 weight: 26
 ---
 

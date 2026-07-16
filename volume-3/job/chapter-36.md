@@ -1,8 +1,8 @@
 ---
-title: "Job 36 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 36 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "36"
 description: >
-  Elihu, having largely reproved Job for some of his unadvised speeches, which Job had nothing to say in the vindication of, here comes more generally to set him to rights in his not...
+  Explore the profound theological depth of Job 36 through this detailed biblical commentary. Discover Elihu's powerful arguments on God's supreme sovereignty, divine providence, and the intricate workings of His justice, showing how affliction serves to reveal truth and lead humanity toward righteous submission. Uncover insights into the majesty of God's creation, from the clouds to the rain, and learn why acknowledging His infinite wisdom is the key to navigating life's trials.
 weight: 36
 ---
 

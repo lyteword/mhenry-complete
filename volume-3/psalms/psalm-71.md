@@ -1,8 +1,8 @@
 ---
-title: "Psalm 71 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 71 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "71"
 description: >
-  David penned this psalm in his old age, as appears by several passages in it, which makes many think that it was penned at the time of Absalom's rebellion; for that was the great t...
+  Discover the profound message of Psalm 71, where David expresses his unwavering confidence and trust in God throughout his life. This powerful psalm offers spiritual comfort, teaching believers to find refuge in God's strength, hope in old age, and perpetual praise for His righteousness and salvation. Learn how to maintain steadfast faith when facing life's greatest troubles.
 weight: 71
 ---
 

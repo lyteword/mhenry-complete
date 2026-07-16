@@ -1,8 +1,8 @@
 ---
-title: "Psalm 60 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 60 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "60"
 description: >
-  After many psalms which David penned in a day of distress this comes which was calculated for a day of triumph; it was penned after he was settled in the throne, upon occasion of a...
+  Explore Psalm 60, a powerful commentary on the journey from distress to triumph. Discover how David balances lament and joy, learns to trust God's promises, and finds victory through unwavering faith in His power. This psalm is a guide for finding hope and deliverance in every struggle.
 weight: 60
 ---
 

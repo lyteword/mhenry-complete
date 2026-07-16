@@ -1,8 +1,8 @@
 ---
-title: "Psalm 70 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 70 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "70"
 description: >
-  This psalm is adapted to a state of affliction; it is copied almost word for word from the fortieth, and, some think for that reason, is entitled, "a psalm to bring to remembrance;...
+  Discover Psalm 70, a powerful prayer of urgent supplication for immediate deliverance from affliction. This text guides you in petitioning God for swift help, seeking to shame enemies, and finding enduring joy and salvation through steadfast faith. Use this psalm to turn your troubles into praise and experience God's mighty help.
 weight: 70
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Psalm 52 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 52 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "52"
 description: >
-  David, no doubt, was in very great grief when he said to Abiathar (1Sa 22:22), "I have occasioned the death of all the persons of thy father's house," who were put to death upon Do...
+  Explore Psalm 52, where David confronts the destructive nature of lies and wickedness exemplified by Doeg. This powerful psalm serves as a warning against deceit while offering profound comfort through the assurance of God's everlasting mercy and the call for believers to trust and wait upon His name.
 weight: 52
 ---
 

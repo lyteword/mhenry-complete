@@ -1,8 +1,8 @@
 ---
-title: "Psalm 101 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Psalm 101 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "101"
 description: >
-  David was certainly the penman of this psalm, and it has in it the genuine spirit of the man after God's own heart; it is a solemn vow which he made to God when he took upon him th...
+  Discover the profound wisdom of Psalm 101, a solemn vow from David outlining the principles of mercy, justice, and righteous living. This passage offers timeless guidance on maintaining personal integrity, governing with wisdom, and zealously purging wickedness from both the family and the nation. Explore David's model for virtue, piety, and the pursuit of a perfect life.
 weight: 101
 ---
 

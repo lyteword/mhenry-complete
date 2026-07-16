@@ -1,8 +1,8 @@
 ---
-title: "Job 37 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Job 37 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "37"
 description: >
-  Elihu here goes on to extol the wonderful power of God in the meteors and all the changes of the weather: if, in those changes, we submit to the will of God, take the weather as it...
+  Dive deep into the Job 37 commentary to understand the terrifying majesty of God revealed in the storms and weather. This study explores divine providence, challenging you to contemplate God's omniscient power and recognize our place as humble servants.
 weight: 37
 ---
 

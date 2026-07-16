@@ -1,8 +1,12 @@
 ---
+title: "Ecclesiastes 1 | The Complete Matthew Henry Bible Commentary"
+linkTitle: "1"
+description: >
+  Discover the profound truth of Ecclesiastes: why all worldly pursuits, material wealth, and the endless search for human knowledge are ultimately vanity. This chapter explores the futility of labor, the fleeting nature of life, and the unsatisfying nature of earthly satisfaction. Learn how to shift your focus from temporary achievements to the enduring wisdom found in spiritual life.
 weight: 1
 ---
 
-# Chapter 1
+# Ecclesiastes 1
 
 In this chapter we have, I. The inscription, or title of the book, Ec 1:1. II. The general doctrine of the vanity of the creature laid down (Ec 1:2) and explained, Ec 1:3. III. The proof of this doctrine, taken, 1. From the shortness of human life and the multitude of births and burials in this life, Ec 1:4. 2. From the inconstant nature, and constant revolutions, of all the creatures, and the perpetual flux and reflux they are in, the sun, wind, and water, Ec 1:5-7. 3. From the abundant toil man has about them and the little satisfaction he has in them, Ec 1:8. 4. From the return of the same things again, which shows the end of all perfection, and that the stock is exhausted, Ec 1:9,10. 5. From the oblivion to which all things are condemned, Ec 1:11. IV. The first instance of the vanity of man's knowledge, and all the parts of learning, especially natural philosophy and politics. Observe, 1. The trial Solomon made of these, Ec 1:12,13,16,17. 2. His judgment of them, that all is vanity, Ec 1:14. For, (1.) There is labour in getting knowledge, Ec 1:13. (2.) There is little good to be done with it, Ec 1:15. (3.) There is no satisfaction in it, Ec 1:18. And, if this is vanity and vexation, all other things in this world, being much inferior to it in dignity and worth, must needs be so too. A great scholar cannot be happy unless he be a true saint.
 

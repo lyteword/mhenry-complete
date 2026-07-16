@@ -1,8 +1,8 @@
 ---
-title: "Song Of Solomon 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Song Of Solomon 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  In this chapter, I. The daughters of Jerusalem, moved with the description which the church had given of Christ, enquire after him, So 6:1. II. The church directs them where they m...
+  Discover the profound spiritual meaning of Song of Solomon Chapter 6. This commentary explores how the daughters of Jerusalem's quest for Christ leads to a deeper understanding of covenant love and the beauty of the Christian life. Learn how believers find their ultimate peace and strength by recognizing the church as the "heavenly Jerusalem"—a beautiful, powerful army of faith. Optimize your spiritual journey and explore the passionate devotion of Christ to His people.
 weight: 6
 ---
 
