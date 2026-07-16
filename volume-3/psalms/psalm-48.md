@@ -2,7 +2,7 @@
 title: "Psalm 48 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "48"
 description: >
-  This psalm, as the two former, is a triumphant song; some think it was penned on occasion of Jehoshaphat's victory (2Ch 20:1-30), others of Sennacherib's defeat, when his army laid...
+  Discover the triumphant power of Psalm 48, a powerful hymn celebrating Jerusalem as the 'city of God' and Mount Zion as a refuge. Explore how this psalm reveals God's unwavering protection, divine guidance, and the eternal hope for the Gospel Church, encouraging believers to stand firm against all challenges.
 weight: 48
 ---
 
