@@ -2,7 +2,7 @@
 title: "Psalm 147 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "147"
 description: >
-  This is another psalm of praise. Some think it was penned after the return of the Jews from their captivity; but it is so much of a piece with Ps 145:1-21 that I rather think it wa...
+  Discover the profound message of Psalm 147, a powerful call to praise the Lord for His immense power over nature, His mercy toward the brokenhearted, and His faithful blessings upon His people. Explore how God builds Jerusalem, controls the weather, and extends His grace and divine law to those who trust in Him. This psalm is a celebration of God's sovereignty and His unending goodness.
 weight: 147
 ---
 
