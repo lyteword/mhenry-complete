@@ -2,7 +2,7 @@
 title: "Psalm 49 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "49"
 description: >
-  This psalm is a sermon, and so is the next. In most of the psalms we have the penman praying or praising; in these we have him preaching; and it is our duty, in singing psalms, to ...
+  Discover the powerful message of Psalm 49, a profound sermon that confronts the vanity of worldly riches and temporary glory. This passage challenges readers to abandon the folly of trusting in earthly wealth for salvation and instead pursue true spiritual redemption and eternal life. Learn why earthly honor is fleeting and find lasting comfort in the hope of the righteous.
 weight: 49
 ---
 
