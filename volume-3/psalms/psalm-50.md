@@ -2,7 +2,7 @@
 title: "Psalm 50 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "50"
 description: >
-  This psalm, as the former, is a psalm of instruction, not of prayer or praise; it is a psalm of reproof and admonition, in singing which we are to teach and admonish one another. I...
+  Explore Psalm 50, a profound psalm of reproof urging believers to move beyond ritualistic sacrifices and embrace genuine spiritual worship. This text powerfully contrasts superficial piety with the necessity of heartfelt repentance, fervent prayer, and a true covenant relationship with God. Discover the warning against hypocrisy and learn how to order your life for ultimate salvation and God's unwavering judgment.
 weight: 50
 ---
 
