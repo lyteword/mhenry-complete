@@ -2,7 +2,7 @@
 title: "Psalm 120 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "120"
 description: >
-  This psalm is the first of those fifteen which are here put together under the title of "songs of degrees." It is well that it is not material what the meaning of that title should...
+  Discover the profound comfort of Psalm 120, a powerful meditation on seeking deliverance from deceitful tongues and malicious enemies. This psalm offers deep insight into how fervent prayer can bring divine protection against false accusations and the wrath of liars. Learn how to find peace and strength when facing hostility by trusting in God's unwavering defense and wisdom.
 weight: 120
 ---
 
