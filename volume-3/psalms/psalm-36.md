@@ -2,7 +2,7 @@
 title: "Psalm 36 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "36"
 description: >
-  It is uncertain when, and upon what occasion, David penned this psalm, probably when he was struck at either by Saul or by Absalom; for in it he complains of the malice of his enem...
+  Discover the profound contrast between the malice of sin and the unwavering goodness of God in Psalm 36. This commentary explores the root of wickedness and reveals the transcendent mercy, faithfulness, and righteousness of the Lord, offering deep spiritual comfort to those who trust in Him. Learn how to find lasting satisfaction and eternal joy by resting under the shadow of God's wings and embracing the light of divine truth.
 weight: 36
 ---
 
