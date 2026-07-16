@@ -2,7 +2,7 @@
 title: "Proverbs 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
 description: >
-  Miscellaneous Maxims: The king's heart is in the hand of the LORD, as the rivers of water: he turneth it whithersoever he will.
+  Discover profound wisdom from Proverbs Chapter 21, exploring the difference between the diligent and the hasty, and the true path to a fulfilling life. This commentary delves into the principles of justice, the dangers of pride and greed, and how true righteousness and mercy lead to life and honour. Learn how to apply God's providence to navigate challenges and secure everlasting success.
 weight: 21
 ---
 
