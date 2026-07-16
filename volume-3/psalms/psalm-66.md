@@ -2,7 +2,7 @@
 title: "Psalm 66 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "66"
 description: >
-  This is a thanksgiving-psalm, and it is of such a general use and application that we need not suppose it penned upon any particular occasion. All people are here called upon to pr...
+  Discover Psalm 66, a profound thanksgiving psalm calling all nations to praise God for His sovereign power and incredible works in creation. Explore themes of divine deliverance from trials, the profound comfort of His mercy, and the importance of sincere prayer. This scripture inspires a heart of gratitude and a call to worship in every aspect of life.
 weight: 66
 ---
 
