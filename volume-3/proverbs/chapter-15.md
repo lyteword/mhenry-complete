@@ -2,7 +2,7 @@
 title: "Proverbs 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
 description: >
-  The Proper Use of the Tongue: A soft answer turneth away wrath: but grievous words stir up anger.
+  Discover the profound wisdom of Proverbs 15, exploring the critical relationship between your words and your destiny. This chapter offers powerful guidance on using soft speech to turn away wrath, distinguishing between the folly of fools and the wisdom of the righteous, and understanding how the fear of the Lord guides a life of true contentment and eternal peace. Learn how to cultivate a wise heart and speak words that lead to blessing and lasting prosperity.
 weight: 15
 ---
 
