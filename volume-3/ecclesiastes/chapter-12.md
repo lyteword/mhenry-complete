@@ -1,8 +1,12 @@
 ---
+title: "Ecclesiastes 12 | Read the Complete Matthew Henry Bible Commentary Online"
+linkTitle: "12"
+description: >
+  Discover the timeless wisdom of Chapter 12, an essential guide to navigating life's challenges by prioritizing true religion and fearing God. This profound text explores the vanity of the world, the infirmities of old age, and the certainty of death, urging you to remember your Creator and fulfill your spiritual duty now. Learn how to find true happiness and prepare for eternal judgment by grounding your life in scripture and unwavering devotion.
 weight: 12
 ---
 
-  Discover the timeless wisdom of Chapter 12, an essential guide to navigating life's challenges by prioritizing true religion and fearing God. This profound text explores the vanity of the world, the infirmities of old age, and the certainty of death, urging you to remember your Creator and fulfill your spiritual duty now. Learn how to find true happiness and prepare for eternal judgment by grounding your life in scripture and unwavering devotion.
+# Ecclesiastes 12
 
 The wise and penitent preacher is here closing his sermon; and he closes it, not only lie a good orator, but like a good preacher, with that which was likely to make the best impressions and which he wished might be powerful and lasting upon his hearers. Here is, I. An exhortation to young people to begin betimes to be religious and not to put it off to old age (Ec 12:1), enforced with arguments taken from the calamities of old age (Ec 12:1-5) and the great change that death will make upon us, Ec 12:6,7. II. A repetition of the great truth he had undertaken to prove in this discourse, the vanity of the world, Ec 12:8. III. A confirmation and recommendation of what he had written in this and his other books, as worthy to be duly weighed and considered, Ec 12:9. IV. The whole matter summed up and concluded, with a charge to all to be truly religious, in consideration of the judgment to come, Ec 12:13,14.
 
