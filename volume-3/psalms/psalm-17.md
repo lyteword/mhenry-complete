@@ -2,7 +2,7 @@
 title: "Psalm 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
 description: >
-  David being in great distress and danger by the malice of his enemies, does, in this psalm, by prayer address himself to God, his tried refuge, and seeks shelter in him. I. He appe...
+  Discover the powerful prayer of David in Psalm 17, a timeless guide to seeking God's protection and justice when facing enemies. This scripture explores the depth of sincere prayer, the proof of God's unwavering integrity through trials, and the ultimate source of true, eternal satisfaction found only in His presence. Learn how to turn distress into faith and find hope in God's marvelous loving-kindness.
 weight: 17
 ---
 
