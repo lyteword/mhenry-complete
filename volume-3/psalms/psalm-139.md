@@ -2,7 +2,7 @@
 title: "Psalm 139 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "139"
 description: >
-  Some of the Jewish doctors are of opinion that this is the most excellent of all the psalms of David; and a very pious devout meditation it is upon the doctrine of God's omniscienc...
+  Explore Psalm 139 to discover the breathtaking truth of God's omniscience. Learn how the Lord knows every thought, path, and action, offering profound encouragement for personal reflection and seeking holiness. This powerful meditation reveals the depth of divine love and guides you toward the everlasting way.
 weight: 139
 ---
 
