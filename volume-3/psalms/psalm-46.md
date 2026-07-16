@@ -2,7 +2,7 @@
 title: "Psalm 46 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "46"
 description: >
-  This psalm encourages us to hope and trust in God, and his power, and providence, and gracious presence with his church in the worst of times, and directs us to give him the glory ...
+  Discover the profound hope and unshakable trust found in Psalm 46. This powerful scripture assures believers that God is our ultimate refuge and strength, providing divine protection and comfort even when facing the worst storms and worldly turmoil. Find deep spiritual assurance and conquer fear by resting in the unwavering power and gracious presence of the Lord.
 weight: 46
 ---
 
