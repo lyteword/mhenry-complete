@@ -2,7 +2,7 @@
 title: "Psalm 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
 description: >
-  This psalm is concerning the kingdom of Jesus Christ, I. His providential kingdom, by which he rules the world, Ps 24:1,2. II. The kingdom of his grace, by which he rules in his ch...
+  Explore Psalm 24, a profound meditation on God's absolute sovereignty over creation and the path to His Kingdom. Discover the biblical call to purity—clean hands and a pure heart—and learn how to seek the face of God to receive His blessing. This commentary reveals how Christ, the King of Glory, offers the ultimate entrance into His eternal reign.
 weight: 24
 ---
 
