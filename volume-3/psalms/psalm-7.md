@@ -2,7 +2,7 @@
 title: "Psalm 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
 description: >
-  It appears by the title that this psalm was penned with a particular reference to the malicious imputations that David was unjustly laid under by some of his enemies. Being thus wr...
+  Discover Psalm 7, a powerful prayer by David against his enemies. This commentary explores how David trusts in God's protection when facing persecution and appeals for divine justice against those who unjustly harm the innocent. Learn about the themes of faith, deliverance, and the certain judgment of God for the wicked.
 weight: 7
 ---
 
