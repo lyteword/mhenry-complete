@@ -2,7 +2,7 @@
 title: "Psalm 119 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "119"
 description: >
-  This is a psalm by itself, like none of the rest; it excels them all, and shines brightest in this constellation. It is much longer than any of them more than twice as long as any ...
+  Explore the profound wisdom of Psalm 119 through this detailed commentary on the Law of God. Discover how diligent meditation on Scripture provides guidance, purifies the heart, and leads to true blessedness and spiritual growth. Unlock the secrets of keeping God's word and finding deep understanding in His divine precepts.
 weight: 119
 ---
 
