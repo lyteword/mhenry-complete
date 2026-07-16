@@ -2,7 +2,7 @@
 title: "Psalm 127 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "127"
 description: >
-  This is a family-psalm, as divers before were state-poems and church-poems. It is entitled (as we read it) "for Solomon," dedicated to him by his father. He having a house to build...
+  Discover the profound wisdom of Psalm 127, a powerful family psalm urging believers to shift their focus from worldly ambition to dependence on God's providence. This passage emphasizes that true success in building a home, securing wealth, and raising a family is only possible when we look up to God for direction and blessing. Learn how to cultivate true peace and prosperity by trusting in divine care rather than relying solely on human effort.
 weight: 127
 ---
 
