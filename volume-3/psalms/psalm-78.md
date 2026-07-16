@@ -2,7 +2,7 @@
 title: "Psalm 78 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "78"
 description: >
-  This psalm is historical; it is a narrative of the great mercies God had bestowed upon Israel, the great sins wherewith they had provoked him, and the many tokens of his displeasur...
+  Explore Psalm 78, a profound historical narrative detailing the immense mercies God bestowed upon Israel and the corresponding sins of unbelief and ingratitude. This powerful commentary reveals the critical lessons of history, serving as a vital warning against spiritual complacency and reminding readers of God's enduring compassion and faithfulness.
 weight: 78
 ---
 
