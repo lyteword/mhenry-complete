@@ -2,7 +2,7 @@
 title: "Psalm 137 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "137"
 description: >
-  There are divers psalms which are thought to have been penned in the latter days of the Jewish church, when prophecy was near expiring and the canon of the Old Testament ready to b...
+  Experience the profound sorrow and steadfast hope of Psalm 137, a powerful lament from the Babylonian exile. This psalm captures the deep anguish of the captives weeping for Zion, yet it anchors their despair in an unshakeable longing for home and a holy zeal for divine justice. Explore the themes of mourning, enduring loyalty, and the ultimate promise of deliverance for those who remember God's people.
 weight: 137
 ---
 
