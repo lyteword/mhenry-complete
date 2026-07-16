@@ -2,7 +2,7 @@
 title: "Psalm 146 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "146"
 description: >
-  This and all the rest of the psalms that follow begin and end with Hallelujah, a word which puts much of God's praise into a little compass; for in it we praise him by his name Jah...
+  Discover Psalm 146, a powerful psalm of praise that urges us to place our trust not in fleeting human rulers, but in the mighty God. This scripture highlights God's omnipotence—as the Creator, Judge of the oppressed, and eternal King—offering profound hope for those who rely on His everlasting grace and promises.
 weight: 146
 ---
 
