@@ -2,7 +2,7 @@
 title: "Psalm 84 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "84"
 description: >
-  Though David's name be not in the title of this psalm, yet we have reason to think he was the penman of it, because it breathes so much of his excellent spirit and is so much like ...
+  Explore Psalm 84 to discover the profound beauty and spiritual longing for God's presence in the sanctuary. This powerful text offers deep encouragement, assuring believers of God's unwavering grace, protection, and the ultimate glory awaiting those who walk uprightly. Find spiritual comfort and deepen your devotion through this timeless message of worship and communion with the Living God.
 weight: 84
 ---
 
