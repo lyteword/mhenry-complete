@@ -2,7 +2,7 @@
 title: "Psalm 69 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "69"
 description: >
-  David penned this psalm when he was in affliction; and in it, I. He complains of the great distress and trouble he was in and earnestly begs of God to relieve and succour him, Ps 6...
+  Explore Psalm 69 to understand David's intense suffering and his desperate plea for God's deliverance from overwhelming troubles. Discover how this psalm beautifully illustrates the suffering of Christ and offers profound hope and assurance for believers facing persecution. Find deep comfort in God's mercy and the promise of ultimate praise for the faithful.
 weight: 69
 ---
 
