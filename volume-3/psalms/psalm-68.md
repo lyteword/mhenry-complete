@@ -2,7 +2,7 @@
 title: "Psalm 68 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "68"
 description: >
-  This is a most excellent psalm, but in many places the genuine sense is not easy to come at; for in this, as in some other scriptures, there are things dark and hard to be understo...
+  Discover the profound power and sovereign dominion of God in Psalm 68, a powerful celebration of His victory over enemies and boundless provision. This psalm calls believers to praise the Lord whose glory resides in Zion and whose Christ's ascension secures ultimate salvation for all. Experience the strength, mercy, and triumphant grace of God today.
 weight: 68
 ---
 
