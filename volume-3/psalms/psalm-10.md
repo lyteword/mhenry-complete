@@ -2,7 +2,7 @@
 title: "Psalm 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
 description: >
-  The Septuagint translation joins this psalm with the ninth, and makes them but one; but the Hebrew makes it a distinct psalm, and the scope and style are certainly different. In th...
+  Discover the profound themes of Psalm 10, detailing the nature of wicked pride and the suffering of the oppressed. Find hope and strength in this moving prayer as you trust in God's sovereign justice to appear against evil and bring relief to those who cry out in distress. This psalm is a powerful meditation on faith, persecution, and the ultimate triumph of God's righteous hand.
 weight: 10
 ---
 
