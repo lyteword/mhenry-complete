@@ -2,7 +2,7 @@
 title: "Psalm 115 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "115"
 description: >
-  Many ancient translations join this psalm to that which goes next before it, the Septuagint particularly, and the vulgar Latin; but it is, in the Hebrew, a distinct psalm. In it we...
+  Discover Psalm 115, a powerful guide on how to give glory to God and reject the folly of idolatry. Learn how to place your complete trust in the Lord as your shield through times of distress and receive His abundant blessings. This deep commentary offers essential insights into unwavering faith and eternal praise.
 weight: 115
 ---
 
