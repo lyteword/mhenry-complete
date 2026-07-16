@@ -2,7 +2,7 @@
 title: "Proverbs 25 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "25"
 description: >
-  Pleasures and Advantages of Wisdom: These are also proverbs of Solomon, which the men of Hezekiah king of Judah copied out.
+  Unlock the profound wisdom of Proverbs 25 with this detailed commentary, exploring key themes like the advantages of true wisdom, the honor of seeking justice, and the power of moral governance. Discover essential prudential maxims on handling conflict, avoiding false witness, and practicing radical forgiveness to build a righteous life. Gain timeless insights on self-control, humility, and leadership that will guide your decisions and strengthen your character.
 weight: 25
 ---
 
