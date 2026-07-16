@@ -2,7 +2,7 @@
 title: "Psalm 35 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "35"
 description: >
-  David, in this psalm, appeals to the righteous Judge of heaven and earth against his enemies that hated and persecuted him. It is supposed that Saul and his party are the persons h...
+  Discover Psalm 35, a powerful biblical account of David's desperate appeal to God against his persecutors who sought his ruin and leveled false accusations. This profound meditation offers essential spiritual guidance on finding divine protection, trusting in God's unwavering justice, and overcoming the malice of enemies through sincere prayer and faith. Learn how to transform suffering into triumph by anchoring your hope in God's salvation.
 weight: 35
 ---
 
