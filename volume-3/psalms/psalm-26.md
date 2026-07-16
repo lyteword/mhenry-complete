@@ -2,7 +2,7 @@
 title: "Psalm 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
 description: >
-  Holy David is in this psalm putting himself upon a solemn trial, not by God and his country, but by God and his own conscience, to both which he appeals touching his integrity (Ps ...
+  Discover the profound spiritual lessons of Psalm 26 as David appeals to God for his integrity, devotion to divine ordinances, and his rejection of sin. This powerful text offers guidance on cultivating sincerity, avoiding wicked company, and finding unwavering comfort in God's mercy and grace. Explore how to walk a holy life and seek God's favor in your daily walk.
 weight: 26
 ---
 
