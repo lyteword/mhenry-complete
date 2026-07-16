@@ -2,7 +2,7 @@
 title: "Psalm 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
 description: >
-  In this psalm, I. David praises God for pleading his cause, and giving him victory over his enemies and the enemies of his country (Ps 9:1-6), and calls upon others to join with hi...
+  Discover the powerful message of Psalm 9, where David praises God for victorious deliverance and assures believers of His unwavering justice. This psalm serves as a profound source of hope, reminding us that God is the refuge for the oppressed and will execute perfect judgment against all wickedness, bringing ultimate triumph and lasting comfort. Read this inspiring text to find assurance in God's eternal sovereignty.
 weight: 9
 ---
 
