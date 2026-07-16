@@ -2,7 +2,7 @@
 title: "Psalm 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
 description: >
-  David was a weeping prophet as well as Jeremiah, and this psalm is one of his lamentations: either it was penned in a time, or at least calculated for a time, of great trouble, bot...
+  Discover Psalm 6, a profound lamentation that explores the depths of human affliction, from physical sickness to the torment of sin. This powerful text offers a blueprint for approaching God in deep sorrow, teaching us how to plead for mercy, find confidence in divine hearing, and turn our distress into triumphant praise. Explore the journey from weeping complaint to assured deliverance and powerful repentance.
 weight: 6
 ---
 
