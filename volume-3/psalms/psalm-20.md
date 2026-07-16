@@ -2,7 +2,7 @@
 title: "Psalm 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
 description: >
-  It is the will of God that prayers, intercessions, and thanksgivings, should be made, in special manner, for kings and all in authority. This psalm is a prayer, and the next a than...
+  Discover Psalm 20, a profound prayer for kings, leaders, and all in authority. This commentary explores how to intercede for divine protection, spiritual strength, and success in times of trouble. Learn how trusting in God's name, rather than worldly powers, leads to triumph and answers in prayer.
 weight: 20
 ---
 
