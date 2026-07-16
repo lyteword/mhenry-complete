@@ -2,7 +2,7 @@
 title: "Psalm 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
 description: >
-  The Spirit of Christ, which was in the prophets, testifies in this psalm, as clearly and fully as any where in all the Old Testament, "the sufferings of Christ and the glory that s...
+  Explore Psalm 22 to meditate on the deep suffering of Christ and the profound struggle of faith. This commentary delves into the agony of the crucifixion, offering powerful encouragement through the promise of God's faithfulness and the ultimate triumph of the Kingdom of God. Discover hope, redemption, and everlasting life in this essential reflection on Christ's sacrifice.
 weight: 22
 ---
 
