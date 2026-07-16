@@ -2,7 +2,7 @@
 title: "Proverbs 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
 description: >
-  The Disadvantages of Poverty: Better is the poor that walketh in his integrity, than he that is perverse in his lips, and is a fool.
+  Discover the profound wisdom of Proverbs 19, exploring the stark contrast between the integrity of the poor and the folly of the rich. Learn essential life lessons on gaining wisdom, avoiding rashness, and living with the fear of the Lord to secure true satisfaction and a blessed future.
 weight: 19
 ---
 
