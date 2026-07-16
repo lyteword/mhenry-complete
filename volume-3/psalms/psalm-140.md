@@ -2,7 +2,7 @@
 title: "Psalm 140 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "140"
 description: >
-  This and the four following psalms are much of a piece, and the scope of them the same with many that we met with in the beginning and middle of the book of Psalms, though with but...
+  Discover Psalm 140, a powerful psalm of prayer and divine confidence in the face of intense persecution. This commentary explores David's cry for protection against malicious enemies, revealing the profound comfort found in trusting God as the strength of salvation. Read this inspiring text for assurance, hope, and the promise that the righteous will receive justice and dwell in God's presence.
 weight: 140
 ---
 
