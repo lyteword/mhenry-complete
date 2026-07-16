@@ -2,7 +2,7 @@
 title: "Job 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  "You have heard of the patience of Job," says the apostle, Jam 5:11. So we have, and of his impatience too. We wondered that a man should be so patient as he was (Job 1:1-2:13), bu...
+  Dive deep into the profound emotional turmoil of Job in Chapter 3. This detailed commentary explores Job's intense impatience—his curses on his birth and his desperate longing for death—offering deep theological insights into human suffering and the role of divine providence. Discover how to find peace, resilience, and faith amidst life's greatest trials by understanding the balance between endurance and hope.
 weight: 3
 ---
 
