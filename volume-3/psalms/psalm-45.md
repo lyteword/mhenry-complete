@@ -2,7 +2,7 @@
 title: "Psalm 45 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "45"
 description: >
-  This psalm is an illustrious prophecy of Messiah the Prince: it is all over gospel, and points at him only, as a bridegroom espousing the church to himself and as a king ruling in ...
+  Discover the profound prophecy of Psalm 45, revealing Jesus Christ as the glorious Royal Bridegroom and the Church as the eternal Bride. Explore the transcendent excellency of Christ's love, his victorious government, and the splendor of his reign. Uncover the deep theological truths of the Messiah's glory and the destiny of the redeemed.
 weight: 45
 ---
 
