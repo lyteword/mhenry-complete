@@ -2,7 +2,7 @@
 title: "Psalm 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
 description: >
-  This is a psalm of instruction concerning good and evil, setting before us life and death, the blessing and the curse, that we may take the right way which leads to happiness and a...
+  Discover the profound wisdom of Psalm 1, an essential guide to distinguishing between the godly path and the way of the ungodly. Learn how delighting in the law of the LORD leads to lasting blessing, prosperity, and a life like a flourishing tree. Explore the difference between righteousness and ruin, offering spiritual guidance on how to avoid sin and secure eternal happiness.
 weight: 1
 ---
 
