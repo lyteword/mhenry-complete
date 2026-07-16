@@ -2,7 +2,7 @@
 title: "Psalm 91 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "91"
 description: >
-  Some of the ancients were of opinion that Moses was the penman, not only of the foregoing psalm, which is expressly said to be his, but also of the eight that next follow it; but t...
+  Discover the profound promises of Psalm 91, your ultimate source for divine protection and security. This powerful scripture assures true believers of refuge under God's shadow, deliverance from all snares and pestilence, and unwavering peace amidst any danger. Read the complete commentary to understand how to dwell in the secret place of the Most High and experience God's powerful, steadfast care.
 weight: 91
 ---
 
