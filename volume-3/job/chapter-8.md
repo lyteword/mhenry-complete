@@ -2,7 +2,7 @@
 title: "Job 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
 description: >
-  Job's friends are like Job's messengers: the latter followed one another close with evil tidings, the former followed him with harsh censures: both, unawares, served Satan's design...
+  Dive deep into Job Chapter 8 with this expert commentary, analyzing the arguments of Bildad regarding divine justice, the nature of suffering, and the inevitable downfall of hypocrisy. Explore profound insights into how worldly hopes wither and what true righteousness looks like in the face of immense trial. Perfect for Bible study enthusiasts seeking deep theological understanding of Job's intense struggle.
 weight: 8
 ---
 
