@@ -2,7 +2,7 @@
 title: "Psalm 29 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "29"
 description: >
-  It is the probable conjecture of some very good interpreters that David penned this psalm upon occasion, and just at the time, of a great storm of thunder, lightning, and rain, as ...
+  Explore Psalm 29 to discover the overwhelming power and majesty of God revealed through thunder and lightning. This commentary uncovers God's absolute sovereignty over the world and how He grants strength and peace to His people. Dive into these profound biblical truths about worship, divine dominion, and His everlasting glory.
 weight: 29
 ---
 
