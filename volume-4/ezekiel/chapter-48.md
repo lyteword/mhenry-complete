@@ -2,7 +2,7 @@
 title: "Ezekiel 48 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "48"
 description: >
-  In this chapter we have particular directions given for the distribution of the land, of which we had the metes and bounds assigned in the foregoing chapter. I. The portions of the...
+  Explore the profound theological meaning of Ezekiel 48 through this in-depth commentary on the land division prophecy. This analysis reveals how the vision of Ezekiel 48 foreshadows the unity of the gospel church and the eternal presence of God in the New Covenant. Discover the significance of the new city and the powerful promise that "The Lord is there" in the life of the believer.
 weight: 48
 ---
 
