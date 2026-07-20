@@ -2,7 +2,7 @@
 title: "Ezekiel 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
 description: >
-  The prophet had observed to us (Eze 8:4) that when he was in vision at Jerusalem he saw the same appearance of the glory of God there that he had seen by the river Chebar; now, in ...
+  Uncover the profound theological depth of Ezekiel chapter 10 by exploring the awe-inspiring vision of God's glory, the terrifying judgment of the cherubim, and the intricate system of divine providence represented by the four wheels. This powerful biblical commentary reveals how angels and divine fire execute God's will, offering deep insight into spiritual warfare and the absolute sovereignty of the Almighty.
 weight: 10
 ---
 
