@@ -2,7 +2,7 @@
 title: "Isaiah 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
 description: >
-  It is a very good transition in prophecy (whether it be so in rhetoric or no), and a very common one, to pass from the prediction of the temporal deliverances of the church to that...
+  Discover the profound prophecy of Isaiah 11 detailing the Messiah's righteous government, encompassing wisdom, justice, and peace. This commentary explores how the Prince of Peace will establish a glorious Kingdom, uniting the nations under divine rule and overcoming all opposition. Dive into this deep analysis of biblical prophecy to understand the ultimate triumph of Christ's reign.
 weight: 11
 ---
 
