@@ -2,7 +2,7 @@
 title: "Ezekiel 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
 description: >
-  In this chapter, I. The prophet is consulted by some of the elders of Israel, Eze 20:1. II. He is instructed by his God what answer to give them. He must, 1. Signify God's displeas...
+  Explore the profound themes of covenant, rebellion, and divine judgment in Ezekiel 20. This commentary traces Israel's journey from God's initial grace to their persistent idolatry and the resulting scattering, offering critical insights into spiritual accountability and God's unwavering mercy. Essential reading for understanding biblical prophecy and the nature of true devotion.
 weight: 20
 ---
 
