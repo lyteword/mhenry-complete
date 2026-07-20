@@ -2,7 +2,7 @@
 title: "Nahum 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  This chapter goes on with the burden of Nineveh, and concludes it. I. The sins of that great city are charged upon it, murder (Na 3:1), whoredom and witchcraft (Na 3:4), and a gene...
+  Dive deep into Nahum Chapter 3 to explore the devastating judgment upon the city of Nineveh. This biblical commentary meticulously details the sins of wickedness, the inevitable downfall of tyranny, and the profound lesson that human pride and false security ultimately fail against divine justice. Discover the prophetic warnings about how arrogance leads to ruin and learn from this powerful commentary.
 weight: 3
 ---
 
