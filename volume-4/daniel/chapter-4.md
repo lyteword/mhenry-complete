@@ -2,7 +2,7 @@
 title: "Daniel 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
 description: >
-  The penman of this chapter is Nebuchadnezzar himself: the story here recorded concerning him is given us in his own words, as he himself drew it up and published it; but Daniel, a ...
+  Explore Daniel Chapter 4, a powerful biblical account detailing King Nebuchadnezzar's journey from immense pride to humbling submission under God's sovereign judgment. Discover the profound message of this narrative: how divine revelation brings ultimate restoration, proving that the Most High rules in the kingdom of men. Perfect for understanding themes of human pride, divine justice, and everlasting dominion.
 weight: 4
 ---
 
