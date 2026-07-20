@@ -2,7 +2,7 @@
 title: "Obadiah 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
 description: >
-  This book is wholly concerning Edom, a nation nearly allied and near adjoining to Israel, and yet an enemy to the seed of Jacob, inheriting the enmity of their father Esau to Jacob...
+  Explore the powerful prophecy of Obadiah chapter 1, which details the downfall of the proud nation of Edom due to their violence and arrogance. This commentary reveals God's righteous judgment while offering profound hope for the ultimate salvation, sanctification on Mount Zion, and the establishment of the everlasting kingdom of the Messiah. Discover the divine plan for deliverance and the triumph of the Gospel over all earthly powers.
 weight: 1
 ---
 
