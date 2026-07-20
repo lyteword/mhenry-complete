@@ -2,7 +2,7 @@
 title: "Amos 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
 description: >
-  In this chapter, I. God, by the prophet, proceeds in a like controversy with Moab as before with other nations, Am 2:1-3. II. He shows what quarrel he had with Judah, Am 2:4,5. III...
+  Dive deep into Amos Chapter 2 with this comprehensive biblical commentary, exploring the severe divine judgment against Israel for injustice, oppression, and idolatry. Discover the critical tension between God's unwavering mercy and the consequences of ungrateful sin, examining the role of prophets and the ultimate warnings of inescapable ruin. Perfect for in-depth Bible study and understanding spiritual warfare.
 weight: 2
 ---
 
