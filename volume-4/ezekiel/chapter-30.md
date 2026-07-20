@@ -2,7 +2,7 @@
 title: "Ezekiel 30 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "30"
 description: >
-  In this chapter we have, I. A continuation of the prophecy against Egypt, which we had in the latter part of the foregoing chapter, just before the desolation of that once flourish...
+  Uncover the detailed prophecy of Ezekiel 30, exploring the inevitable destruction of Egypt foretold by God's righteous judgment. This commentary reveals how divine wrath, carried out by the sword of the Babylonians, breaks the pride of Pharaoh and scatters the nations. Dive into this powerful biblical insight into sovereignty and the ultimate reckoning of earthly power.
 weight: 30
 ---
 
