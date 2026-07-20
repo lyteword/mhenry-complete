@@ -2,7 +2,7 @@
 title: "Isaiah 60 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "60"
 description: >
-  This whole chapter is all to the same purport, all in the same strain; it is a part of God's covenant with his church, which is spoken of in the Isa 59:21 of the foregoing chapter,...
+  Discover the profound promises of Isaiah 60, revealing God's covenant for the eternal glory and enlargement of His Church. This commentary explores how the church will be enlightened, enriched by the Gentiles, and blessed with everlasting peace and honor. Uncover the transformative vision of a glorious New Jerusalem where earthly wealth is exchanged for eternal light, leading to ultimate righteousness and divine glory.
 weight: 60
 ---
 
