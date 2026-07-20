@@ -2,7 +2,7 @@
 title: "Jonah 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
 description: >
-  In this chapter we have, I. A command given to Jonah to preach at Nineveh, Jon 1:1,2. II. Jonah's disobedience to that command, Jon 1:3. III. The pursuit and arrest of him for that...
+  Dive deep into Jonah Chapter 1 with this complete Matthew Henry Bible commentary, exploring the tension between human disobedience and divine command. Uncover powerful themes of repentance, God's relentless pursuit, and the miraculous nature of salvation as Jonah faces a life-altering storm.
 weight: 1
 ---
 
