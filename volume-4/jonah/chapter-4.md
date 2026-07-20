@@ -2,7 +2,7 @@
 title: "Jonah 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
 description: >
-  We read, with a great deal of pleasure, in the close of the foregoing chapter, concerning the repentance of Nineveh; but in this chapter we read, with a great deal of uneasiness, c...
+  Dive deep into the rich theological meaning of Jonah Chapter 4. This expert commentary dissects Jonah's struggle with anger and his questioning of God's mercy, offering powerful insights into divine compassion, repentance, and the true value of eternal souls. Discover how God justifies His grace and teach readers to replace human discontent with humble awe.
 weight: 4
 ---
 
