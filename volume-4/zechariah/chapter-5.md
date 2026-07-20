@@ -2,7 +2,7 @@
 title: "Zechariah 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
 description: >
-  Hitherto we have seen visions of peace only, and all the words we have heard have been good words and comfortable words. But the pillar of cloud and fire has a black and dark side ...
+  Uncover the profound warnings in Zechariah Chapter 5 as it unveils the terrifying yet just wrath of God against sin and unrighteousness. Discover the meaning behind the 'flying roll' and the 'ephah' vision, which describes the curse of the law and the inevitable judgment and dispersion of unrighteousness. Uncover deep theological insights on divine justice and the ultimate consequences of disobedience.
 weight: 5
 ---
 
