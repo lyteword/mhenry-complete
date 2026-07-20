@@ -2,7 +2,7 @@
 title: "Hosea 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
 description: >
-  The mind of God is revealed to this prophet, and by him to the people, in the first three chapters, by signs and types, but afterwards only by discourse. In this chapter we have, I...
+  Dive deep into the biblical prophecy of Hosea 1 to understand the powerful message of repentance, covenant, and divine restoration. This commentary explores the tension between God's judgment against Israel and His steadfast mercy for Judah, pointing toward the ultimate unity found in the Gospel. Discover how God's plan brings the spiritual Israel together under Christ as the true head.
 weight: 1
 ---
 
