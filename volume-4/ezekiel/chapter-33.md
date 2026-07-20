@@ -2,7 +2,7 @@
 title: "Ezekiel 33 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "33"
 description: >
-  The prophet has now come off his circuit, which he went as judge, in God's name, to try and pass sentence upon the neighbouring nations, and, having finished with them, and read th...
+  Explore Ezekiel Chapter 33, where the prophet acts as a divine watchman, issuing stern warnings about the consequences of sin and the necessity of repentance. This powerful commentary reveals God's unwavering justice, the hope offered through mercy, and a profound critique of religious hypocrisy. Discover the profound spiritual lessons on living righteously and facing divine judgment.
 weight: 33
 ---
 
