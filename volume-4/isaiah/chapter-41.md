@@ -2,7 +2,7 @@
 title: "Isaiah 41 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "41"
 description: >
-  This chapter, as the former, in intended both for the conviction of idolaters and for the consolation of all God's faithful worshippers; for the Spirit is sent, and ministers are e...
+  Dive deep into the Isaiah 41 commentary to understand the core themes of faith, divine sovereignty, and deliverance. This analysis powerfully confronts the dangers of idolatry while offering believers unwavering hope, promising strength and comfort from God in the midst of any wilderness.
 weight: 41
 ---
 
