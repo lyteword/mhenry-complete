@@ -2,7 +2,7 @@
 title: "Ezekiel 46 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "46"
 description: >
-  In this chapter we have, I. Some further rules given both to the priests and to the people, relating to their worship, Eze 46:1-15. II. A law concerning the prince's disposal of hi...
+  This detailed commentary on Ezekiel Chapter 46 explores the intricate rules governing worship for both priests and the people, along with the specific laws concerning the prince's conduct and inheritance. Discover profound biblical interpretations of the Temple's architecture and the theological significance behind these ancient ordinances for understanding divine order.
 weight: 46
 ---
 
