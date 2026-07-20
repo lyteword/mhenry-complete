@@ -2,7 +2,7 @@
 title: "Isaiah 59 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "59"
 description: >
-  In this chapter we have sin appearing exceedingly sinful, and grace appearing exceedingly gracious; and, as what is here said of the sinner's sin (Isa 59:7,8) is applied to the gen...
+  Explore the profound themes of Isaiah 59, examining how pervasive sin separates humanity from God and the resulting despair. Discover the glorious promise of redemption through Christ, the Redeemer, and the enduring New Covenant established by the Holy Spirit for eternal salvation and deliverance.
 weight: 59
 ---
 
