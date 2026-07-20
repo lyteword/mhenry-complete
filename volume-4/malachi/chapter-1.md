@@ -2,7 +2,7 @@
 title: "Malachi 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
 description: >
-  Thus prophet is sent first to convince and then to comfort, first to discover sin and to reprove for that and then to promise the coming of him who shall take away sin. And this me...
+  Dive deep into the profound theological message of Malachi Chapter 1. This expert commentary explores Israel's ingratitude, the heavy burden of God's word, and the severe judgment against priests who profaned God's name. Discover the call to repentance and the promise of God's glory through a new spiritual worship.
 weight: 1
 ---
 
