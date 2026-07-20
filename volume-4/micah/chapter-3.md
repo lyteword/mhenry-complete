@@ -1,8 +1,8 @@
 ---
-title: "Micah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Micah 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  What the apostle says of another of the prophets is true of this, who was also his contemporary—"Esaias is very bold," Ro 10:20. So, in this chapter, Micah is very bold in reprovin...
+  Dive deep into the theological weight of Micah Chapter 3 with this expert Bible commentary, exploring the severe condemnation of princes and prophets who corrupt their roles for greed and iniquity. Discover why leaders who abuse their power and build their cities with blood face devastating divine judgment, including the ruin of Zion. Uncover the profound lessons on true leadership, accountability, and the inescapable consequences of sin.
 weight: 3
 ---
 

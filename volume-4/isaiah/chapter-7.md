@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
-  This chapter is an occasional sermon, in which the prophet sings both of mercy and judgment to those that did not perceive or understand either; he piped unto them, but they danced...
+  Explore Isaiah chapter 7, an occasional sermon detailing the intense political threat against Jerusalem and God's profound response. Discover the powerful promise of Immanuel—God with us—and the sobering warnings of judgment brought by Assyria, urging believers to hold fast to faith amidst turmoil.
 weight: 7
 ---
 

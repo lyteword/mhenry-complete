@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
-  Judgment began at the house of God, and therefore with them the prophets began, who were the judges; but it must not end there, and therefore they must not. Ezekiel had finished hi...
+  Explore Ezekiel 25, a powerful biblical commentary detailing God's righteous judgment against neighboring nations like the Ammonites, Moabites, Edomites, and Philistines for their cruelty and revenge. This deep dive into prophecy reveals profound themes of divine sovereignty, covenant, and the certainty of God's ultimate vengeance against those who offend His people. Discover the theological depth behind biblical judgment and the enduring power of God's justice.
 weight: 25
 ---
 

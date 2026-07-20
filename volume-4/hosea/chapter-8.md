@@ -1,8 +1,8 @@
 ---
-title: "Hosea 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hosea 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
-  This chapter, as that before, divides itself into the sins and punishments of Israel; every verse almost declares both, and all to bring them to repentance. When they saw the malig...
+  Explore the profound sins and severe punishments detailed in Hosea chapter 8, analyzing Israel's devastating idolatry, false alliances, and breach of covenant. This in-depth commentary reveals the terrifying consequences—from the reaping of the whirlwind to the ultimate destruction of their kingdoms—offering crucial insights into the cost of spiritual neglect.
 weight: 8
 ---
 

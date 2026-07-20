@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 42 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 42 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "42"
 description: >
-  The prophet seems here to launch out yet further into the prophecy of the Messiah and his kingdom under the type of Cyrus; and, having the great work of man's salvation by him yet ...
+  Explore the profound message of Isaiah 42, revealing the Messiah's mission to bring judgment and light to the Gentiles. This commentary explores the themes of divine covenant, Christ's meekness, and the powerful judgment and mercy God extends to both His people and the world. Discover the fulfillment of this prophecy in the New Testament.
 weight: 42
 ---
 

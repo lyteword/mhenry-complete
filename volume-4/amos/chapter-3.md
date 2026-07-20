@@ -1,8 +1,8 @@
 ---
-title: "Amos 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Amos 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  A stupid, senseless, heedless people, are, in this chapter, called upon to take notice, I. Of the judgments of God denounced against them and the warnings he gave them of those jud...
+  Explore Amos Chapter 3 to understand God's severe judgment against Israel for their sins and covenant breaking. This detailed biblical commentary reveals the profound truths about divine wrath, the necessity of repentance, and the certainty of God's justice. Discover deep theological insights into prophecy, accountability, and the consequences of heedlessness.
 weight: 3
 ---
 

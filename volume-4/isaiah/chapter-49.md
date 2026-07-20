@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 49 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 49 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "49"
 description: >
-  Glorious things had been spoken in the previous chapters concerning the deliverance of the Jews out of Babylon; but lest any should think, when it was accomplished, that it looked ...
+  Discover the profound meaning of Isaiah 49, exploring how this prophecy points toward the ultimate redemption through Jesus Christ. This commentary reveals God's powerful plan for the salvation of the Gentiles and the triumphant encouragement for the church in times of trouble. Learn about Christ's role as Mediator and the assured victory over all oppressors.
 weight: 49
 ---
 

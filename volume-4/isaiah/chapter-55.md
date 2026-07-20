@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 55 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 55 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "55"
 description: >
-  As we had much of Christ in the Isa 53:1-12, and much of the church of Christ in the Isa 54:1-17, so in this chapter we have much of the covenant of grace made with us in Christ. T...
+  Discover the profound covenant of grace in Isaiah 55. This biblical commentary explores the universal invitation to Christ, detailing how repentance and faith lead to God's sure mercies and eternal life. Learn how God's powerful word brings joy and transformation to believers through Christ's victory.
 weight: 55
 ---
 

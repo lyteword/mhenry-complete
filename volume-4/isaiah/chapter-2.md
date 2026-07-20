@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  With this chapter begins a new sermon, which is continued in the two following chapters. The subject of this discourse is Judah and Jerusalem, Isa 2:1. In this chapter the prophet ...
+  Discover the profound prophetic vision of Isaiah 2, exploring the establishment of the Christian Church as the mountain of the Lord's house and the promise of world peace where swords are turned into ploughshares. This powerful commentary delves into the judgment against idolatry and pride, urging believers to walk in the light of God's word and trust only in Him. Uncover the divine blueprint for a redeemed world and embrace the hope of Christ's ultimate reign.
 weight: 2
 ---
 

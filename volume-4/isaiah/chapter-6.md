@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  Hitherto, it should seem, Isaiah had prophesied as a candidate, having only a virtual and tacit commission; but here we have him (if I may so speak) solemnly ordained and set apart...
+  Explore the profound vision of Isaiah in Chapter 6, where he confronts the terrifying glory of God, acknowledges his sinfulness, and receives a solemn commission to preach repentance. Discover how divine grace purifies the prophet and reveals the enduring hope of a remnant amidst judgment.
 weight: 6
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Zechariah 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
-  At this chapter begins another sermon, which is continued to the end of Zec 11:1-17 It is called, "The burden of the word of the Lord," for every word of God has weight in it to th...
+  Explore the profound prophecies of Zechariah chapter 9 in this in-depth Bible commentary. Discover the weight of God's word, the coming of the Messiah, and the glorious redemption promised by the covenant. Learn how God's immense goodness ensures victory, peace, and double blessings for His people.
 weight: 9
 ---
 

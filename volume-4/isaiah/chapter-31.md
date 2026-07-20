@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
-  This chapter is an abridgment of the foregoing chapter; the heads of it are much the same. Here is, I. A woe to those who, when the Assyrian army invaded them, trusted to the Egypt...
+  Discover the powerful message of Isaiah 31, a profound call to repentance urging believers to reject reliance on worldly powers like Egypt and false idols. This chapter promises divine deliverance for Jerusalem, assuring readers that through genuine faith and turning back to God, the Assyrian army will fall and the city will be securely protected. Explore the themes of faith, repentance, and God's unwavering power in this essential biblical commentary.
 weight: 31
 ---
 

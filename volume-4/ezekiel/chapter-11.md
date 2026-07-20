@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
-  This chapter concludes the vision which Ezekiel saw, and this part of it furnished him with two messages:—I. A message of wrath against those who continued still at Jerusalem, and ...
+  Uncover the profound dual message of Ezekiel Chapter 11: A powerful biblical commentary contrasting the wrath of God against the complacent rulers of Jerusalem with the immense comfort and promise of mercy for the captive people in Babylon. Explore Ezekiel's prophecy detailing the imminent judgment, the spiritual transformation of the heart, and God's ultimate plan for restoration and renewal. Perfect for deep dives into Old Testament prophecy, biblical theology, and understanding divine judgment and hope.
 weight: 11
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Jeremiah 51 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 51 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "51"
 description: >
-  The prophet, in this chapter, goes on with the prediction of Babylon's fall, to which other prophets also bore witness. He is very copious and lively in describing the foresight Go...
+  Uncover the powerful message of Jeremiah 51, detailing the divine judgment and complete destruction of Babylon. This commentary explores the prophecy, God's sovereignty, and the encouragement offered to the Israelite captives, revealing themes of ultimate victory and hope.
 weight: 51
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Zechariah 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
-  The apostle (Ga 4:25,26) distinguishes between "Jerusalem which now is, and is in bondage with her children"—the remaining carcase of the Jewish church that rejected Christ, and "J...
+  Explore Zechariah Chapter 12 to uncover the profound promises made to the Christian church, detailing its security against all enemies. Discover how the Holy Spirit pours out grace and supplication, leading believers toward deep repentance and spiritual salvation in the gospel-day. This commentary offers essential insights into the divine plan for the Church's enduring hope and protection.
 weight: 12
 ---
 

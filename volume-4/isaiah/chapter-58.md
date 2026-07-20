@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 58 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 58 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "58"
 description: >
-  The prophet, in this chapter, has his commission and charge renewed to reprove the sinners in Zion, particularly the hypocrites, to show them their transgressions, Isa 58:1. It is ...
+  Discover the profound message of Isaiah 58, a powerful call to confront hypocrisy and embrace genuine righteousness. This commentary explores the true meaning of fasting, emphasizing acts of mercy, justice, and honoring the Sabbath as paths to divine guidance and profound spiritual comfort. Learn how living a life of authentic devotion attracts God's blessing, revealing the immense rewards of true faith.
 weight: 58
 ---
 

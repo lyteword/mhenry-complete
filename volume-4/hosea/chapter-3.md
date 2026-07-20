@@ -1,8 +1,8 @@
 ---
-title: "Hosea 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hosea 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  God is still by the prophet inculcating the same thing upon this careless people, and much in the same manner as before, by a type or sign, that of the dealings of a husband with a...
+  Dive deep into the Hosea 3 commentary to uncover the profound themes of Israel's idolatry and God's mercy. Learn how God uses humbling circumstances to lead a people back to true repentance, focusing on the covenant of grace, seeking David, and embracing the goodness of the Lord for future restoration.
 weight: 3
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Jeremiah 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
-  As in the history of the Acts of the Apostles that of their preaching and that of their suffering are interwoven, so it is in the account we have of the prophet Jeremiah; witness t...
+  Explore the dramatic account of Jeremiah chapter 26, examining how the prophet faced intense persecution for delivering God's uncompromising message of repentance or judgment. This detailed commentary analyzes Jeremiah's defense before the court, the historical precedents, and the profound divine protection afforded to faithful ministers. Discover the powerful lessons on standing firm in scripture and the enduring power of God's word.
 weight: 26
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 36 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 36 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "36"
 description: >
-  We have done with Mount Seir, and left it desolate, and likely to continue so, and must now turn ourselves, with the prophet, to the mountains of Israel, which we find desolate too...
+  Discover the profound promises of Ezekiel Chapter 36, exploring God's ultimate compassion for Israel. This commentary delves into the powerful themes of spiritual renewal, the gift of a new heart, and the covenant of grace that promises restoration, prosperity, and sanctification for His people. Uncover how God's mercy is motivated by His own glory, offering deep insights into hope and divine redemption.
 weight: 36
 ---
 

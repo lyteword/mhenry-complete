@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
-  In this chapter we have a further, and no less terrible, denunciation of the judgments of God, which were coming with all speed and force upon the Jewish nation, which would utterl...
+  Dive into Ezekiel Chapter 5 to witness a terrifying prophecy detailing the utter destruction of Jerusalem due to sin and idolatry. Discover the severe judgments of God—famine, pestilence, and the sword—as He executes His wrath against an unrepentant nation. This powerful biblical warning explores the consequences of defying God's law and the terrifying reality of divine justice.
 weight: 5
 ---
 

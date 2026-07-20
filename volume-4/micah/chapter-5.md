@@ -1,8 +1,8 @@
 ---
-title: "Micah 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Micah 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
-  In this chapter we have, I. A prediction of the troubles and distresses of the Jewish nation, Mic 5:1. II. A promise of the Messiah, and of his kingdom, to support the people of Go...
+  Discover a deep dive into Micah chapter 5, exploring the prophecy of the Messiah's birth in Bethlehem and his ultimate reign over Israel. This commentary reveals the divine plan for the remnant of Jacob, detailing God's protection against enemies and the destruction of idolatry. Uncover the profound theological meaning behind these ancient promises to understand Christ's triumph.
 weight: 5
 ---
 

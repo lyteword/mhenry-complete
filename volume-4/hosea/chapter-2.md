@@ -1,8 +1,8 @@
 ---
-title: "Hosea 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hosea 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  The scope of this chapter seems to be much the same with that of the foregoing chapter, and to point at the same events, and the causes of them. As there, so here, I. God, by the p...
+  Explore the profound message of Hosea Chapter 2 in this in-depth Bible commentary. Discover how the sin of idolatry leads to ruin, but also uncover God's irresistible promise of mercy, covenant renewal, and ultimate restoration for His people. Learn the path to repentance and the blessings awaiting those who turn back to their true God.
 weight: 2
 ---
 

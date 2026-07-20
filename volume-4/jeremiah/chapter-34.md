@@ -1,8 +1,8 @@
 ---
-title: "Jeremiah 34 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 34 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "34"
 description: >
-  In this chapter we have two messages which God sent by Jeremiah. I. One to foretel the fate of Zedekiah king of Judah, that he should fall into the hands of the king of Babylon, th...
+  Explore Jeremiah Chapter 34 to discover the powerful prophecy of King Zedekiah's captivity in Babylon and a stark warning about the consequences of breaking God's covenant. This commentary delves into divine judgment, the dangers of treacherous dealings, and the ultimate accountability for faithfulness in life.
 weight: 34
 ---
 

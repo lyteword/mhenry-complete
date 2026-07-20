@@ -1,8 +1,8 @@
 ---
-title: "Jeremiah 31 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 31 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "31"
 description: >
-  This chapter goes on with the good words and comfortable words which we had in the chapter before, for the encouragement of the captives, assuring them that God would in due time r...
+  Discover the profound promises of Jeremiah 31, where God assures His people of a glorious restoration, a renewed covenant, and abundant blessings. This chapter offers deep comfort, guaranteeing that through repentance and faith, God will turn sorrow into joy, ensuring prosperity and peace for His people. Explore the powerful message of hope, renewal, and God's everlasting love that inspires hope for the future.
 weight: 31
 ---
 

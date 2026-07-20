@@ -1,8 +1,8 @@
 ---
-title: "Zechariah 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
-  The work of ministers is rightly to divide the word of truth and to give every one his portion. So the prophet is here instructed to do, in the further answer he gives to the case ...
+  Discover the powerful promises of Zechariah chapter 8, where the prophet heralds the restoration of Jerusalem as a city of truth and a holy mountain, bringing immense prosperity and peace. This chapter offers profound encouragement for believers, assuring them of a renewed covenant and the hopeful vision of the Gentiles joining the faithful community. Learn how to live in truth and seek God's blessings during challenging times.
 weight: 8
 ---
 

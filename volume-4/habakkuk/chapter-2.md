@@ -1,8 +1,8 @@
 ---
-title: "Habakkuk 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Habakkuk 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  In this chapter we have an answer expected by the prophet (Hab 2:1), and returned by the Spirit of God, to the complaints which the prophet made of the violences and victories of t...
+  Explore the profound message of Habakkuk Chapter 2 in this in-depth Bible commentary, uncovering God's direct answer to the prophet's complaints about world violence and pride. Discover timeless wisdom on waiting patiently upon God's appointed time, and understand the terrifying yet ultimately victorious judgment awaiting the proud powers like Babylon. This commentary offers deep insights into faith, perseverance, and the glory of God's sovereignty.
 weight: 2
 ---
 

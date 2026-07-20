@@ -1,8 +1,8 @@
 ---
-title: "Malachi 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Malachi 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  In this chapter we have, I. A promise of the coming of the Messiah, and of his forerunner; and the errand he comes upon is here particularly described, both the comfort which his c...
+  Discover the profound promises of the Messiah's coming in Malachi Chapter 3, exploring how Christ acts as a refiner's fire to purify the church and bring ultimate righteousness. This essential commentary urges believers to repent, maintain their covenants, and embrace the blessing of God's unwavering faithfulness through obedience and tithing.
 weight: 3
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 50 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 50 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "50"
 description: >
-  In this chapter, I. Those to whom God sends are justly charged with bringing all the troubles they were in upon themselves, by their own wilfulness and obstinacy, it being made to ...
+  Explore the profound themes of Isaiah 50 in this commentary, revealing deep truths about divine justice, the suffering of the Messiah, and the necessity of unwavering faith. Discover powerful Christian encouragement to trust in God's name, overcome self-doubt, and find spiritual light amidst life's darkness. This guide offers essential insights on patient endurance and reliance on Christ's ultimate victory.
 weight: 50
 ---
 

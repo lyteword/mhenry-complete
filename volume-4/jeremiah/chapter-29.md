@@ -1,8 +1,8 @@
 ---
-title: "Jeremiah 29 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 29 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "29"
 description: >
-  The contest between Jeremiah and the false prophets was carried on before by preaching, here by writing; there we had sermon against sermon, here we have letter against letter, for...
+  Explore Jeremiah Chapter 29, a profound commentary on the letter sent to the captives in Babylon. Discover how Jeremiah offers essential comfort, warns against false prophets, and assures readers of God's promise for future restoration after seventy years. This deep dive into biblical hope provides essential guidance through times of struggle and deception.
 weight: 29
 ---
 

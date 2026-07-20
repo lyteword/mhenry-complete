@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
-  This chapter continues and concludes the burden of Moab. In it, I. The prophet gives good counsel to the Moabites, to reform what was amiss among them, and particularly to be kind ...
+  Discover the profound message of Isaiah 16, a detailed biblical commentary on the fate of the nation of Moab. Explore the prophet's urgent call for repentance, the devastating prophecies of destruction, and the sobering lesson about the dangers of pride. Learn how divine judgment and mercy shape history and the ultimate triumph of God's word.
 weight: 16
 ---
 

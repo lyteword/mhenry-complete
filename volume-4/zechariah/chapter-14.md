@@ -1,8 +1,8 @@
 ---
-title: "Zechariah 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
-  Divers things were foretold, in the two foregoing chapters, which should come to pass "in that day;" this chapter speaks of a "day of the Lord that cometh," a day of his judgment, ...
+  Dive deep into Zechariah chapter 14 to uncover the prophecy of the "Day of the Lord," exploring the intense judgment against enemies and the incredible mercy promised to the Church. Discover how the gospel-kingdom will transform Jerusalem, leading to universal living waters and the establishment of a holy, unified reign of the Lord.
 weight: 14
 ---
 

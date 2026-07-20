@@ -1,8 +1,8 @@
 ---
-title: "Zechariah 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
-  In this chapter we have, I. Some further promises relating to gospel-times. Here is a promise of the remission of sins (Zec 13:1), of the reformation of manners (Zec 13:2), and par...
+  Dive into the profound prophecies of Zechariah 13 to uncover promises of sin remission, the silencing of false prophets, and the intense suffering of Christ. This commentary explores how God purifies the faithful remnant through trials, offering deep theological insight into the gospel age and the ultimate triumph of the covenant people.
 weight: 13
 ---
 

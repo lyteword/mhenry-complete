@@ -1,8 +1,8 @@
 ---
-title: "Zechariah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  The vision in the foregoing chapter gave assurances of the re-establishing of the civil interests of the Jewish nation, the promises of which terminated in Christ. Now the vision i...
+  Explore the profound theological meaning of Zechariah Chapter 3. This commentary reveals how Joshua's purification foreshadows Jesus Christ as the ultimate High Priest, who removes our sin and restores our standing. Discover the powerful promises of redemption, sanctification, and the sweet fellowship awaiting believers in His reign.
 weight: 3
 ---
 

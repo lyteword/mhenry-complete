@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
-  Ezekiel was now among the captives in Babylon, but they there had Jerusalem still upon their hearts; the pious captives looked towards it with an eye of faith (as Da 6:10), the pre...
+  Uncover the profound biblical prophecy of Ezekiel Chapter 4, detailing the terrifying siege of Jerusalem by the Chaldean army and the devastating famine that followed. Explore the powerful symbolism of divine judgment, the weight of national iniquity, and the prophet's role in conveying God's sobering message through vivid imagery. Discover how this ancient text calls for deep reflection on sin, repentance, and enduring faith.
 weight: 4
 ---
 

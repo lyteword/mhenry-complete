@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 61 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 61 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "61"
 description: >
-  In this chapter, I. We are sure to find the grace of Christ, published by himself to a lost world in the everlasting gospel, under the type and figure of Isaiah's province, which w...
+  Discover the profound grace of Christ in Isaiah 61. This commentary explores how the gospel brings spiritual restoration, deliverance from bondage, and prosperity to the church. Learn how believers are called to be a royal priesthood, clothed in righteousness, and experience everlasting joy.
 weight: 61
 ---
 

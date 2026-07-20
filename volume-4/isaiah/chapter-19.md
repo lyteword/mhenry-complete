@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
-  As Assyria was a breaking rod to Judah, with which it was smitten, so Egypt was a broken reed, with which it was cheated; and therefore God had a quarrel with them both. We have be...
+  Discover the powerful prophecy of Isaiah 19 detailing the impending judgment and ruin of Egypt, from the drying rivers to the collapse of its power. Learn how God's ultimate plan involves the conversion of Egypt to Christ's faith, leading to a profound redemption and a new alliance between nations. This commentary explores the deep theological meaning behind this pivotal chapter of scripture.
 weight: 19
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 35 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 35 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "35"
 description: >
-  It was promised, in the foregoing chapter, that when the time to favour Zion, yea, the set time, should come, especially the time for sending the Messiah and setting up his kingdom...
+  Explore the profound prophecy of Ezekiel 35, detailing God's judgment against the enemies of Zion, specifically focusing on the desolation of Mount Seir (Edom). This commentary dives deep into the reasons for this divine decree, exploring the historical context of enmity and the ultimate vindication of God's covenant promises. Discover the powerful message of divine sovereignty and the consequences of hatred in this essential biblical study.
 weight: 35
 ---
 

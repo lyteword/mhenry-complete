@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
-  This chapter is a prediction of the carrying away of multitudes both of the Egyptians and the Ethiopians into captivity by the king of Assyria. Here is, I. The sign by which this w...
+  Discover the powerful prophecy of Isaiah 20, detailing the coming captivity of the Egyptians and Ethiopians by the might of the Assyrian king. This commentary explores the significance of the signs given by the prophet and delivers a profound spiritual warning: never place your trust in earthly nations for salvation. Read the complete analysis to understand the folly of relying on human power and find true hope in God.
 weight: 20
 ---
 

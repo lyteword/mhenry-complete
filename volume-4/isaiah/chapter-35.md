@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 35 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 35 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "35"
 description: >
-  As after a prediction of God's judgments upon the world (Isa 24:1-23) follows a promise of great mercy to be had in store for his church (Isa 25:1-2), so here after a black and dre...
+  Discover the powerful message of Isaiah 35, where God promises a glorious transformation from wilderness to abundance through the Gospel. Explore how miracles are wrought on souls and bodies, and discover the 'Way of Holiness' leading to everlasting joy and divine restoration for believers. Find hope in the assurance of Christ's coming and the flourishing of the Church.
 weight: 35
 ---
 

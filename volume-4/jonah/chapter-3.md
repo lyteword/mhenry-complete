@@ -1,8 +1,8 @@
 ---
-title: "Jonah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jonah 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  In this chapter we have, I. Jonah's mission renewed, and the command a second time given him to go preach at Nineveh, Jon 3:1,2. II. Jonah's message to Nineveh faithfully delivered...
+  Discover the powerful story of Jonah 3, where God renews the prophet's mission to preach repentance to the great city of Nineveh. This chapter vividly illustrates the profound power of divine grace, showing how sincere humility and widespread repentance can lead to God's mercy and the turning away of impending judgment. Explore the biblical lessons on obedience, faith, and the hope found in God's boundless compassion.
 weight: 3
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Habakkuk 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Habakkuk 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  Still the correspondence is kept up between God and his prophet. In the Hab 1:1-17 he spoke to God, then God to him, and then he to God again; in the Hab 2:1-20 God spoke wholly to...
+  Explore Habakkuk chapter 3, a powerful prayer of faith and endurance. This commentary reveals how the prophet finds spiritual strength, recalls God's past miracles, and holds onto hope amidst severe trouble. Discover deep biblical encouragement on God's mercy and ultimate deliverance through this essential Bible commentary.
 weight: 3
 ---
 

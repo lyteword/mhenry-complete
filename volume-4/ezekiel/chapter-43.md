@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 43 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 43 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "43"
 description: >
-  The prophet, having given us a view of the mystical temple, the gospel-church, as he received it from the Lord, that it might appear not to be erected in vain, comes to describe, i...
+  Uncover the profound vision of God's glory in Ezekiel chapter 43 and explore the renewal of the covenant relationship between God and His people. This deep dive reveals the sacred ordinances of the altar and how the Gospel Church now has access to the holy of holies through Christ. Learn essential truths about true worship, holiness, and eternal grace in this compelling commentary.
 weight: 43
 ---
 

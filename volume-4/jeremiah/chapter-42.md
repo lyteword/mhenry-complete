@@ -1,8 +1,8 @@
 ---
-title: "Jeremiah 42 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 42 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "42"
 description: >
-  Johanan and the captains being strongly bent upon going into Egypt, either their affections or politics advising them to take that course, they had a great desire that God should d...
+  Dive deep into Jeremiah Chapter 42 with this expert commentary. Uncover the crucial message from God regarding obedience, the dangers of seeking worldly escape in Egypt, and the devastating judgment awaiting those who defy divine direction. Essential reading for understanding prophecy and spiritual warning.
 weight: 42
 ---
 

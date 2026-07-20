@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
-  In this chapter the approaching ruin of the land of Israel is most particularly foretold in affecting expressions often repeated, that if possible they might be awakened by repenta...
+  This comprehensive analysis of Ezekiel 7 reveals the urgent prophecy concerning the final ruin of Israel, detailing the inevitable divine judgment brought on by sin. Explore how the prophet warns of complete destruction, the failure of earthly security, and the inescapable nature of God's wrath. Essential reading for understanding biblical prophecy and the consequences of iniquity.
 weight: 7
 ---
 

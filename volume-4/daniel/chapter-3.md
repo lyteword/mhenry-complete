@@ -1,8 +1,8 @@
 ---
-title: "Daniel 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Daniel 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  In the close of the foregoing chapter we left Daniel's companions, Shadrach, Meshach, and Abednego, in honour and power, princes of the provinces, and preferred for their relation ...
+  Witness the powerful story of Shadrach, Meshach, and Abednego as they bravely refuse to bow to an idol and face the fiery furnace. This compelling biblical narrative is a testament to unwavering faith, demonstrating the incredible power of God's protection over His faithful servants. Discover how divine deliverance triumphs over worldly tyranny and find encouragement for your own steadfast commitment in times of trial.
 weight: 3
 ---
 

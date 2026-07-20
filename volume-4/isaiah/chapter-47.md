@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 47 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 47 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "47"
 description: >
-  Infinite Wisdom could have ordered things so that Israel might have been released and yet Babylon unhurt; but if they will harden their hearts, and will not let the people go, they...
+  Explore Isaiah 47 to understand the inevitable downfall of Babylon, a powerful commentary detailing how pride, luxury, and reliance on false wisdom led to divine judgment. This in-depth analysis reveals profound truths about God's sovereignty, warning readers against arrogance and worldly security, and emphasizing that true glory comes only from faith in the Holy One of Israel.
 weight: 47
 ---
 

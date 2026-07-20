@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 38 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 38 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "38"
 description: >
-  This chapter proceeds in the history of Hezekiah. Here is, I. His sickness, and the sentence of death he received within himself, Isa 38:1. II. His prayer in his sickness, Isa 38:2...
+  Dive deep into Isaiah 38 to explore the biblical narrative of Hezekiah's sickness, desperate prayer, and divine restoration. This commentary offers powerful insights into trusting God's promises, the comfort of thanksgiving, and finding unwavering strength during life's greatest afflictions.
 weight: 38
 ---
 

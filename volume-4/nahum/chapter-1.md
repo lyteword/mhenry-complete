@@ -1,8 +1,8 @@
 ---
-title: "Nahum 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nahum 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
-  In this chapter we have, I. The inscription of the book, Na 1:1. II. A magnificent display of the glory of God, in a mixture of wrath and justice against the wicked, and mercy and ...
+  Explore the profound theological depth of Nahum Chapter 1, a powerful biblical commentary revealing the magnificent display of God's wrath, justice, and overwhelming power. This analysis delves into the "burden of Nineveh," detailing God's judgment against the wicked while simultaneously highlighting His unwavering mercy and protection for His faithful people. Discover how divine power manifests in nature and leads to ultimate deliverance, offering deep insights into God's sovereignty over history and destiny.
 weight: 1
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Zephaniah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zephaniah 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
-  After the title of the book (Zep 1:1) here is, I. A threatening of the destruction of Judah and Jerusalem, an utter destruction, by the Chaldeans, Zep 1:2-4. II. A charge against t...
+  Explore the powerful prophetic warning in Zephaniah 1, detailing the utter destruction awaiting Judah and Jerusalem due to gross sin and idolatry. Discover the terrifying scope of the "Day of the Lord" and understand why this inescapable divine judgment is prophesied. This commentary provides deep insight into the consequences of rebellion and the severity of God's wrath.
 weight: 1
 ---
 

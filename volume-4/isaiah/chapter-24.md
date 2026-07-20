@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
-  It is agreed that here begins a new sermon, which is continued to the end of Isa 24:1-27:13 And in it the prophet, according to the directions he had received, does, in many precio...
+  Explore Isaiah Chapter 24 to discover a profound prophetic message about global desolation, the devastating consequences of sin, and the enduring hope found in God's ultimate glory. This commentary dissects the interwoven threats of judgment and the steadfast assurance of a righteous remnant who sing for the majesty of the Lord. Understand how this ancient text speaks to human suffering, the futility of worldly pride, and the triumph of God's sovereignty.
 weight: 24
 ---
 

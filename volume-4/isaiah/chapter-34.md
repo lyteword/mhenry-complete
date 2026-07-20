@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 34 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 34 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "34"
 description: >
-  In this chapter we have the fatal doom of all the nations that are enemies to God's church and people, though Edom only is mentioned, because of the old enmity of Esau to Jacob, wh...
+  Explore the terrifying prophecy of Isaiah 34, detailing the fatal doom awaiting nations that oppose God's people. This deep commentary reveals the scope of God's wrath, the wars of the Lord, and the certainty of divine judgment promised for Zion. Understand how this ancient text warns of universal desolation and the ultimate recompense for ungodliness.
 weight: 34
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Hosea 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hosea 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
-  Prophets were sent to be reprovers, to tell people of their faults, and to warn them of the judgments of God, to which by sin they exposed themselves; so the prophet is employed in...
+  Explore the profound theological depth of Hosea 4. This commentary analyzes the devastating national sins of Israel—including widespread idolatry, spiritual corruption, and the rejection of God's knowledge—detailing the catastrophic judgments awaiting the people. Essential reading for understanding prophecy, sin, and the urgent call to repentance.
 weight: 4
 ---
 

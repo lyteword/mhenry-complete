@@ -1,8 +1,8 @@
 ---
-title: "Zechariah 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
-  We have done with the visions, but not with the revelations of this book; the prophet sees no more such signs as he had seen, but still "the word of the Lord came to him." In this ...
+  Explore Zechariah chapter 7 to understand the profound warnings against religious hypocrisy and the true meaning of spiritual obedience. This commentary delves into the critical issues of fasting, the necessity of listening to God's word, and the serious consequences of willful disobedience, urging readers to embrace justice and mercy. Discover how true faith transforms sorrow into blessing and restores prosperity.
 weight: 7
 ---
 

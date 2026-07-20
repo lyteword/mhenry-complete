@@ -1,8 +1,8 @@
 ---
-title: "Jeremiah 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
-  Still the prophet is attempting to awaken this secure and stubborn people to repentance, by the consideration of the judgments of God that were coming upon them. He is to tell them...
+  Discover the powerful warnings in Jeremiah Chapter 13, where God uses the signs of a marred girdle and bottles filled with wine to reveal the coming judgment upon Judah's pride and idolatry. This commentary explores the severe consequences of obstinacy and calls for a desperate call to repentance before utter ruin descends.
 weight: 13
 ---
 

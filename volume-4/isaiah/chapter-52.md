@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 52 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 52 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "52"
 description: >
-  The greater part of this chapter is on the same subject with the chapter before, concerning the deliverance of the Jews out of Babylon, which yet is applicable to the great salvati...
+  Explore Isaiah 52, a profound biblical commentary on the deliverance of the Jews from Babylon and the ultimate redemption offered by the Messiah. Discover the powerful themes of hope, encouragement, and the glorious humiliation and exaltation of Christ that confirm God's salvation for all nations. This deep dive connects ancient prophecy to the Gospel message of victory over sin and bondage.
 weight: 52
 ---
 

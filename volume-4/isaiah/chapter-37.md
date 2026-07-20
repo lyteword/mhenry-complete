@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 37 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 37 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "37"
 description: >
-  In this chapter we have a further repetition of the story which we had before in the book of Kings concerning Sennacherib. In the foregoing chapter we had him conquering and threat...
+  Explore Isaiah 37 to witness the powerful story of Hezekiah's prayer leading to the downfall of the mighty King Sennacherib of Assyria. This profound biblical commentary reveals the ultimate truth about the power of faith, divine protection, and how God defends His people against overwhelming threats. Discover the deep lessons on prayer, prophecy fulfillment, and God's sovereignty.
 weight: 37
 ---
 

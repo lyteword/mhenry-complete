@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 32 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 32 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "32"
 description: >
-  Still we are upon the destruction of Pharaoh and Egypt, which is wonderfully enlarged upon, and with a great deal of emphasis. When we read so very much of Egypt's ruin, no less th...
+  Explore the profound prophecies of Ezekiel Chapter 32, detailing the catastrophic destruction of Pharaoh and Egypt. This commentary provides a deep dive into divine judgment, the lamentations for a fallen kingdom, and the ultimate lesson on the vanity of worldly power. Discover how this passage speaks to the downfall of pride and the certainty of God's justice.
 weight: 32
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Jeremiah 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
-  The prophet proceeds, in this chapter, both to magnify and to justify the destruction that God was bringing upon this people, to show how grievous it would be and yet how righteous...
+  Uncover the harrowing prophecy of Jeremiah Chapter 8, where the prophet vividly describes the terrible judgments and utter destruction awaiting the people of Judah due to their deep-seated sin and impenitence. This profound commentary explores the folly of spiritual backsliding, the vanity of false wisdom, and the desperate despair of a nation refusing to repent before divine judgment. Dive into this essential biblical insight to understand the gravity of God's wrath and the urgent call for true repentance.
 weight: 8
 ---
 

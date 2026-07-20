@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 32 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 32 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "32"
 description: >
-  This chapter seems to be such a prophecy of the reign of Hezekiah as amounts to an abridgment of the history of it, and this with an eye to the kingdom of the Messiah, whose govern...
+  Explore Isaiah 32, a profound prophecy detailing the reign of a righteous king and a sweeping spiritual reformation. Discover how God promises an era of abundant peace, social justice, and profound spiritual clarity through the pouring out of the Spirit. This commentary reveals the path to true righteousness, contrasting the wicked with the liberal and showcasing the glorious future promised by the Messiah.
 weight: 32
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 48 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 48 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "48"
 description: >
-  God, having in the foregoing chapter reckoned with the Babylonians, and shown them their sins and the desolation that was coming upon them for their sins, to show that he hates sin...
+  Discover the profound message of Isaiah 48: God's unwavering sovereignty and immense mercy as He orchestrates the deliverance of His people from captivity. This powerful commentary explores how divine providence, prophecy, and His redemptive plan ensure that salvation is accomplished for His own glory, even amidst human sin and obstinacy. Find deep encouragement and assurance in God's unfailing power to bring about His promises.
 weight: 48
 ---
 

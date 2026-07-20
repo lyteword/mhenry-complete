@@ -1,8 +1,8 @@
 ---
-title: "Jeremiah 35 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 35 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "35"
 description: >
-  A variety of methods is tried, and every stone turned, to awaken the Jews to a sense of their sin and to bring them to repentance and reformation. The scope and tendency of many of...
+  Explore Jeremiah 35 to understand the crucial themes of obedience, discipline, and repentance through the compelling story of the Rechabites. This commentary reveals how strict adherence to God's commands can lead to mercy, serving as a powerful warning against the consequences of spiritual disobedience.
 weight: 35
 ---
 

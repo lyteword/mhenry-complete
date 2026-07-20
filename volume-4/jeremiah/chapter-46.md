@@ -1,8 +1,8 @@
 ---
-title: "Jeremiah 46 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 46 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "46"
 description: >
-  How judgment began at the house of God we have found in the foregoing prophecy and history; but now we shall find that it did not end there. In this and the following chapters we h...
+  Dive deep into Jeremiah Chapter 46 to explore the powerful prophecies detailing the divine judgment upon Egypt and the eventual conquest by Nebuchadnezzar's army of Babylon. This essential biblical commentary reveals the themes of military defeat, divine justice, and the profound message of comfort offered to the people of God during times of calamity. Uncover the history of ancient judgment and the enduring promise of hope found within these ancient scriptures.
 weight: 46
 ---
 

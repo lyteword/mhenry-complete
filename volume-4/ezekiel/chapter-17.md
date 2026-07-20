@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
-  God was, in the foregoing chapter, reckoning with the people of Judah, and bringing ruin upon them for their treachery in breaking covenant with him; in this chapter he is reckonin...
+  Uncover the profound theological message of Ezekiel 17 through this detailed commentary, exploring the stark consequences of covenant-breaking using the powerful Parable of the Eagle and the Vine. Discover God's terrifying yet certain judgment upon treachery, and learn about the ultimate promise: the glorious restoration of the House of David through the Messiah. Dive deep into this pivotal prophecy to understand divine providence and the everlasting reign of Christ.
 weight: 17
 ---
 

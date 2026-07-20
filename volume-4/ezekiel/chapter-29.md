@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 29 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 29 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "29"
 description: >
-  Three chapters we had concerning Tyre and its king; next follow four chapters concerning Egypt and its king. This is the first of them. Egypt had formerly been a house of bondage t...
+  Dive deep into Ezekiel Chapter 29 to explore the profound prophecies against Pharaoh's arrogance and the ultimate judgment upon Egypt. This commentary analyzes the detailed predictions of destruction, the humbling of a proud kingdom, and the divine promise of restoration for the house of Israel. Discover the powerful theological insights into God's sovereignty, Nebuchadnezzar's conquest, and the enduring hope for the future.
 weight: 29
 ---
 

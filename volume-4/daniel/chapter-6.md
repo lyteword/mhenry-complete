@@ -1,8 +1,8 @@
 ---
-title: "Daniel 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Daniel 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  Daniel does not give a continued history of the reigns in which he lived, nor of the state-affairs of the kingdoms of Chaldea and Persia, though he was himself a great man in those...
+  Discover the powerful story of Daniel in Chapter 6, a testament to unwavering faith and constant prayer, as he miraculously survives being thrown into the lions' den. This biblical commentary explores the intense envy of his enemies, the decree of King Darius, and the ultimate demonstration of God's sovereign power and faithfulness to His loyal servants. Read this deep dive to find encouragement for your own perseverance in faith and learn how God delivers His people.
 weight: 6
 ---
 

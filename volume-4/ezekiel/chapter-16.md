@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
-  Still God is justifying himself in the desolations he is about to bring upon Jerusalem; and very largely, in this chapter, he shows the prophet, and orders him to show the people, ...
+  This in-depth study of Ezekiel 16 unveils the shocking history of Israel, detailing how profound idolatry and ungratefulness led to divine judgment. Discover the contrast between God's immense mercy and the catastrophic consequences of spiritual betrayal, offering essential theological lessons on sin, consequence, and the call for repentance.
 weight: 16
 ---
 

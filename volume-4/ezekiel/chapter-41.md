@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 41 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 41 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "41"
 description: >
-  An account was given of the porch of the house in the close of the foregoing chapter; this brings us to the temple itself, the description of which here given creates much difficul...
+  Explore the detailed architectural vision of the Temple in Ezekiel Chapter 41 through this in-depth commentary. Discover the profound connection between ancient temple dimensions and the spiritual truths of the New Testament, revealing the symbolism of cherubim and the true meaning of the "living temple." This analysis unlocks deeper theological insights into biblical prophecy and sacred architecture.
 weight: 41
 ---
 

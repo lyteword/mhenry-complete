@@ -1,8 +1,8 @@
 ---
-title: "Ezekiel 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
-  Here are two sermons in this chapter, preached on a particular occasion, and they are both from Mount Sinai, the mount of terror, both from Mount Ebal, the mount of curses; both sp...
+  Explore the profound biblical commentary on Ezekiel 24, detailing the prophecy of Jerusalem's destruction during the siege by Babylon. This deep dive explores God's intense divine judgment, symbolized by the boiling pot parable, and reveals the certain consequences of sin. Understand the certainty of God's word and the ultimate ruin of the rebellious house.
 weight: 24
 ---
 

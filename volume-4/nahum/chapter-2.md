@@ -1,8 +1,8 @@
 ---
-title: "Nahum 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nahum 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  We now come closer to Nineveh, that great city; she took, not warning by the destruction of her armies and the fall of her king, and therefore may expect, since she persists in her...
+  Uncover the intense biblical prophecy of Nahum chapter 2, detailing the terrifying military approach and inevitable destruction of Nineveh. This in-depth commentary explores the causes of judgment, the spectacle of the siege, and the ultimate void left by worldly power, offering profound insight into divine justice.
 weight: 2
 ---
 

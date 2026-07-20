@@ -1,8 +1,8 @@
 ---
-title: "Jeremiah 38 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 38 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "38"
 description: >
-  In this chapter, just as in the former, we have Jeremiah greatly debased under the frowns of the princes, and yet greatly honoured by the favour of the king. They used him as a cri...
+  Uncover the dramatic climax of Jeremiah Chapter 38, detailing the prophet's unjust imprisonment by the princes and the compassionate intervention of Ebed-melech the Ethiopian. This chapter explores the intense conflict between Jeremiah's divine counsel regarding Jerusalem's fate and King Zedekiah's fear, offering profound insights into faithfulness, divine will, and the heavy cost of resisting God's prophetic word. Dive deep into this pivotal biblical commentary on persecution and royal decision-making.
 weight: 38
 ---
 

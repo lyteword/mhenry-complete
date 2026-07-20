@@ -1,8 +1,8 @@
 ---
-title: "Isaiah 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
-  In this chapter we have a prophecy of sad times coming, and heavy burdens, I. Upon Babylon, here called "the desert of the sea," that it should be destroyed by the Medes and Persia...
+  Explore the profound prophecy of Isaiah 21, detailing the impending destruction of Babylon and the fate of Kedar, interpreted through a detailed biblical commentary. Discover the spiritual warnings and the ultimate assurance of hope for God's people amidst times of tribulation. This comprehensive study unlocks the deep theological meaning behind this pivotal ancient text.
 weight: 21
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Daniel 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Daniel 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
-  The destruction of the kingdom of Babylon had been long and often foretold when it was at a distance; in this chapter we have it accomplished, and a prediction of it the very same ...
+  Uncover the dramatic story of Daniel Chapter 5, where King Belshazzar's lavish feast turns into a terrifying display of idolatry and defiance against God. This detailed Bible commentary explores the mysterious writing on the wall—Mene, Mene, Tekel, Upharsin—and Daniel's profound interpretation of God's judgment, revealing the ultimate sovereignty of the Almighty over earthly kingdoms. Read this in-depth analysis to understand the powerful prophecies of judgment and the enduring truth of divine rule.
 weight: 5
 ---
 
