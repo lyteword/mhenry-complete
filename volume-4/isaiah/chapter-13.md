@@ -2,7 +2,7 @@
 title: "Isaiah 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
 description: >
-  Hitherto the prophecies of this book related only to Judah and Israel, and Jerusalem especially; but now the prophet begins to look abroad, and to read the doom of divers of the ne...
+  Explore Isaiah Chapter 13 to uncover the dramatic prophecy detailing the inevitable downfall and utter ruin of Babylon. This deep biblical commentary analyzes God's righteous wrath, the mighty forces of judgment, and the severe consequences of pride, offering profound insight into divine providence and history.
 weight: 13
 ---
 
