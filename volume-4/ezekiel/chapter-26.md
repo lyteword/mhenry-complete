@@ -2,7 +2,7 @@
 title: "Ezekiel 26 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "26"
 description: >
-  The prophet had soon done with those four nations that he set his face against in the foregoing chapters; for they were not at that time very considerable in the world, nor would t...
+  Explore the profound biblical prophecy of Ezekiel 26, detailing the devastating destruction of the powerful trading city of Tyre. This commentary delves into the sin of covetousness, the irresistible force of divine judgment, and the ultimate ruin of worldly pride. Discover the ancient history and theological lessons hidden within this powerful account of Tyre's fall.
 weight: 26
 ---
 
