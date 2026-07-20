@@ -2,7 +2,7 @@
 title: "Ezekiel 19 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "19"
 description: >
-  The scope of this chapter is much the same with that of the 17th, to foretel and lament the ruin of the house of David, the royal family of Judah, in the calamitous exit of the fou...
+  Explore the profound theological lament of Ezekiel 19, which vividly portrays the calamitous downfall of the House of David and the Kingdom of Judah through powerful metaphors of a lioness and a withered vine. This deep biblical commentary examines how sin, tyranny, and broken covenants led to the desolation of Jerusalem, offering critical insight into the lasting consequences of royal corruption for future generations.
 weight: 19
 ---
 
