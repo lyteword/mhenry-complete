@@ -2,7 +2,7 @@
 title: "Jeremiah 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
 description: >
-  It is plain that the prophecies of this book are not placed here in the same order in which they were preached; for there are chapters after this which concern Jehoahaz, Jehoiakim,...
+  Explore Jeremiah Chapter 21 to understand the inevitable downfall of Jerusalem under Babylonian siege. This in-depth commentary reveals God's stern judgment, the failure of human resistance, and the urgent call for repentance before complete destruction. Discover the powerful biblical prophecy about divine wrath and the path to survival in this profound commentary.
 weight: 21
 ---
 
