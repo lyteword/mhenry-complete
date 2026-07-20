@@ -2,7 +2,7 @@
 title: "Hosea 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
 description: >
-  The strain of this chapter differs from that of the foregoing chapters. Those were generally made up of reproofs for sin and threatenings of wrath; but this is made up of exhortati...
+  Discover the profound message of Hosea 14, a powerful call for repentance and a deep promise of God's mercy. This chapter offers practical directions on how to turn back to the Lord, assuring believers that He will heal backsliding, turn His anger away, and bestow freely given grace that leads to spiritual growth and flourishing. Read this commentary to find comfort and encouragement for your journey of faith.
 weight: 14
 ---
 
