@@ -2,7 +2,7 @@
 title: "Ezekiel 31 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "31"
 description: >
-  The prophecy of this chapter, as the two chapters before, is against Egypt, and designed for the humbling and mortifying of Pharaoh. In passing sentence upon great criminals it is ...
+  Discover the powerful prophecy in Ezekiel 31, which contrasts the immense pride of Pharaoh with the dramatic downfall of the mighty King of Assyria. This chapter serves as a stark divine warning about the dangers of arrogance and unchecked power, detailing how self-reliance leads to ruin. Read this commentary to gain profound biblical insight on humility, divine justice, and the ultimate fate of the proud.
 weight: 31
 ---
 
