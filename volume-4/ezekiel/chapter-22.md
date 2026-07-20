@@ -2,7 +2,7 @@
 title: "Ezekiel 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
 description: >
-  Here are three separate messages which God entrusts the prophet to deliver concerning Judah and Jerusalem, and all to the same purport, to show them their sins and the judgments th...
+  Explore Ezekiel Chapter 22 to discover the comprehensive catalogue of sins that led to the downfall of Jerusalem. This powerful biblical commentary details how the nation was condemned as dross and faces inevitable divine wrath and judgment. Understand the profound warnings about idolatry, oppression, and the failure of religious leadership.
 weight: 22
 ---
 
