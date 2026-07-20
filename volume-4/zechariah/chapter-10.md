@@ -2,7 +2,7 @@
 title: "Zechariah 10 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "10"
 description: >
-  The scope of this chapter is much the same with that of the foregoing chapter—to encourage the Jews that had returned with hopes that though they had been under divine rebukes for ...
+  Discover the profound encouragement of Zechariah chapter 10. This commentary explores how to trust God in times of struggle, detailing promises of victory over enemies, restoration, and spiritual strength for believers. Learn how to ask for divine favor and find unwavering joy in the Lord amidst life's trials.
 weight: 10
 ---
 
