@@ -2,7 +2,7 @@
 title: "Ezekiel 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
 description: >
-  Ezekiel has again and again, in God's name, foretold the utter ruin of Jerusalem; but, it should seem, he finds it hard to reconcile himself to it, and to acquiesce in the will of ...
+  Explore Ezekiel Chapter 15, where the prophet uses the powerful metaphor of a fruitless vine to describe the utter destruction of Jerusalem. Discover the profound theological meaning behind God's severe divine judgment, spiritual apostasy, and the devastating consequences of losing one's holiness. This commentary reveals the terrifying yet sovereign nature of God's wrath in the Old Testament prophecy.
 weight: 15
 ---
 
