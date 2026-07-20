@@ -2,7 +2,7 @@
 title: "Isaiah 65 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "65"
 description: >
-  We are now drawing towards the conclusion of this evangelical prophecy, the last two chapters of which direct us to look as far forward as the new heavens and the new earth, the ne...
+  Uncover the profound prophetic vision of Isaiah 65, exploring the transition to new heavens and a new earth brought by the Gospel. This chapter details the rejection of the Jews and the calling of the Gentiles, revealing God's promise of a saved remnant and eternal joy for the Christian church. Discover the ultimate triumph over evil and the everlasting blessings awaiting those who follow Christ.
 weight: 65
 ---
 
