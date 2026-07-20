@@ -2,7 +2,7 @@
 title: "Ezekiel 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
 description: >
-  God, having given the prophet a clear foresight of the people's miseries that were hastening on, here gives him a clear insight into the people's wickedness, by which God was provo...
+  Dive into Ezekiel 8 to uncover a terrifying divine vision detailing the extreme idolatry, secret chambers of worship, and the deep spiritual hypocrisy plaguing the people of Judah. This powerful commentary illuminates God's jealousy and the severe consequences of sin, serving as a stark warning of impending divine judgment and the reality of hidden iniquity.
 weight: 8
 ---
 
