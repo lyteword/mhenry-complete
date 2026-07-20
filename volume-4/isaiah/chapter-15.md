@@ -2,7 +2,7 @@
 title: "Isaiah 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
 description: >
-  This chapter, and that which follows it, are the burden of Moab—a prophecy of some great desolation that was coming upon that country, which bordered upon this land of Israel, and ...
+  Dive deep into Isaiah 15 with this comprehensive biblical commentary on the "Burden of Moab." Explore the detailed prophecy of national desolation, famine, and bloodshed that foretold the downfall of the Moabites. Uncover the powerful theological message regarding divine judgment, the consequences of idolatry, and God's providence in ancient history.
 weight: 15
 ---
 
