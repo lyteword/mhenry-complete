@@ -2,7 +2,7 @@
 title: "Isaiah 57 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "57"
 description: >
-  The prophet, in this chapter, makes his observations, I. Upon the deaths of good men, comforting those that were taken away in their integrity and reproving those that did not make...
+  Explore the profound message of Isaiah 57 through this in-depth commentary, examining the downfall of idolatry and the call to true righteousness. Discover how divine mercy triumphs over human sin, offering hope and peace to the contrite while delivering judgment to those who reject God's covenant. This essential study reveals the powerful contrast between the fate of the righteous and the wicked, providing deep spiritual insights on salvation and eternal hope.
 weight: 57
 ---
 
