@@ -2,7 +2,7 @@
 title: "Jeremiah 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
 description: >
-  When we left the prophet, in the close of the foregoing chapter, so pathetically poring out his prayers before God, we had reason to hope that in this chapter we should find God re...
+  Explore Jeremiah 15 to understand the severe divine judgment against Judah and the deep personal struggles of the prophet. This commentary reveals how God’s wrath is tempered by promises of protection and vindication for the faithful, offering profound insight into enduring persecution and unwavering faith.
 weight: 15
 ---
 
