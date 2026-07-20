@@ -2,7 +2,7 @@
 title: "Isaiah 27 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "27"
 description: >
-  In this chapter the prophet goes on to show, I. What great things God would do for his church and people, which should now shortly be accomplished in the deliverance of Jerusalem f...
+  Explore Isaiah 27 to discover the powerful balance between God's righteous judgment against oppressors and the profound mercy He extends to His church. This commentary reveals how affliction purifies sin, leading to the ultimate restoration and spiritual growth of believers in the days of the gospel.
 weight: 27
 ---
 
