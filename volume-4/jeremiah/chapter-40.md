@@ -2,7 +2,7 @@
 title: "Jeremiah 40 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "40"
 description: >
-  We have attended Jerusalem's funeral pile, and have taken our leave of the captives that were carried to Babylon, not expecting to hear any more of them in this book: perhaps we ma...
+  Explore Jeremiah Chapter 40 in this in-depth Bible Commentary, tracing the journey of the remnant Jews after the Babylonian captivity. Discover the story of Jeremiah's release, Gedaliah's fragile governance, and the treacherous plot by Ishmael, revealing profound themes of divine providence and human conflict in ancient Israelite history.
 weight: 40
 ---
 
