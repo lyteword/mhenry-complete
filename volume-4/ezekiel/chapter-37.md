@@ -2,7 +2,7 @@
 title: "Ezekiel 37 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "37"
 description: >
-  The threatenings of the destruction of Judah and Jerusalem for their sins, which we had in the former part of this book, were not so terrible, but the promises of their restoration...
+  Discover the profound message of Ezekiel 37, featuring the powerful vision of dry bones rising to life, symbolizing the glorious resurrection and restoration of the people of Israel. This commentary explores the promises of national unity between Judah and Israel, culminating in the establishment of the kingdom of Christ. Gain deep insight into hope, divine power, and God's ultimate plan for salvation and eternal dwelling.
 weight: 37
 ---
 
