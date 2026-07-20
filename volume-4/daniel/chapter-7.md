@@ -2,7 +2,7 @@
 title: "Daniel 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
 description: >
-  The six former chapters of this book were historical; we now enter with fear and trembling upon the six latter, which are prophetical, wherein are many things dark and hard to be u...
+  Uncover the profound prophecies of Daniel Chapter 7, exploring the symbolic visions of the four beasts and the coming divine judgment. Learn how earthly kingdoms rise and fall, leading to the glorious, everlasting dominion of the Kingdom of the Messiah. Find deep hope and encouragement in God's ultimate victory over all opposition and the triumph of His eternal reign.
 weight: 7
 ---
 
