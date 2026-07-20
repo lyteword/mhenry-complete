@@ -2,7 +2,7 @@
 title: "Isaiah 46 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "46"
 description: >
-  God, by the prophet here, designing shortly to deliver them out of their captivity, prepared them for that deliverance by possessing them with a detestation of idols and with a bel...
+  Discover the powerful message of Isaiah 46, where the prophet assures His people that despite the failures of idols, God's faithfulness is eternal, promising to deliver them from captivity. This deep commentary explores the sovereignty of God, His unwavering counsel, and the ultimate assurance of salvation, encouraging believers to trust in Him through every season of life.
 weight: 46
 ---
 
