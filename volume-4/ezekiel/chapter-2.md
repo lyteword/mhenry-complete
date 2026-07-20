@@ -2,7 +2,7 @@
 title: "Ezekiel 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
 description: >
-  What our Lord Jesus said to St. Paul (Ac 26:16) may fitly be applied to the prophet Ezekiel, to whom the same Jesus is here speaking, "Rise and stand upon thy feet, for I have appe...
+  Discover the powerful message of Ezekiel chapter 2, detailing the prophet's divine commission to confront the rebellious children of Israel in Babylon. Learn about the courage required to deliver God's word amidst opposition and how to respond to divine instruction. This deep commentary explores themes of prophecy, repentance, and God's unwavering faithfulness.
 weight: 2
 ---
 
