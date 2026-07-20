@@ -2,7 +2,7 @@
 title: "Amos 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
 description: >
-  In this chapter we have, I. God contending with Israel, by the judgments, but are reprieved, and the judgments turned away at the prayer of Amos, Am 7:1-6. 2. God's patience is at ...
+  Explore Amos Chapter 7 to delve into the profound tension between God's unwavering judgment and His boundless mercy toward Israel. This commentary analyzes the power of prophetic intercession, showing how prayer can halt divine wrath, while also delivering a stark warning of utter ruin for stubborn opposition. Discover the biblical truths on repentance, divine patience, and the true calling of a prophet.
 weight: 7
 ---
 
