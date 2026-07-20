@@ -2,7 +2,7 @@
 title: "Malachi 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
 description: >
-  There are two great ordinances which divine wisdom has instituted, the wretched profanation of both of which is complained of and sharply reproved in this chapter. I. The ordinance...
+  Uncover the severe spiritual warnings in Malachi 2, detailing the profanation of the priesthood and the betrayal of the marriage covenant. This commentary explores how corrupt principles and treachery against God lead to divine judgment, urging believers to maintain unwavering fidelity to holy law and sacred commitments. Learn the critical lessons on covenant keeping, spiritual purity, and the consequences of acting against God's will.
 weight: 2
 ---
 
