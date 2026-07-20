@@ -2,7 +2,7 @@
 title: "Ezekiel 38 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "38"
 description: >
-  This chapter, and that which follows it, are concerning Gog and Magog, a powerful enemy to the people of Israel, that should make a formidable descent upon them, and put them into ...
+  Uncover the profound prophecies of Ezekiel 38, detailing the conflict between the people of Israel and the formidable enemy, Gog and Magog. This analysis explores God's masterful orchestration, revealing His divine protection and ultimate victory over all earthly powers. Discover the assurance of triumph and the deep theological meaning behind these crucial end-times events.
 weight: 38
 ---
 
