@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 30 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 30 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "30"
 description: >
   Unlock the profound messages of Isaiah 30, exploring the dangers of trusting in worldly powers and the powerful promise of divine grace. Discover how true faith leads to restoration, increased light, and the glorious downfall of oppressors like Assyria. Find comfort and hope for your journey through times of distress with this essential biblical commentary summary.

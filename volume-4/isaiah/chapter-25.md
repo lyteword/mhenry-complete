@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
   Explore the profound message of Isaiah 25, detailing God's magnificent works, the transformative grace of the Gospel, and the ultimate victory over death and all earthly enemies. Discover how the church finds a royal feast of spiritual nourishment, banishes sorrow, and experiences unending joy through Christ's conquering power. This commentary offers deep insight into hope, salvation, and God's sovereign plan for His people.

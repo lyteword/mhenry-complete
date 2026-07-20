@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 64 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 64 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "64"
 description: >
   Explore the profound themes of Isaiah 64 in this comprehensive commentary. Discover how believers can offer a powerful prayer for God's divine presence, confess their sins, and find hope in His enduring mercy amidst great affliction and destruction. This chapter provides essential spiritual guidance for seeking God's intervention and restoring faith during times of distress.

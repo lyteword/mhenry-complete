@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 34 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 34 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "34"
 description: >
   Explore Jeremiah Chapter 34 to discover the powerful prophecy of King Zedekiah's captivity in Babylon and a stark warning about the consequences of breaking God's covenant. This commentary delves into divine judgment, the dangers of treacherous dealings, and the ultimate accountability for faithfulness in life.

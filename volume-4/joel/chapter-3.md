@@ -1,5 +1,5 @@
 ---
-title: "Joel 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joel 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Uncover the profound prophecies of Joel 3, exploring the grand promises of deliverance, the fierce judgment against God's enemies, and the ultimate redemption through Jesus Christ. This in-depth commentary reveals how the year of recompense leads to the glorious, everlasting hope of the Church—a timeless guide to understanding divine justice and eternal glory. Discover the blueprint for hope in the face of world conflict and prepare for the final, triumphant reign of God.

@@ -1,5 +1,5 @@
 ---
-title: "Zechariah 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Dive deep into Zechariah chapter 14 to uncover the prophecy of the "Day of the Lord," exploring the intense judgment against enemies and the incredible mercy promised to the Church. Discover how the gospel-kingdom will transform Jerusalem, leading to universal living waters and the establishment of a holy, unified reign of the Lord.

@@ -1,5 +1,5 @@
 ---
-title: "Micah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Micah 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Uncover the profound warnings of Micah Chapter 1, a powerful biblical prophecy detailing the devastating judgments awaiting the kingdoms of Israel and Judah. This in-depth commentary explores the root causes of divine wrath—idolatry and transgression—and vividly describes the destruction of Samaria and Jerusalem. Dive deep into the prophecy to understand the consequences of sin and the call for repentance.

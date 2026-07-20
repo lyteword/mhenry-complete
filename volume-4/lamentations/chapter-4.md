@@ -1,5 +1,5 @@
 ---
-title: "Lamentations 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Lamentations 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Explore Lamentations Chapter 4 to delve into the devastating destruction of Jerusalem, examining the intense famine, social collapse, and the profound spiritual consequences stemming from the sins of the priests and prophets. This powerful biblical commentary reveals the reality of divine judgment while also offering ultimate comfort and the promise of redemption for the people of Zion.

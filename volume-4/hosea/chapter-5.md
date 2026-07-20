@@ -1,5 +1,5 @@
 ---
-title: "Hosea 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hosea 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Explore the critical insights of Hosea 5 in this comprehensive commentary. Learn how the people of Israel and Judah fell into sin, the nature of God's wrath, and the warnings against pride and apostasy. This essential reading provides deep theological lessons on judgment, repentance, and the call to seek God.

@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 47 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 47 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "47"
 description: >
   Explore the detailed biblical commentary on Jeremiah Chapter 47, which vividly describes the terrible doom and destruction of the Philistines by Nebuchadnezzar's forces. This passage offers profound insights into themes of divine judgment, the terror of war, and the long duration of conflict, providing a deep dive into ancient history and biblical prophecy.

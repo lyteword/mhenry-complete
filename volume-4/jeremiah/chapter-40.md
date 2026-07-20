@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 40 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 40 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "40"
 description: >
   Explore Jeremiah Chapter 40 in this in-depth Bible Commentary, tracing the journey of the remnant Jews after the Babylonian captivity. Discover the story of Jeremiah's release, Gedaliah's fragile governance, and the treacherous plot by Ishmael, revealing profound themes of divine providence and human conflict in ancient Israelite history.

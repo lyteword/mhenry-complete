@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 36 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 36 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "36"
 description: >
   Dive deep into Jeremiah Chapter 36, where the dramatic journey of God's prophecy unfolds through a written roll—from Baruch's transcription to the king's destructive act. Explore the profound theological lessons on the power of the written word, the urgency of repentance, and the enduring nature of God's warnings against sin and judgment. This commentary reveals how faith, fear, and divine protection shape the fate of Judah and the lasting truth of scripture.

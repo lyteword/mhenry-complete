@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 44 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 44 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "44"
 description: >
   Dive deep into Ezekiel Chapter 44 with this comprehensive commentary to uncover the profound theological significance of the Temple's gates and the severe reproof sent to Israel. Explore detailed insights into the degradation of former idolaters, the stringent laws governing the priesthood, and the standards required for true spiritual fidelity. This commentary offers essential study on divine honor, covenant obedience, and the true role of God's ministers.

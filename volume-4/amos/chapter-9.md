@@ -1,5 +1,5 @@
 ---
-title: "Amos 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Amos 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Explore Amos Chapter 9 to grasp the certainty of God's divine judgment against sin, balanced by powerful promises of mercy and ultimate restoration through the Messiah's Kingdom. Discover how this prophecy assures spiritual abundance and secures the eternal rooting of God's people in the world. Find hope in the ultimate victory of righteousness over sin and despair.

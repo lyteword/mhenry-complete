@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 42 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 42 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "42"
 description: >
   Dive deep into Jeremiah Chapter 42 with this expert commentary. Uncover the crucial message from God regarding obedience, the dangers of seeking worldly escape in Egypt, and the devastating judgment awaiting those who defy divine direction. Essential reading for understanding prophecy and spiritual warning.

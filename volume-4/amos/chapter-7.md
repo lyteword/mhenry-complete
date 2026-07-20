@@ -1,5 +1,5 @@
 ---
-title: "Amos 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Amos 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Explore Amos Chapter 7 to delve into the profound tension between God's unwavering judgment and His boundless mercy toward Israel. This commentary analyzes the power of prophetic intercession, showing how prayer can halt divine wrath, while also delivering a stark warning of utter ruin for stubborn opposition. Discover the biblical truths on repentance, divine patience, and the true calling of a prophet.

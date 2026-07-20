@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Explore Isaiah 4 to uncover the profound prophecies of scarcity and ultimate restoration. This chapter details the humbling of the people of Zion but promises the glorious return of peace, righteousness, and safety through the Messiah. Discover the hope of the remnant, the power of God's grace, and the enduring security of the Church in the face of any trial.

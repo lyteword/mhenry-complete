@@ -1,5 +1,5 @@
 ---
-title: "Micah 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Micah 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Explore Micah Chapter 6 to understand God's intense controversy with Israel over their injustice and idolatry. Discover the profound call to repentance, revealing the path to true reconciliation through doing justice, loving mercy, and walking humbly with God. Learn how to respond to divine judgment and embrace the path of righteousness for lasting spiritual peace.

@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Uncover the terrifying prophecy in Jeremiah Chapter 6 detailing the Chaldean invasion and the severe divine judgment impending upon Jerusalem and Judah due to their widespread sin and rejection of God's word. This deep commentary analyzes the causes of their downfall, the futility of their attempts at reform, and the profound equity of God's righteous punishment. Discover the ultimate warning against covetousness and stubbornness in this essential biblical study.

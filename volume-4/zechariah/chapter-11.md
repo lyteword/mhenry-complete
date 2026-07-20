@@ -1,5 +1,5 @@
 ---
-title: "Zechariah 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Uncover the profound message of Zechariah 11, detailing the prophecy of the Jewish nation's downfall and the pivotal role of the Messiah as the ultimate Shepherd. This expert commentary explores the failures of false leadership, the breaking of covenant, and how Christ's true compassion saves the lost flock.

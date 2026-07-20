@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Explore Isaiah 14 to discover the profound prophecy detailing the downfall of the proud King of Babylon. This chapter reveals God's ultimate mercy toward Israel, promising deliverance from bondage and assuring believers of His unstoppable divine purpose in history. Discover hope amidst global turmoil and see how God establishes Zion.

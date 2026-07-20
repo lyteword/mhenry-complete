@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 61 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 61 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "61"
 description: >
   Discover the profound grace of Christ in Isaiah 61. This commentary explores how the gospel brings spiritual restoration, deliverance from bondage, and prosperity to the church. Learn how believers are called to be a royal priesthood, clothed in righteousness, and experience everlasting joy.

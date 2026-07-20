@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Dive deep into Isaiah 15 with this comprehensive biblical commentary on the "Burden of Moab." Explore the detailed prophecy of national desolation, famine, and bloodshed that foretold the downfall of the Moabites. Uncover the powerful theological message regarding divine judgment, the consequences of idolatry, and God's providence in ancient history.

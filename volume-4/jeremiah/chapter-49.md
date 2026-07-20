@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 49 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 49 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "49"
 description: >
   Explore the profound biblical prophecy of Jeremiah Chapter 49, detailing the coming divine judgments upon ancient nations like the Ammonites, Edomites, Damascus, Kedar, and Elam. This in-depth commentary reveals the sovereignty of God, the downfall of pride, and the cyclical nature of history, offering deep insight into ancient world events. Discover the powerful message of divine retribution and ultimate restoration.

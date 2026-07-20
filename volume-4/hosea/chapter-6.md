@@ -1,5 +1,5 @@
 ---
-title: "Hosea 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hosea 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Explore the profound message of Hosea Chapter 6, where the prophet calls Israel to true repentance and a return to God's mercy. This commentary delves into the critical covenant requirements—mercy over ritual—and the severe consequences of unfaithfulness, offering deep spiritual insight for believers seeking guidance on genuine faith and restoration.

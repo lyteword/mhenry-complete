@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 40 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 40 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "40"
 description: >
   Discover the profound message of Isaiah 40 through this comprehensive commentary. This deep dive explores God's limitless power, the call to hope amidst suffering, and how the 'voice in the wilderness' prepares the way for ultimate redemption. Find spiritual strength and comfort by understanding God's sovereignty and the promise of renewal in times of distress.

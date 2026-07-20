@@ -1,5 +1,5 @@
 ---
-title: "Zechariah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the powerful message of Zechariah Chapter 1, exploring the urgent call to repentance and the profound divine promise of mercy for Jerusalem. This commentary delves into prophetic visions, divine intercession, and the ultimate triumph over earthly opposition, revealing God's faithfulness in restoring His people. Understand the core themes of repentance, restoration, and hope in this essential biblical study.

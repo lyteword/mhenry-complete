@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Explore Ezekiel Chapter 9 to understand the terrifying process of divine judgment upon Jerusalem and the instruments God uses in destruction. Discover the profound message of hope as the prophet identifies the righteous remnant, specially marked for salvation amidst the chaos, highlighting God's ultimate justice and saving mercy.

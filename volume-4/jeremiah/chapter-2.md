@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the profound message of Jeremiah Chapter 2, a powerful prophetic sermon that confronts the spiritual dangers of idolatry and covenant betrayal. This deep dive explores God's enduring kindness to Israel and the severe consequences of forsaking Him, urging readers toward urgent repentance before ruin arrives. Learn how spiritual folly leads to broken promises and how to reclaim the true source of life.

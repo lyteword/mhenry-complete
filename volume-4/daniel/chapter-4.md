@@ -1,5 +1,5 @@
 ---
-title: "Daniel 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Daniel 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Explore Daniel Chapter 4, a powerful biblical account detailing King Nebuchadnezzar's journey from immense pride to humbling submission under God's sovereign judgment. Discover the profound message of this narrative: how divine revelation brings ultimate restoration, proving that the Most High rules in the kingdom of men. Perfect for understanding themes of human pride, divine justice, and everlasting dominion.

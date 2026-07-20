@@ -1,5 +1,5 @@
 ---
-title: "Hosea 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hosea 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Explore the profound theological warnings of Hosea Chapter 9 in this comprehensive commentary. Discover how God pronounces severe judgment upon Israel for spiritual adultery and idolatry, leading to exile, destruction of their land, and devastating consequences for their posterity. Dive deep into this prophetic message to understand the gravity of sin and the path to divine restoration.

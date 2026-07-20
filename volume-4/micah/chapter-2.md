@@ -1,5 +1,5 @@
 ---
-title: "Micah 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Micah 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore Micah Chapter 2 to understand the severe sins of covetousness and oppression that afflicted ancient Israel. Discover the weighty judgments of God's justice, contrasted with the ultimate promise of mercy and restoration through the Messiah. This commentary provides deep insight into divine warnings and hope for salvation.

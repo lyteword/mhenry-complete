@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
   Explore the profound themes of covenant, rebellion, and divine judgment in Ezekiel 20. This commentary traces Israel's journey from God's initial grace to their persistent idolatry and the resulting scattering, offering critical insights into spiritual accountability and God's unwavering mercy. Essential reading for understanding biblical prophecy and the nature of true devotion.

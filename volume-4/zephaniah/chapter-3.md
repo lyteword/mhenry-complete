@@ -1,5 +1,5 @@
 ---
-title: "Zephaniah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zephaniah 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Explore Zephaniah 3 to discover a powerful message of divine judgment and overwhelming hope. This commentary dives into the deep corruption of Jerusalem, contrasting it with God's profound promises of redemption, cleansing, and a glorious reformation. Learn how the promises of the Redeemer will bring purification and establish the Church as a name and praise among all nations.

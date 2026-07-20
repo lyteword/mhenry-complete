@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 51 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 51 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "51"
 description: >
   Uncover the powerful message of Jeremiah 51, detailing the divine judgment and complete destruction of Babylon. This commentary explores the prophecy, God's sovereignty, and the encouragement offered to the Israelite captives, revealing themes of ultimate victory and hope.

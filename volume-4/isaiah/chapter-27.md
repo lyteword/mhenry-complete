@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Explore Isaiah 27 to discover the powerful balance between God's righteous judgment against oppressors and the profound mercy He extends to His church. This commentary reveals how affliction purifies sin, leading to the ultimate restoration and spiritual growth of believers in the days of the gospel.

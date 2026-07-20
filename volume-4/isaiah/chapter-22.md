@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Uncover the profound message of Isaiah 22, exploring the "burden of the valley of vision" as Jerusalem faces immense distress from invasion. This commentary delves into divine judgment, the downfall of pride (Shebna), and the elevation of Eliakim, highlighting the power of God's providence and the authority symbolized by the key of David. Discover the spiritual lessons on humility, faith, and divine governance in this essential biblical prophecy analysis.

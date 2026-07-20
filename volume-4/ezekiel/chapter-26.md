@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
   Explore the profound biblical prophecy of Ezekiel 26, detailing the devastating destruction of the powerful trading city of Tyre. This commentary delves into the sin of covetousness, the irresistible force of divine judgment, and the ultimate ruin of worldly pride. Discover the ancient history and theological lessons hidden within this powerful account of Tyre's fall.

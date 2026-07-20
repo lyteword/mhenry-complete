@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Explore Jeremiah Chapter 12 to uncover the profound tension between the success of wicked people and God's ultimate judgment, as the prophet pleads for mercy and restoration for Israel. This commentary delves into the prophet's humble appeal, God's stern rebuke, and the powerful promise of divine mercy for those who diligently learn the ways of God. Discover how God's judgment leads to a path of ultimate restoration and spiritual privilege.

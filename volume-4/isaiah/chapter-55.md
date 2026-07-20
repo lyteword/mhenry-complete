@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 55 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 55 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "55"
 description: >
   Discover the profound covenant of grace in Isaiah 55. This biblical commentary explores the universal invitation to Christ, detailing how repentance and faith lead to God's sure mercies and eternal life. Learn how God's powerful word brings joy and transformation to believers through Christ's victory.

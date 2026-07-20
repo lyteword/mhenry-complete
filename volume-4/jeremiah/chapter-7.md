@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Explore Jeremiah chapter 7 to understand the prophet's severe warning against Judah's idolatry and persistent disobedience. Discover why reliance on temple privileges is futile, and learn the profound truth that obedience is superior to ritual sacrifice before facing divine judgment and national desolation. This commentary offers a deep dive into the call for sincere repentance and the terrifying consequences of rejecting God's will.

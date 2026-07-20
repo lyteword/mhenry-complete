@@ -1,5 +1,5 @@
 ---
-title: "Zechariah 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Explore the profound prophecies of Zechariah chapter 9 in this in-depth Bible commentary. Discover the weight of God's word, the coming of the Messiah, and the glorious redemption promised by the covenant. Learn how God's immense goodness ensures victory, peace, and double blessings for His people.

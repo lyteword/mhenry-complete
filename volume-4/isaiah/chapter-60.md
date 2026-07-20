@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 60 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 60 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "60"
 description: >
   Discover the profound promises of Isaiah 60, revealing God's covenant for the eternal glory and enlargement of His Church. This commentary explores how the church will be enlightened, enriched by the Gentiles, and blessed with everlasting peace and honor. Uncover the transformative vision of a glorious New Jerusalem where earthly wealth is exchanged for eternal light, leading to ultimate righteousness and divine glory.

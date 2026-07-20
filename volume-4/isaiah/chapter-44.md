@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 44 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 44 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "44"
 description: >
   Discover the profound promises of Isaiah 44, where God assures His people of immense blessings and ultimate deliverance from captivity. This powerful chapter powerfully confronts the folly of idolatry, exposing the vanity of false gods while affirming God's absolute sovereignty as the eternal King of Israel. Read this SEO-optimized summary to find hope, assurance, and the divine roadmap to redemption.

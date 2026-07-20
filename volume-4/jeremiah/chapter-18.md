@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
   Uncover the profound truth of God's sovereign power in Jeremiah Chapter 18, exploring how He molds nations like a potter's clay to His will. This powerful commentary reveals crucial lessons on divine judgment, the necessity of repentance, and the devastating consequences of idolatry for the people of Judah. Dive deep into this study to understand God's unwavering justice and mercy in shaping history.

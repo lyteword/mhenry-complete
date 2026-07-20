@@ -1,5 +1,5 @@
 ---
-title: "Malachi 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Malachi 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the profound prophecies of Malachi 4, exploring the great and terrible Day of the Lord, and understanding the contrasting fates of the wicked versus the righteous. This commentary reveals how Jesus Christ serves as the "Sun of righteousness," offering healing and hope, while emphasizing the urgent call to repentance and living in obedience to God's law. Explore the divine vision for the end times and find comfort in the everlasting promise of Christ's return.

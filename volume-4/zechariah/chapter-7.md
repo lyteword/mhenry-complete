@@ -1,5 +1,5 @@
 ---
-title: "Zechariah 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Explore Zechariah chapter 7 to understand the profound warnings against religious hypocrisy and the true meaning of spiritual obedience. This commentary delves into the critical issues of fasting, the necessity of listening to God's word, and the serious consequences of willful disobedience, urging readers to embrace justice and mercy. Discover how true faith transforms sorrow into blessing and restores prosperity.

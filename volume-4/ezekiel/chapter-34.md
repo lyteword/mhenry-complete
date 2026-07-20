@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 34 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 34 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "34"
 description: >
   Discover the powerful message of Ezekiel 34, where God reproves the negligent shepherds of Israel and reveals His profound promise of redemption. This chapter unveils the ultimate hope: the coming of the Messiah, the Good Shepherd, who will gather His scattered flock, bring peace, and grant believers spiritual plenty. Dive deep into this commentary to understand God's plan for restoration and security in the age of Christ.

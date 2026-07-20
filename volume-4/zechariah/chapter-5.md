@@ -1,5 +1,5 @@
 ---
-title: "Zechariah 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Uncover the profound warnings in Zechariah Chapter 5 as it unveils the terrifying yet just wrath of God against sin and unrighteousness. Discover the meaning behind the 'flying roll' and the 'ephah' vision, which describes the curse of the law and the inevitable judgment and dispersion of unrighteousness. Uncover deep theological insights on divine justice and the ultimate consequences of disobedience.

@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 46 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 46 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "46"
 description: >
   This detailed commentary on Ezekiel Chapter 46 explores the intricate rules governing worship for both priests and the people, along with the specific laws concerning the prince's conduct and inheritance. Discover profound biblical interpretations of the Temple's architecture and the theological significance behind these ancient ordinances for understanding divine order.

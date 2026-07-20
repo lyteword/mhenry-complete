@@ -1,5 +1,5 @@
 ---
-title: "Zechariah 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Discover the powerful promises of Zechariah chapter 8, where the prophet heralds the restoration of Jerusalem as a city of truth and a holy mountain, bringing immense prosperity and peace. This chapter offers profound encouragement for believers, assuring them of a renewed covenant and the hopeful vision of the Gentiles joining the faithful community. Learn how to live in truth and seek God's blessings during challenging times.

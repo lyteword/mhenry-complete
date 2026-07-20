@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 45 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 45 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "45"
 description: >
   Explore Ezekiel Chapter 45 to uncover profound prophetic visions detailing the division of the Holy Land, the ordinances of justice for rulers, and the required sacrifices. This text provides a powerful blueprint linking ancient law to the ideal of a new church-state, emphasizing righteous governance and spiritual reconciliation through Christ's ultimate sacrifice.

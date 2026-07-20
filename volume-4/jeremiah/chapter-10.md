@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Explore Jeremiah Chapter 10 to understand the profound warnings against idolatry and the absolute sovereignty of the true God. This commentary delves into the folly of false gods and the devastating judgment awaiting both the captive and the remaining people of Judah. Discover the power of divine providence and why cleaving to the LORD is the only path to lasting happiness.

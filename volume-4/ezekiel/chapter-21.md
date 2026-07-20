@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Uncover the profound prophecies of Ezekiel 21, detailing the coming judgment, the sword of God, and the downfall of Israel. This chapter reveals the detailed plans of Babylon, the fate of the wicked king, and the solemn warnings regarding sin and ultimate redemption. Read the complete commentary to understand God's wrath and the promise of a lasting Messianic kingdom.

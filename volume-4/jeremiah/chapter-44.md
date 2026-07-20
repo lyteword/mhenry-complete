@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 44 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 44 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "44"
 description: >
   Dive deep into Jeremiah Chapter 44 to uncover the intense prophetic warning against idolatry and rebellion. This commentary analyzes the severe judgments God decreed for the Israelites in Egypt, detailing the consequences of persistent sin and the certainty of divine word. Essential reading for understanding biblical prophecy and the power of God's judgment.

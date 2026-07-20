@@ -1,5 +1,5 @@
 ---
-title: "Jonah 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jonah 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore Jonah Chapter 2 in this complete Bible commentary to understand the profound themes of prayer, despair, and miraculous deliverance from the fish's belly. Discover how Jonah's unwavering faith and heartfelt prayer reveal God's boundless mercy and assurance of salvation. This commentary offers deep spiritual insights on overcoming affliction and trusting in God's power.

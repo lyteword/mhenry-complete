@@ -1,5 +1,5 @@
 ---
-title: "Malachi 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Malachi 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Uncover the severe spiritual warnings in Malachi 2, detailing the profanation of the priesthood and the betrayal of the marriage covenant. This commentary explores how corrupt principles and treachery against God lead to divine judgment, urging believers to maintain unwavering fidelity to holy law and sacred commitments. Learn the critical lessons on covenant keeping, spiritual purity, and the consequences of acting against God's will.

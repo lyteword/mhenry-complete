@@ -1,5 +1,5 @@
 ---
-title: "Daniel 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Daniel 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Discover the profound prophecies of Daniel 12, offering deep spiritual comfort and powerful assurance for believers facing times of persecution. This comprehensive commentary explores the appearance of Michael, the coming great tribulation, and the ultimate promise of resurrection and eternal glory for the wise. Read now to gain hope and understanding regarding the end times.

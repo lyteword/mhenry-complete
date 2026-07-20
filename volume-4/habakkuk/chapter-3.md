@@ -1,5 +1,5 @@
 ---
-title: "Habakkuk 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Habakkuk 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Explore Habakkuk chapter 3, a powerful prayer of faith and endurance. This commentary reveals how the prophet finds spiritual strength, recalls God's past miracles, and holds onto hope amidst severe trouble. Discover deep biblical encouragement on God's mercy and ultimate deliverance through this essential Bible commentary.

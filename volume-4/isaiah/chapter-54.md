@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 54 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 54 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "54"
 description: >
   Discover the profound promises of Isaiah 54, revealing how the church will flourish and be exalted despite trials. This chapter offers deep hope into God's everlasting mercy, the security of His covenant, and the path to righteousness and lasting peace. Read this powerful commentary to find assurance that your faith will prevail against all opposition.

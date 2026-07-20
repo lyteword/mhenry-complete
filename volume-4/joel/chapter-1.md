@@ -1,5 +1,5 @@
 ---
-title: "Joel 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joel 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore Joel Chapter 1, a profound biblical commentary detailing the devastating judgment of locusts and caterpillars upon Judah. This text serves as a powerful warning about the consequences of sin, calling the people to lament, humble themselves, and prepare for the coming day of the Lord. Discover deep theological lessons on repentance, God's sovereignty, and the distinction between worldly pleasure and true spiritual joy.

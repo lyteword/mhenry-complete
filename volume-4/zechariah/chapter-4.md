@@ -1,5 +1,5 @@
 ---
-title: "Zechariah 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the profound encouragement in Zechariah chapter 4, where the vision of the golden candlestick assures builders that God's Spirit will perfect the temple work despite all opposition. Explore the rich symbolism of the olive trees and the flow of divine grace, learning how faith overcomes every obstacle to ensure the work is brought to its perfect completion. Uncover the powerful message of God's providence and the enduring nature of His grace in your life.

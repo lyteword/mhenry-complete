@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Explore Isaiah Chapter 13 to uncover the dramatic prophecy detailing the inevitable downfall and utter ruin of Babylon. This deep biblical commentary analyzes God's righteous wrath, the mighty forces of judgment, and the severe consequences of pride, offering profound insight into divine providence and history.

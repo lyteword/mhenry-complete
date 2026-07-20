@@ -1,5 +1,5 @@
 ---
-title: "Zechariah 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Dive into the profound prophecies of Zechariah 13 to uncover promises of sin remission, the silencing of false prophets, and the intense suffering of Christ. This commentary explores how God purifies the faithful remnant through trials, offering deep theological insight into the gospel age and the ultimate triumph of the covenant people.

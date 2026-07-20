@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
   Delve into Jeremiah Chapter 25 to uncover profound prophecies detailing the impending judgment upon Judah and Jerusalem due to their persistent sin. This powerful commentary explores God's fierce wrath, the coming desolation, and the ultimate reckoning for nations, offering vital insights into repentance and divine sovereignty.

@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
   Explore the powerful message of Jeremiah Chapter 19, a profound biblical commentary detailing the impending ruin and severe judgment awaiting Judah and Jerusalem due to their idolatry and sins. Discover the prophetic warnings about the valley of slaughter and the significance of the broken potter's vessel, urging readers to understand the call for urgent repentance before total destruction.

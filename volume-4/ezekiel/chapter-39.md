@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 39 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 39 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "39"
 description: >
   Explore Ezekiel chapter 39 for an in-depth analysis of the prophecy against Gog and Magog, detailing the judgment and God's ultimate glory. This commentary illuminates the profound promises of restoration and enduring mercy for the House of Israel, revealing how God sanctifies His people through tribulation and brings them back to His favor. Discover the deep theological meaning behind this pivotal chapter.

@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Dive deep into Jeremiah Chapter 22 with this comprehensive Bible commentary, exploring the dire warnings given to the royal family and the inevitable judgment upon kings like Jehoiakim. This insightful text reveals the devastating consequences of pride, oppression, and covenant breaking, while also detailing the prophecies of captivity and desolation for Judah's lineage. Discover the profound lessons on justice, divine warning, and the true path to lasting prosperity.

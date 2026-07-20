@@ -1,5 +1,5 @@
 ---
-title: "Hosea 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hosea 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Explore the powerful message of Hosea Chapter 13, a profound biblical commentary detailing the devastating consequences of idolatry, pride, and ingratitude. This in-depth analysis warns against the ruin brought by sin while powerfully highlighting God's unwavering jealousy and ultimate promise of redemption through Christ's ransom. Discover the urgent call to repentance and the hope for salvation amidst judgment.

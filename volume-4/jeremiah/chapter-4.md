@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the powerful warning of Jeremiah Chapter 4, where the prophet desperately calls Judah to urgent repentance before catastrophic destruction by the Chaldean army. This profound commentary explores the deadly consequences of sin, urging readers to cleanse their hearts and reform their ways to avert national desolation. Understand the profound theological message about judgment, despair, and the ultimate call for salvation.

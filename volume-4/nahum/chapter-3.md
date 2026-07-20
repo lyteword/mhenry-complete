@@ -1,5 +1,5 @@
 ---
-title: "Nahum 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Nahum 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Dive deep into Nahum Chapter 3 to explore the devastating judgment upon the city of Nineveh. This biblical commentary meticulously details the sins of wickedness, the inevitable downfall of tyranny, and the profound lesson that human pride and false security ultimately fail against divine justice. Discover the prophetic warnings about how arrogance leads to ruin and learn from this powerful commentary.

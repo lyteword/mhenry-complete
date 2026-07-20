@@ -1,5 +1,5 @@
 ---
-title: "Amos 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Amos 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Dive deep into Amos chapter 8 to understand the prophetic warnings about sin, oppression, and spiritual drought. This commentary reveals God's severe judgment—from the famine of the Word of the Lord to national desolation—offering vital insights into justice and the urgent need for repentance.

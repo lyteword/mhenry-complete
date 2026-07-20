@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Explore Jeremiah 15 to understand the severe divine judgment against Judah and the deep personal struggles of the prophet. This commentary reveals how God’s wrath is tempered by promises of protection and vindication for the faithful, offering profound insight into enduring persecution and unwavering faith.

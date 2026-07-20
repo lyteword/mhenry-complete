@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 63 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 63 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "63"
 description: >
   Discover the profound message of Isaiah 63, detailing God's boundless mercy and the triumphant victory of the Messiah over all enemies. Learn how to embrace active faith, earnest prayer, and acknowledge God's unwavering faithfulness during times of distress and rebellion. This commentary provides deep insight into God's love, redemption, and the power of His enduring compassion.

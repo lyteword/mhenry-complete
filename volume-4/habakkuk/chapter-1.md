@@ -1,5 +1,5 @@
 ---
-title: "Habakkuk 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Habakkuk 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore Habakkuk Chapter 1 to uncover a profound theological journey where a prophet confronts God over widespread violence, injustice, and the failure of earthly justice. This powerful commentary delves into the terrifying prophecy of divine judgment by the Chaldeans, while also exploring the deep questions of God's sovereignty, patience, and the nature of holiness amidst human sin. Discover enduring wisdom on suffering, hope, and how to find assurance in God's eternal plan.

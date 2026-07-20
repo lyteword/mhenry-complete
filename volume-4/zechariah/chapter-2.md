@@ -1,5 +1,5 @@
 ---
-title: "Zechariah 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore the profound prophecy of Zechariah chapter 2, detailing the vision of a measuring line that assures the replenishment, safety, and glory of Jerusalem. Discover the powerful call for the people of Zion to return from Babylon, coupled with the promise of God's divine presence and the ultimate victory through the advent of Christ. This commentary unpacks the themes of restoration, liberty, and the enduring hope for a glorious future.

@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
   Discover the profound divine providence in Jeremiah Chapter 24. This commentary explores the powerful distinction between the "good figs" and the "bad figs" in Babylonian captivity, revealing how suffering can lead to spiritual refinement and ultimate restoration for the righteous. Learn how God uses affliction to guide those who are lost and secure the future of His people through His sovereign plan.

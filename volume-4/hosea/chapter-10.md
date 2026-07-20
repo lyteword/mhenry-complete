@@ -1,5 +1,5 @@
 ---
-title: "Hosea 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hosea 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Discover the severe warnings in Hosea Chapter 10 about Israel's gross corruption in worship and civil governance. This deep commentary explores the consequences of idolatry, broken covenants, and the inevitable judgment, urging readers to repent and seek God's righteousness before utter destruction.

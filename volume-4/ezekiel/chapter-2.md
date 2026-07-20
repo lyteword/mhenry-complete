@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the powerful message of Ezekiel chapter 2, detailing the prophet's divine commission to confront the rebellious children of Israel in Babylon. Learn about the courage required to deliver God's word amidst opposition and how to respond to divine instruction. This deep commentary explores themes of prophecy, repentance, and God's unwavering faithfulness.

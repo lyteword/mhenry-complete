@@ -1,5 +1,5 @@
 ---
-title: "Jonah 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jonah 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Dive deep into the rich theological meaning of Jonah Chapter 4. This expert commentary dissects Jonah's struggle with anger and his questioning of God's mercy, offering powerful insights into divine compassion, repentance, and the true value of eternal souls. Discover how God justifies His grace and teach readers to replace human discontent with humble awe.

@@ -1,5 +1,5 @@
 ---
-title: "Haggai 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Haggai 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the powerful encouragement from the prophet Haggai in Chapter 2, focusing on the spiritual glory of the Second Temple and the divine promise of the coming Messiah. Learn how to overcome discouragement, maintain spiritual purity in your work, and understand the prophetic signs of Christ's triumphant kingdom. This commentary offers deep biblical insight into building faith and realizing God's ultimate plan.

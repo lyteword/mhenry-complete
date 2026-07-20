@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Explore Jeremiah Chapter 9, a powerful commentary on the prophet's intense lamentation over the wicked sins of Judah and Jerusalem. This deep dive explores the terrifying certainty of divine judgment, the folly of relying on human strength and wealth, and the urgent call for true repentance. Discover why this chapter serves as a crucial warning about sin, justice, and the path to restoration.

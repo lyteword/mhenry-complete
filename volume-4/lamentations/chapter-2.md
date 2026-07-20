@@ -1,5 +1,5 @@
 ---
-title: "Lamentations 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Lamentations 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore the profound theological depths of Lamentations Chapter 2 through this expert biblical commentary. This analysis delves into the devastating divine judgment upon Zion, examining God's wrath, the destruction of the sanctuary, and the deep sorrow of the people. Discover how true lamentation and persistent prayer offer essential comfort amidst national calamity.

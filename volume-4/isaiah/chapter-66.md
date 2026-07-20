@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 66 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 66 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "66"
 description: >
   Discover the profound theological message of Isaiah 66, exploring God's judgment against ritualistic worship and revealing the glorious plan for the gospel-kingdom. This commentary unveils promises of deliverance, the triumph of the Church, and the eternal hope of the New Heavens and New Earth. Find deep comfort and understanding of God's abundant glory for the persecuted and the faithful.

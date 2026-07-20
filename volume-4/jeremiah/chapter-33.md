@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 33 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 33 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "33"
 description: >
   Discover the powerful promises of Jeremiah 33 regarding the restoration of the Jews, the rebuilding of Jerusalem, and the coming of the Messiah. This chapter offers deep biblical comfort, assuring believers that God will bring joy, peace, and prosperity after times of desolation. Read this commentary to understand the enduring covenant of God's faithfulness and the hope for a glorious future.

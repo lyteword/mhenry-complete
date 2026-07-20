@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Dive deep into Ezekiel Chapter 3 to uncover the profound process of divine revelation, detailing how prophets receive God's word and the immense courage required to deliver it. This chapter illuminates Ezekiel's role as a watchman and the challenging duty of warning both the wicked and the righteous, offering vital insights into faithful prophetic ministry and overcoming spiritual obstacles.

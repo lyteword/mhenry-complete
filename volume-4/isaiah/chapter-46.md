@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 46 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 46 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "46"
 description: >
   Discover the powerful message of Isaiah 46, where the prophet assures His people that despite the failures of idols, God's faithfulness is eternal, promising to deliver them from captivity. This deep commentary explores the sovereignty of God, His unwavering counsel, and the ultimate assurance of salvation, encouraging believers to trust in Him through every season of life.

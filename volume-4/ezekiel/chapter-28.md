@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
   Explore Ezekiel 28 for a profound study on the themes of pride, worldly wisdom, and divine judgment as seen in the dramatic downfall of the King of Tyre. This powerful prophecy contrasts human arrogance with God's absolute sovereignty, culminating in the promise of ultimate restoration and sanctification for His people.

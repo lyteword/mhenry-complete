@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Uncover the urgent prophecy of Ezekiel Chapter 12, detailing the terrible judgments—including captivity, famine, and the complete destruction of Jerusalem—that were coming upon the house of Israel. This powerful commentary reveals why deceptive hopes must cease, emphasizing that God's word is certain and that the days of judgment are drawing near. Read this deep dive to understand the true meaning behind these warnings and prepare for a time of reckoning.

@@ -1,5 +1,5 @@
 ---
-title: "Daniel 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Daniel 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Dive into Daniel 11 to uncover the intricate biblical prophecy detailing the rise and catastrophic fall of empires, including the devastating reign of Antiochus Epiphanes. This deep historical and theological commentary illuminates profound themes of divine providence, the vanity of worldly power, and the enduring strength of the holy covenant. Explore how ancient prophecies reveal the cyclical nature of conflict and the ultimate triumph of righteousness.

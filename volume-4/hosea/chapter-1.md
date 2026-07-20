@@ -1,5 +1,5 @@
 ---
-title: "Hosea 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hosea 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Dive deep into the biblical prophecy of Hosea 1 to understand the powerful message of repentance, covenant, and divine restoration. This commentary explores the tension between God's judgment against Israel and His steadfast mercy for Judah, pointing toward the ultimate unity found in the Gospel. Discover how God's plan brings the spiritual Israel together under Christ as the true head.

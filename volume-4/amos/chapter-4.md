@@ -1,5 +1,5 @@
 ---
-title: "Amos 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Amos 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Dive into this expert commentary on Amos 4, revealing how God judges oppressors and idolaters. Learn about the severe punishments foretold—including drought, pestilence, and destruction—and understand the critical message: humble yourselves and repent to meet the sovereign God.

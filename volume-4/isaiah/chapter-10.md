@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Dive deep into Isaiah Chapter 10 to explore themes of divine sovereignty, the judgment of oppressors, and the powerful confrontation with Assyrian tyranny. This commentary reveals how God uses even formidable enemies to secure the ultimate deliverance and restoration for the faithful remnant of Israel.

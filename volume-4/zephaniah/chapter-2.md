@@ -1,5 +1,5 @@
 ---
-title: "Zephaniah 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zephaniah 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the urgent call for national repentance in Zephaniah 2, as the prophet warns the nation of Israel to seek righteousness and meekness to avert the terrifying judgment of the Day of the Lord. This powerful commentary explores the impending doom predicted for neighboring nations like the Philistines and Assyrians, offering deep theological insights into divine sovereignty and the ultimate hope of being hidden in God's protection. Read the complete commentary to understand the critical message of turning back to God before it is too late.

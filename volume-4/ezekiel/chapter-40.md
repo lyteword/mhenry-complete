@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 40 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 40 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "40"
 description: >
   Uncover the profound blueprint of God's eternal plan in Ezekiel Chapter 40. This detailed vision reveals the glorious design of the spiritual Gospel-Church, showing how the physical temple foreshadows Christ as the ultimate sanctuary. Explore the intricate architecture, sacred rituals, and divine measurements that guide believers toward true worship and ultimate glory.

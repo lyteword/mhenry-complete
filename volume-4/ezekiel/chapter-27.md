@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Explore Ezekiel Chapter 27, a powerful biblical commentary on the magnificent city of Tyre. Discover the profound lesson that worldly riches, pride, and transient glory are ultimately fleeting, as this prosperous trading hub meets a sudden and devastating ruin in the sea. Learn how the prophet uses Tyre's downfall to teach us about the vanity of earthly pursuits and the ultimate sovereignty of God.

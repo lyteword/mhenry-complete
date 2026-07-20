@@ -1,5 +1,5 @@
 ---
-title: "Amos 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Amos 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore Amos Chapter 1, a profound biblical commentary detailing God's severe warnings and impending judgments against neighboring nations like Syria, Tyre, Edom, and Ammon for their cruelty toward Israel. Discover the powerful message of prophecy, the role of the prophet Amos, and the terrifying consequences of sin as God's wrath is unleashed from Zion. This chapter reveals why God intervenes and the inevitable destruction of those who oppress His people.

@@ -1,5 +1,5 @@
 ---
-title: "Lamentations 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Lamentations 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Discover profound hope and deep comfort in Lamentations 3. This commentary explores how God's inexhaustible mercy and unwavering faithfulness provide the strength to endure any trial, offering guidance on repentance, persistent prayer, and trusting in His sovereign providence. Learn how to transform affliction into enduring faith and find solace in God's steadfast love during life's darkest moments.

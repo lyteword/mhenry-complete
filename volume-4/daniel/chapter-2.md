@@ -1,5 +1,5 @@
 ---
-title: "Daniel 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Daniel 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the profound meaning behind Daniel 2's prophecy! This commentary explores Nebuchadnezzar's dream of the four kingdoms and Daniel's divine interpretation, revealing the ultimate, eternal kingdom of the Messiah. Learn how prayer and God's wisdom triumph over worldly power and human deception in this powerful biblical account.

@@ -1,5 +1,5 @@
 ---
-title: "Hosea 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hosea 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Explore Hosea chapter 11 to uncover the profound tension between God's unwavering goodness and Israel's deep ingratitude and idolatry. This powerful commentary delves into divine judgment, the sorrow of repentance, and the incredible, enduring mercy God shows, particularly highlighting the faithfulness of Judah amidst the turmoil. Discover the message of hope and restoration found in God's promises for a people bent toward backsliding.

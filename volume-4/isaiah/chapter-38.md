@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 38 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 38 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "38"
 description: >
   Dive deep into Isaiah 38 to explore the biblical narrative of Hezekiah's sickness, desperate prayer, and divine restoration. This commentary offers powerful insights into trusting God's promises, the comfort of thanksgiving, and finding unwavering strength during life's greatest afflictions.

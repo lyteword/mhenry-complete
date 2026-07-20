@@ -1,5 +1,5 @@
 ---
-title: "Jonah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jonah 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Dive deep into Jonah Chapter 1 with this complete Matthew Henry Bible commentary, exploring the tension between human disobedience and divine command. Uncover powerful themes of repentance, God's relentless pursuit, and the miraculous nature of salvation as Jonah faces a life-altering storm.

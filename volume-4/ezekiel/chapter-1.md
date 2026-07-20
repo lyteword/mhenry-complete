@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Unlock the profound meaning of Ezekiel Chapter 1 with this expert Bible commentary. Explore detailed interpretations of the awe-inspiring visions—including the four living creatures, the moving wheels, and the glory of God—to gain deep insight into divine revelation and angelic power. Perfect for serious students seeking to connect ancient prophecy with modern spiritual understanding.

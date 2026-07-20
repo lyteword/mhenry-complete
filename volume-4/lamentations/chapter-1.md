@@ -1,5 +1,5 @@
 ---
-title: "Lamentations 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Lamentations 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore Lamentations 1 to witness the bitter miseries of Jerusalem as it faces captivity and destruction. This commentary delves into the profound sin that caused the city's downfall, offering a powerful appeal to God's righteous judgment and compassionate mercy. Discover the biblical truth behind ancient sorrow and divine deliverance.

@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 51 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 51 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "51"
 description: >
   Discover profound comfort and unwavering hope in this detailed commentary on Isaiah 51. This text explores God's powerful promise of eternal righteousness and salvation for His people, assuring believers that no matter the darkness or persecution, God's strength will deliver and comfort Zion. Find enduring hope in His eternal plan and learn how to stand firm against despair.

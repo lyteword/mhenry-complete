@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 62 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 62 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "62"
 description: >
   Discover the profound promises of Isaiah 62, detailing God's plan for the ultimate restoration and glory of the Church. Explore how the prophet's tireless prayer and preaching pave the way for salvation, leading the redeemed to be called 'the holy people' and Jerusalem 'sought out.' Uncover the powerful message of hope, divine blessing, and the triumphant advent of the Messiah.

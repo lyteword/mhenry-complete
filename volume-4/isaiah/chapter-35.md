@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 35 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 35 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "35"
 description: >
   Discover the powerful message of Isaiah 35, where God promises a glorious transformation from wilderness to abundance through the Gospel. Explore how miracles are wrought on souls and bodies, and discover the 'Way of Holiness' leading to everlasting joy and divine restoration for believers. Find hope in the assurance of Christ's coming and the flourishing of the Church.

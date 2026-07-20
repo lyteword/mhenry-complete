@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Explore the profound vision of Isaiah in Chapter 6, where he confronts the terrifying glory of God, acknowledges his sinfulness, and receives a solemn commission to preach repentance. Discover how divine grace purifies the prophet and reveals the enduring hope of a remnant amidst judgment.

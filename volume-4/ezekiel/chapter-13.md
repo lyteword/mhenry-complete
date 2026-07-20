@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Explore Ezekiel 13 to understand the severe warnings against false prophets and prophetesses. This commentary details how spiritual deception leads to divine judgment, using powerful imagery of a crumbling wall and overwhelming storms to illustrate the consequences of lying and vanity. Learn why accountability to God is essential and how false visions are exposed by true prophecy.

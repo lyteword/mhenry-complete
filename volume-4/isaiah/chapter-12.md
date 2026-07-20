@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Discover the profound message of Isaiah 12, where believers are called to express joyful thanksgiving and powerful praise for God's salvation. Learn how to draw strength and hope from God as your song, uniting with the church to proclaim His mighty deeds across the earth. This chapter is a powerful encouragement to live a life of worship and unwavering trust in the Lord.

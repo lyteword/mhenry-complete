@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
   Jeremiah Chapter 23 delivers a severe warning against careless leaders and false prophets who profane God's name. This powerful biblical commentary explores the profound importance of God's word, the dangers of spiritual deceit, and the ultimate promise of a righteous Messiah. Discover the necessary call to repentance before divine judgment arrives.

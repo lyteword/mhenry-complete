@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 45 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 45 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "45"
 description: >
   Discover the profound message of Isaiah 45 in this in-depth Bible commentary, exploring the prophecy of Cyrus as a type of the Messiah and the demonstration of God's absolute sovereignty. This passage offers powerful encouragement for the faithful, assuring them of ultimate deliverance, divine power over all nations, and the everlasting hope found solely in the Lord. Uncover the truth of redemption and trust in God's unwavering plan.

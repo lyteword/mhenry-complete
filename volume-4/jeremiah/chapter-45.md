@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 45 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 45 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "45"
 description: >
   Discover the profound message of Jeremiah 45, exploring the fear and disappointment of faithful servants like Baruch during times of national ruin. This chapter offers powerful encouragement, revealing how God comforts those who seek worldly acclaim and promises divine protection and survival in every perilous place. Find solace and assurance that God cares for the weakest and preserves His people amidst life's greatest struggles.

@@ -1,5 +1,5 @@
 ---
-title: "Joel 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Joel 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore Joel Chapter 2 through this expert commentary on the terrifying judgments of the locusts and the urgent call to repentance. Discover the profound promise of God's mercy, restoration, and the powerful outpouring of the Holy Spirit in the last days. Learn how turning to God through genuine sorrow leads to abundant blessing and spiritual revival.

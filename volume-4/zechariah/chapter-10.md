@@ -1,5 +1,5 @@
 ---
-title: "Zechariah 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Zechariah 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Discover the profound encouragement of Zechariah chapter 10. This commentary explores how to trust God in times of struggle, detailing promises of victory over enemies, restoration, and spiritual strength for believers. Learn how to ask for divine favor and find unwavering joy in the Lord amidst life's trials.

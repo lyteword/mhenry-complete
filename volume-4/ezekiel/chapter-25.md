@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
   Explore Ezekiel 25, a powerful biblical commentary detailing God's righteous judgment against neighboring nations like the Ammonites, Moabites, Edomites, and Philistines for their cruelty and revenge. This deep dive into prophecy reveals profound themes of divine sovereignty, covenant, and the certainty of God's ultimate vengeance against those who offend His people. Discover the theological depth behind biblical judgment and the enduring power of God's justice.

@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 30 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 30 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "30"
 description: >
   Discover the profound promises of restoration found in Jeremiah Chapter 30, where the prophet assures the people of a joyful return from captivity and a renewed covenant with God. This commentary explores God's incredible mercy, promising the rebuilding of the city, increased numbers, and ultimate deliverance from oppressors. Find deep spiritual comfort and unwavering hope as you navigate times of tribulation through these powerful biblical truths.

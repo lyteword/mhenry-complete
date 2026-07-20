@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Explore Ezekiel 14 to understand the severe consequences of spiritual idolatry and hypocrisy in ancient Israel. This detailed commentary delves into God's just judgments, the peril of sin, and the powerful message of hope found in the preservation of a faithful remnant. Discover deep insights into repentance and God's unwavering mercy in this profound biblical study.

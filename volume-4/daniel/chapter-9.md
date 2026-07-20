@@ -1,5 +1,5 @@
 ---
-title: "Daniel 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Daniel 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Uncover the profound meaning of Daniel Chapter 9 with this detailed Bible commentary, focusing on Daniel's passionate prayer for the restoration of the Jewish people and his confession of sin. Explore the crucial prophecy concerning the Messiah's redemption, the significance of the seventy weeks, and the future destiny of Jerusalem. This deep dive into Old Testament prophecy reveals the foundational truths of Christ's plan and eternal hope.

@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Explore the profound message of Jeremiah Chapter 14 through this detailed commentary, uncovering the intense lamentations caused by drought, the stark warnings of divine judgment, and the powerful prayer for mercy. Discover how this scripture illuminates the relationship between human sin, false prophets, and God's ultimate sovereignty, offering deep insights into repentance and trusting in divine provision during times of crisis.

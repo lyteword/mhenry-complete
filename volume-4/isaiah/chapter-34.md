@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 34 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 34 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "34"
 description: >
   Explore the terrifying prophecy of Isaiah 34, detailing the fatal doom awaiting nations that oppose God's people. This deep commentary reveals the scope of God's wrath, the wars of the Lord, and the certainty of divine judgment promised for Zion. Understand how this ancient text warns of universal desolation and the ultimate recompense for ungodliness.

@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
   Explore Jeremiah Chapter 28 through this in-depth Bible commentary, examining the dramatic conflict between the true prophet Jeremiah and the deceptive prophet Hananiah. This analysis delves into the theological implications of false prophecy versus divine truth, exploring themes of judgment, patient endurance, and God's ultimate sovereignty as symbolized by the breaking of the yoke of Babylon. Discover how the steadfastness of true faith prevails over deceit, offering profound insights into biblical prophecy and divine counsel.

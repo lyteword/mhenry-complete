@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Discover the profound message of Isaiah 16, a detailed biblical commentary on the fate of the nation of Moab. Explore the prophet's urgent call for repentance, the devastating prophecies of destruction, and the sobering lesson about the dangers of pride. Learn how divine judgment and mercy shape history and the ultimate triumph of God's word.

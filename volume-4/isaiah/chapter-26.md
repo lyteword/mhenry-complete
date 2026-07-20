@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
   Dive deep into the profound wisdom of Isaiah 26 with this comprehensive Bible commentary. Discover how to find unwavering divine peace, triumph over challenges, and maintain hope through every trial by trusting in the everlasting strength of the Lord. This essential guide illuminates the promise of glorious deliverance and spiritual resurrection for believers in all ages.

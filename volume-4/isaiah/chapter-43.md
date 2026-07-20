@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 43 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 43 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "43"
 description: >
   Discover the profound message of Isaiah 43, an inspiring guide to divine redemption and unwavering hope. This chapter powerfully assures believers of God's constant presence, His promises of deliverance from every trial, and the certainty of a "new thing" He will do for His chosen people. Dive into this powerful commentary to find comfort, challenge idols, and experience the overwhelming grace of God's forgiveness.

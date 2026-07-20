@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Uncover the profound theological depth of Ezekiel chapter 10 by exploring the awe-inspiring vision of God's glory, the terrifying judgment of the cherubim, and the intricate system of divine providence represented by the four wheels. This powerful biblical commentary reveals how angels and divine fire execute God's will, offering deep insight into spiritual warfare and the absolute sovereignty of the Almighty.

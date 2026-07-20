@@ -1,5 +1,5 @@
 ---
-title: "Malachi 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Malachi 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Dive deep into the profound theological message of Malachi Chapter 1. This expert commentary explores Israel's ingratitude, the heavy burden of God's word, and the severe judgment against priests who profaned God's name. Discover the call to repentance and the promise of God's glory through a new spiritual worship.

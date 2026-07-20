@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Discover the powerful warnings in Jeremiah Chapter 13, where God uses the signs of a marred girdle and bottles filled with wine to reveal the coming judgment upon Judah's pride and idolatry. This commentary explores the severe consequences of obstinacy and calls for a desperate call to repentance before utter ruin descends.

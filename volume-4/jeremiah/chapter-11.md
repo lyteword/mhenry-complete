@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Explore Jeremiah Chapter 11 to uncover the devastating consequences of Judah's stubborn disobedience to God's covenant. Discover the terrifying conspiracy against the prophet Jeremiah and witness God's severe, inescapable judgment through sword and famine. This deep commentary reveals profound truths about covenant obedience, idolatry, and divine sovereignty.

@@ -1,5 +1,5 @@
 ---
-title: "Amos 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Amos 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Explore Amos Chapter 6 in this comprehensive Bible commentary to understand the devastating consequences of human pride and false security. Discover the dire warnings of God's judgment—including impending captivity and widespread mortality—as the sinful people defy divine justice. This essential reading reveals why trusting in worldly power leads to ultimate ruin.

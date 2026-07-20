@@ -1,5 +1,5 @@
 ---
-title: "Obadiah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Obadiah 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore the powerful prophecy of Obadiah chapter 1, which details the downfall of the proud nation of Edom due to their violence and arrogance. This commentary reveals God's righteous judgment while offering profound hope for the ultimate salvation, sanctification on Mount Zion, and the establishment of the everlasting kingdom of the Messiah. Discover the divine plan for deliverance and the triumph of the Gospel over all earthly powers.

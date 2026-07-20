@@ -1,5 +1,5 @@
 ---
-title: "Ezekiel 42 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ezekiel 42 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "42"
 description: >
   Explore Ezekiel 42 through this comprehensive Bible Commentary to gain a profound understanding of the mystical temple's architecture and design. This detailed analysis reveals the purpose of the private chambers for priests and the vast biblical dimensions of the holy ground, offering deep insight into the balance between public worship and private devotion. Discover the theological significance of separation and holiness as described in Ezekiel 42.

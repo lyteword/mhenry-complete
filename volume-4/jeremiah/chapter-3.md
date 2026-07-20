@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Explore Jeremiah 3 to discover God's profound mercy and unwavering invitation for repentance. This powerful commentary delves into the dangers of idolatry and apostasy, offering a compelling call for backsliding Israel and Judah to return to the covenant. Discover the promises of restoration, spiritual healing, and the ultimate hope found in the Gospel Church.

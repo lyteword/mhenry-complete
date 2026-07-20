@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 41 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 41 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "41"
 description: >
   Dive deep into the Isaiah 41 commentary to understand the core themes of faith, divine sovereignty, and deliverance. This analysis powerfully confronts the dangers of idolatry while offering believers unwavering hope, promising strength and comfort from God in the midst of any wilderness.

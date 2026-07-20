@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 41 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 41 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "41"
 description: >
   Explore the tragic story of Jeremiah Chapter 41, detailing the brutal murder of Gedaliah by Ishmael and the ensuing massacre of the people. This powerful biblical commentary warns against the destructive pursuit of evil and the perils of worldly insecurity, exploring themes of captivity, betrayal, and God's ultimate righteousness.

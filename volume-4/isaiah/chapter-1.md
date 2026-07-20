@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Dive deep into Isaiah Chapter 1 with this comprehensive commentary, exploring God's severe judgment against national corruption, injustice, and spiritual decay. Discover the urgent call to repentance, the critique of empty rituals, and the divine pathway to true reformation. This study reveals profound lessons on seeking justice and living a life aligned with God's will.

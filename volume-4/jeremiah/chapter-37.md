@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 37 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 37 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "37"
 description: >
   Explore Jeremiah Chapter 37 to understand the dire warnings about the destruction of Jerusalem by the Chaldeans under King Zedekiah. This detailed commentary delves into the themes of divine judgment, prophetic faithfulness, and the surprising favor God showed Jeremiah even in prison. Discover the full biblical context of this pivotal moment in Israel's history.

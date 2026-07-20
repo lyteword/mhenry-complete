@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Uncover the profound meaning of Jeremiah chapter 1 with this comprehensive Bible commentary. Explore the divine call of the prophet, the terrifying vision of ruin, and God's powerful assurance that empowers Jeremiah to deliver a message of judgment against the nations. Dive deep into the themes of prophecy, faithfulness, and the inevitable calamity facing Judah.

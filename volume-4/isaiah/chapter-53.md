@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 53 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 53 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "53"
 description: >
   Dive deep into Isaiah 53 to uncover the gospel of the Messiah. This commentary meticulously examines the suffering, atonement, and triumphant glory of Christ, revealing how his sacrifice secures our justification, peace, and eternal victory over sin. Explore the profound theological truths of the Suffering Servant and find profound meaning for your faith.

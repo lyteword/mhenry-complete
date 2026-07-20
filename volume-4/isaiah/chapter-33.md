@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 33 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 33 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "33"
 description: >
   Dive into the profound message of Isaiah Chapter 33, exploring the harrowing distress of Judah under the threat of Sennacherib's Assyrian invasion. Discover how God's irresistible power leads to ultimate deliverance, providing security, wisdom, and the glorious future of Jerusalem for those who trust in Him. Uncover the powerful lessons on faith, divine judgment, and true strength in times of crisis.

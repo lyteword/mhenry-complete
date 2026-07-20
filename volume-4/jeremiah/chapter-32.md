@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 32 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 32 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "32"
 description: >
   Explore Jeremiah Chapter 32, where the prophet faces imprisonment while foretelling the destruction of Jerusalem and the captivity of Zedekiah. This powerful commentary delves into the tension between divine judgment and God's unwavering promises of future restoration, offering deep insights into faith, covenant, and finding hope amidst suffering.

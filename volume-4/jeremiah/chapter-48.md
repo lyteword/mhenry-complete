@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 48 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 48 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "48"
 description: >
   Explore the profound biblical prophecy of Jeremiah Chapter 48, detailing the complete and devastating judgment upon the nation of Moab. This commentary delves into the causes of their ruin—specifically pride, idolatry, and contempt for God—and the terrifying consequences of divine wrath. Discover the theological significance of this passage, including the promise of future restoration, for a deep understanding of God's justice and faithfulness.

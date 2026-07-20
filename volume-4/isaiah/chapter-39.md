@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 39 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 39 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "39"
 description: >
   Explore Isaiah chapter 39 to uncover the profound lessons hidden within the story of King Hezekiah's pride and folly. This commentary delves into the powerful prophecy of God's judgment concerning worldly treasures and the ultimate vanity of earthly respect. Discover how humility and true repentance lead to peace and truth in our lives.

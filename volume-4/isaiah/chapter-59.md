@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 59 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 59 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "59"
 description: >
   Explore the profound themes of Isaiah 59, examining how pervasive sin separates humanity from God and the resulting despair. Discover the glorious promise of redemption through Christ, the Redeemer, and the enduring New Covenant established by the Holy Spirit for eternal salvation and deliverance.

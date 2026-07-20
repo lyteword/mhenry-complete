@@ -1,5 +1,5 @@
 ---
-title: "Isaiah 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Isaiah 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Discover the powerful prophecy of destruction in Isaiah Chapter 8, detailing the coming judgment upon Israel and Judah by the King of Assyria. This commentary offers deep insight into the warnings against sin and the vital comfort found in relying on God's word and cultivating a genuine fear of the Lord amidst times of turmoil. Learn how Scripture serves as a sanctuary and guide for navigating life's greatest challenges.

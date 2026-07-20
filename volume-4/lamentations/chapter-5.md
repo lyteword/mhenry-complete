@@ -1,5 +1,5 @@
 ---
-title: "Lamentations 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Lamentations 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Explore Lamentations 5 in this detailed commentary to understand the historical and spiritual reality of national reproach, famine, and persecution. Discover the profound theme of repentance, the weight of ancestral sin, and the ultimate hope found in a fervent prayer for God's enduring mercy and return.

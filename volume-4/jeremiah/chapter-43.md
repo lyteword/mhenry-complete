@@ -1,5 +1,5 @@
 ---
-title: "Jeremiah 43 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Jeremiah 43 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "43"
 description: >
   Uncover the profound theological depth of Jeremiah chapter 43 with this expert commentary. This analysis delves into the people's stubborn rejection of God's word, the consequences of their disobedience, and the powerful prophecy detailing the destruction of Egypt by Nebuchadnezzar. Explore how God sovereignly uses prophets to fulfill His ultimate plan of judgment and redemption.

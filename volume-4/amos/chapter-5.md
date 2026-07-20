@@ -1,5 +1,5 @@
 ---
-title: "Amos 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Amos 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Discover the powerful prophetic message of Amos 5, detailing the devastating consequences of Israel's idolatry, social injustice, and hypocrisy. This commentary explores God's urgent call for repentance, emphasizing that seeking the Lord and establishing true justice is the only path to deliverance from judgment and ruin.

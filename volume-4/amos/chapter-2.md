@@ -1,5 +1,5 @@
 ---
-title: "Amos 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Amos 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Dive deep into Amos Chapter 2 with this comprehensive biblical commentary, exploring the severe divine judgment against Israel for injustice, oppression, and idolatry. Discover the critical tension between God's unwavering mercy and the consequences of ungrateful sin, examining the role of prophets and the ultimate warnings of inescapable ruin. Perfect for in-depth Bible study and understanding spiritual warfare.

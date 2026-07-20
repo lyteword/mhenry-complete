@@ -1,5 +1,5 @@
 ---
-title: "Haggai 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Haggai 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore Haggai Chapter 1 to understand the powerful call to rebuild the Temple and the severe divine judgment that followed the people's neglect. This in-depth biblical commentary reveals how persistent obedience, coupled with God's unwavering presence, leads to restoration and success in spiritual endeavors. Discover the lessons on self-examination and diligent work that apply to your life today.
