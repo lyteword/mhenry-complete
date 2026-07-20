@@ -2,7 +2,7 @@
 title: "Isaiah 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
 description: >
-  In this chapter we have, I. A threatening of the paucity and scarceness of man (Isa 4:1), which might fitly enough have been added to the close of the foregoing chapter, to which i...
+  Explore Isaiah 4 to uncover the profound prophecies of scarcity and ultimate restoration. This chapter details the humbling of the people of Zion but promises the glorious return of peace, righteousness, and safety through the Messiah. Discover the hope of the remnant, the power of God's grace, and the enduring security of the Church in the face of any trial.
 weight: 4
 ---
 
