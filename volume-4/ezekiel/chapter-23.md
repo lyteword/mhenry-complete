@@ -2,7 +2,7 @@
 title: "Ezekiel 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
 description: >
-  This long chapter (as before Eze 16:1-62,20:1-44) is a history of the apostasies of God's people from him and the aggravations of those apostasies under the similitude of corporal ...
+  Dive deep into Ezekiel 23 to understand the biblical narrative of apostasy, chronicling the sins of Israel and Judah—from idolatry and sexual immorality to broken covenants. This powerful commentary reveals the terrifying consequences of forsaking God's covenant and the ultimate, just judgment of divine wrath. Discover the timeless warning against the destructive nature of sin and the path to purification.
 weight: 23
 ---
 
