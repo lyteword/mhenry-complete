@@ -2,7 +2,7 @@
 title: "Ezekiel 40 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "40"
 description: >
-  The waters of the sanctuary which this prophet saw in vision (Eze 47:1) are a proper representation of this prophecy. Hitherto the waters have been sometimes but to the ankles, in ...
+  Uncover the profound blueprint of God's eternal plan in Ezekiel Chapter 40. This detailed vision reveals the glorious design of the spiritual Gospel-Church, showing how the physical temple foreshadows Christ as the ultimate sanctuary. Explore the intricate architecture, sacred rituals, and divine measurements that guide believers toward true worship and ultimate glory.
 weight: 40
 ---
 
