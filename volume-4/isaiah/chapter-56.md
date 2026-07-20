@@ -2,7 +2,7 @@
 title: "Isaiah 56 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "56"
 description: >
-  After the exceedingly great and precious promises of gospel grace, typified by temporal deliverances, which we had in the foregoing chapter, we have here, I. A solemn charge given ...
+  Explore Isaiah 56 to discover the profound balance between God's great salvation and our solemn duty to live righteously, including observing the Sabbath and pursuing justice. This commentary offers powerful encouragement to strangers and Gentiles joining the covenant, promising them a place and an everlasting name in God's house. Learn how to avoid the pitfalls of negligence and heed the warning against careless watchmen to embrace true faith.
 weight: 56
 ---
 
