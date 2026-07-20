@@ -2,7 +2,7 @@
 title: "Ezekiel 6 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "6"
 description: >
-  In this chapter we have, I. A threatening of the destruction of Israel for their idolatry, and the destruction of their idols with them, Eze 6:1-7. II. A promise of the gracious re...
+  Explore Ezekiel Chapter 6 to understand the profound contrast between God's righteous judgment against Israel's idolatry and the promise of mercy for a faithful remnant. This powerful commentary delves into the devastating consequences of worshipping idols, the sorrowful lamentations of the prophet, and the path to salvation through genuine repentance. Discover how true repentance allows a remnant to escape destruction and acknowledge God's sovereignty.
 weight: 6
 ---
 
