@@ -2,7 +2,7 @@
 title: "Isaiah 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
 description: >
-  The prophet in this chapter (according to the directions given him, Isa 3:10,11) saith to the righteous, It shall be well with thee, but Woe to the wicked, it shall be ill with him...
+  Discover the profound message of Isaiah 9, where the darkness of despair is banished by the glorious light of the Messiah and the Gospel. This chapter unveils the promises of a glorious, everlasting kingdom of peace and divine government, alongside stark warnings of judgment for those who reject God's grace. Explore the prophecy of Immanuel and the ultimate hope found in Christ's reign over all creation.
 weight: 9
 ---
 
