@@ -2,7 +2,7 @@
 title: "Isaiah 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
 description: >
-  Whatever country it is that is meant here by "the land shadowing with wings," here is a woe denounced against it, for God has, upon his people's account, a quarrel with it. I. They...
+  Explore Isaiah 18, a profound biblical prophecy detailing God's judgment against threatening nations and His unwavering divine protection for His people. This commentary delves into the sovereignty of God, explaining how His providence ensures that even when enemies seem victorious, He intervenes to bring about ultimate victory and honor. Discover the deep theological insights into divine warfare, national fate, and the lasting triumph of the Lord of hosts.
 weight: 18
 ---
 
