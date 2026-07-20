@@ -2,7 +2,7 @@
 title: "Isaiah 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
 description: >
-  This chapter is concerning Tyre, an ancient wealthy city, situated upon the sea, and for many ages one of the most celebrated cities for trade and merchandise in those parts of the...
+  Discover the dramatic biblical prophecy of Isaiah Chapter 23, detailing the rise and catastrophic fall of the ancient, wealthy trading city of Tyre. This profound text explores the vanity of earthly pride, showing how immense commercial glory can be utterly destroyed, and promises a powerful restoration where worldly wealth is transformed into holiness for God's service. Explore the deep lessons on pride, commerce, and spiritual devotion within this timeless scripture.
 weight: 23
 ---
 
