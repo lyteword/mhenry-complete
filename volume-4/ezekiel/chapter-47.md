@@ -2,7 +2,7 @@
 title: "Ezekiel 47 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "47"
 description: >
-  In this chapter we have, I. The vision of the holy waters, their rise, extent, depth, and healing virtue, the plenty of fish in them, and an account of the trees growing on the ban...
+  Discover the profound spiritual significance of Ezekiel chapter 47, exploring the vision of the Holy Waters—a powerful symbol for the Gospel of Christ, living water, and divine healing. This commentary reveals how God's grace grows, bringing life to everything, and how the promises of inheritance secure the future for believers and all who seek God's blessing. Dive deep into this prophetic text to unlock powerful truths about spiritual growth and eternal life.
 weight: 47
 ---
 
