@@ -2,7 +2,7 @@
 title: "Joel 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
 description: >
-  In this chapter we have, I. A further description of that terrible desolation which should be made in the land of Judah by the locusts and caterpillars, Joe 2:1-11. II. A serious c...
+  Explore Joel Chapter 2 through this expert commentary on the terrifying judgments of the locusts and the urgent call to repentance. Discover the profound promise of God's mercy, restoration, and the powerful outpouring of the Holy Spirit in the last days. Learn how turning to God through genuine sorrow leads to abundant blessing and spiritual revival.
 weight: 2
 ---
 
