@@ -2,7 +2,7 @@
 title: "Zechariah 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
 description: >
-  In this chapter we have, I. Another vision which the prophet saw, not for his own entertainment, but for his satisfaction and the edification of those to whom he was sent, Zec 2:1,...
+  Explore the profound prophecy of Zechariah chapter 2, detailing the vision of a measuring line that assures the replenishment, safety, and glory of Jerusalem. Discover the powerful call for the people of Zion to return from Babylon, coupled with the promise of God's divine presence and the ultimate victory through the advent of Christ. This commentary unpacks the themes of restoration, liberty, and the enduring hope for a glorious future.
 weight: 2
 ---
 
