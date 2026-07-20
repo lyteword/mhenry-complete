@@ -2,7 +2,7 @@
 title: "Ezekiel 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
 description: >
-  Perhaps, in reading some of the foregoing chapters, we may have been tempted to think ourselves not much concerned in them (though they also were written for our learning); but thi...
+  Explore Ezekiel 18 to understand God's profound rule of judgment, which emphasizes personal accountability over inherited guilt. This commentary delves into the contrast between the fate of the wicked and the righteous, offering a powerful call to repentance and assurance that turning to God leads to eternal life. Discover how God's mercy waits for those who turn from their sins and embrace a new heart.
 weight: 18
 ---
 
