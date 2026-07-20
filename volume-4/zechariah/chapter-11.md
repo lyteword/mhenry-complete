@@ -2,7 +2,7 @@
 title: "Zechariah 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
 description: >
-  God's prophet, who, in the chapters before, was an ambassador sent to promise peace, is here a herald sent to declare war. The Jewish nation shall recover its prosperity, and shall...
+  Uncover the profound message of Zechariah 11, detailing the prophecy of the Jewish nation's downfall and the pivotal role of the Messiah as the ultimate Shepherd. This expert commentary explores the failures of false leadership, the breaking of covenant, and how Christ's true compassion saves the lost flock.
 weight: 11
 ---
 
