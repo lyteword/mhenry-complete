@@ -2,7 +2,7 @@
 title: "Isaiah 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  The prophet, in this chapter, goes on to foretel the desolations that were coming upon Judah and Jerusalem for their sins, both that by the Babylonians and that which completed the...
+  Explore the profound biblical commentary on Isaiah Chapter 3, detailing the devastating prophecies of desolation and divine judgment awaiting Judah and Jerusalem due to their sins and pride. This deep dive reveals why God strips their nation of all supports, leading to national ruin and personal consequences. Understand the warnings of ancient prophecy and the path to repentance.
 weight: 3
 ---
 
