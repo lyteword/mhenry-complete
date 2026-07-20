@@ -2,7 +2,7 @@
 title: "Isaiah 39 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "39"
 description: >
-  The story of this chapter likewise we had before, 2Ki 20:12, etc. It is here repeated, not only as a very memorable and improvable passage, but because it concludes with a prophecy...
+  Explore Isaiah chapter 39 to uncover the profound lessons hidden within the story of King Hezekiah's pride and folly. This commentary delves into the powerful prophecy of God's judgment concerning worldly treasures and the ultimate vanity of earthly respect. Discover how humility and true repentance lead to peace and truth in our lives.
 weight: 39
 ---
 
