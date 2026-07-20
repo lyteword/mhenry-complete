@@ -2,7 +2,7 @@
 title: "Isaiah 17 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "17"
 description: >
-  Syria and Ephraim were confederate against Judah (Isa 7:1,2), and, they being so closely linked together in their counsels, this chapter, though it be entitled "the burden of Damas...
+  Dive deep into the detailed commentary on Isaiah 17, analyzing the prophecy of Damascus's downfall and the devastating judgment upon Israel. This chapter reveals the contrast between worldly pride and the promise of a faithful remnant preserved through God's enduring grace amidst national ruin. Discover the biblical truth behind divine judgment and the hope for preservation.
 weight: 17
 ---
 
