@@ -2,7 +2,7 @@
 title: "John 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
 description: >
-  It is generally agreed that Christ's discourse in this and the next chapter was at the close of the last supper, the night in which he was betrayed, and it is a continued discourse...
+  Discover the profound truths of John Chapter 15 as you explore the relationship between Christ and His followers. This powerful commentary reveals how to achieve true fruitfulness, enduring spiritual growth, and unbreakable love by learning to truly abide in Christ, the True Vine. Learn how to navigate the world's hatred and persevere in faith by embracing the covenant of discipleship.
 weight: 15
 ---
 
