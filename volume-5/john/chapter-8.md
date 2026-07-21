@@ -2,7 +2,7 @@
 title: "John 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
 description: >
-  In this chapter we have, I. Christ's evading the snare which the Jews laid for him, in bringing to him a woman taken in adultery, Joh 8:1-11. II. Divers discourses or conferences o...
+  Uncover the rich theology of John 8 in this detailed commentary. Discover Christ's mastery in handling moral trials like the woman taken in adultery, alongside essential teachings on following the Light of the World, true testimony, and the path from sin to salvation.
 weight: 8
 ---
 
