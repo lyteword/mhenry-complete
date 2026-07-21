@@ -2,7 +2,7 @@
 title: "Luke 8 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "8"
 description: >
-  Most of this chapter is a repetition of divers passages of Christ's preaching and miracles which we had before in Matthew and Mark; they are all of such weight, that they are worth...
+  Dive deep into Luke 8 with this expert commentary on the Parable of the Sower, revealing the secrets to cultivating a heart receptive to the Kingdom of God. Uncover the undeniable power of Jesus through accounts of miraculous healing and divine authority over nature and spiritual darkness. Learn how true Christian faith transforms your life and brings forth lasting fruit.
 weight: 8
 ---
 
