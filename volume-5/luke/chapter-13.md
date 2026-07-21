@@ -2,7 +2,7 @@
 title: "Luke 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
 description: >
-  In this chapter we have, I. The good improvement Christ made of a piece of news that was brought him concerning some Galileans, that were lately massacred by Pilate, as they were s...
+  Explore Luke Chapter 13 through this detailed biblical commentary, delving into profound themes of repentance, the call to strive for salvation, and the miraculous power of Christ's healing. Discover the lessons from the barren fig-tree parable and the mysteries of the Kingdom of God that urge us toward true transformation before it's too late.
 weight: 13
 ---
 
