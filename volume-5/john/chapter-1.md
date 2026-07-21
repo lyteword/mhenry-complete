@@ -2,7 +2,7 @@
 title: "John 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
 description: >
-  The scope and design of this chapter is to confirm our faith in Christ as the eternal Son of God, and the true Messiah and Saviour of the world, that we may be brought to receive h...
+  Uncover the foundational truths of John Chapter 1 to explore the profound theological proof of Jesus Christ's divinity—the eternal Word who co-existed with God and created all things. Discover why Christ is the true Light and the ultimate Mediator who offers salvation and eternal life to humanity. Dive into this essential commentary to solidify your faith in the Messiah.
 weight: 1
 ---
 
