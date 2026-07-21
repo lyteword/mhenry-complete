@@ -2,7 +2,7 @@
 title: "Mark 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
 description: >
-  We have here the substance of that prophetical sermon which our Lord Jesus preached, pointing at the destruction of Jerusalem, and the consummation of all things; it was one of the...
+  Uncover the profound prophecies of Mark 13 in this comprehensive commentary. Explore detailed insights into the destruction of Jerusalem, the rise of deceivers, and the signs of the end of the world. Learn the crucial lessons on watchfulness and spiritual preparation for Christ's Second Coming.
 weight: 13
 ---
 
