@@ -2,7 +2,7 @@
 title: "John 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
 description: >
-  This evangelist, though he began not his gospel as the rest did, yet concludes it as they did, with the history of Christ' resurrection; not of the thing itself, for none of them d...
+  Uncover the definitive scriptural evidence for the resurrection of Jesus in John 20. This chapter details the miraculous events at the empty tomb, the comforting vision of angels, and the profound theological meaning of Christ's victory over death. Discover how Mary Magdalene's steadfast faith and the apostles' pursuit of truth guide believers toward eternal life and hope.
 weight: 20
 ---
 
