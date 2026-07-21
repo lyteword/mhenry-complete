@@ -2,7 +2,7 @@
 title: "John 18 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "18"
 description: >
-  Hitherto this evangelist has recorded little of the history of Christ, only so far as was requisite to introduce his discourses; but now that the time drew nigh that Jesus must die...
+  Explore the pivotal moments of John 18, from Jesus' arrest and the treacherous betrayal by Judas to the intense confrontation before the High Priest. This in-depth Bible commentary unpacks the theological weight of Christ's suffering, Peter's denial, and the meaning behind the 'captain of salvation' narrative. Understand the true meaning of surrender and faith in this essential study of Christ's Passion.
 weight: 18
 ---
 
