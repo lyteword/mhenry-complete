@@ -2,7 +2,7 @@
 title: "Luke 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
 description: >
-  All the evangelists, whatever they omit, give us a particular account of the death and resurrection of Christ, because he died for our sins and rose for our justification, this eva...
+  Dive deep into Luke Chapter 22 with this complete commentary, exploring the dramatic plot of Christ's betrayal, the solemn institution of the Lord's Supper, and the profound meaning of the Passover. Uncover the powerful theological insights on discipleship, Christ's agony in the garden, and the ultimate redemption found in the shedding of Christ's blood. Essential reading for understanding the core of Christian faith and the meaning of sacrifice.
 weight: 22
 ---
 
