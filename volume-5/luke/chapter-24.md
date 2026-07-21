@@ -2,7 +2,7 @@
 title: "Luke 24 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "24"
 description: >
-  Our Lord Jesus went gloriously down to death, in spite of the malice of his enemies, who did all they could to make his death ignominious; but he rose again more gloriously, of whi...
+  Dive deep into Luke Chapter 24 and explore the undeniable proofs of Jesus Christ's resurrection, from the angels' testimony to the transformative encounter on the road to Emmaus. This detailed biblical commentary reveals how scripture confirms the truth of Christ rising from the dead, strengthening your faith and providing profound insights into the meaning of His victory.
 weight: 24
 ---
 
