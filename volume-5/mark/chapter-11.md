@@ -2,7 +2,7 @@
 title: "Mark 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
 description: >
-  We are now come to the Passion-Week, the week in which Christ died, and the great occurrences of that week. I. Christ's riding in triumph into Jerusalem, Mk 11:1-11. II. His cursin...
+  Discover the profound theological depth of Mark chapter 11 through this expert commentary on the Passion Week. Explore Christ's triumphant entry into Jerusalem, the symbolic meaning of the cursed fig-tree, and the powerful lessons on cultivating unwavering faith and effective prayer. Uncover the divine authority behind Christ's actions and learn how these timeless biblical truths apply to your life today.
 weight: 11
 ---
 
