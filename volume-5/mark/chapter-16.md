@@ -2,7 +2,7 @@
 title: "Mark 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
 description: >
-  In this chapter, we have a short account of the resurrection and ascension of the Lord Jesus: and the joys and triumphs which it furnished all believers with, will be very acceptab...
+  Discover the powerful account in Mark 16 detailing the resurrection and ascension of Jesus Christ. Learn about the profound joy of the believers and the divine commission to preach the gospel to every creature. Explore the signs that followed Christ's triumph and how steadfast Christian faith leads to eternal salvation.
 weight: 16
 ---
 
