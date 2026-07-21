@@ -2,7 +2,7 @@
 title: "Luke 16 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "16"
 description: >
-  The scope of Christ's discourse in this chapter is to awaken and quicken us all so to use this world as not to abuse it, so to manage all our possessions and enjoyments here as tha...
+  Uncover the powerful message of Luke 16 on true stewardship. This deep commentary explores how to wisely manage your earthly resources, contrasting the fate of the indulgent rich man with the godly poor man. Learn the critical lesson on avoiding the 'mammon of unrighteousness' to secure eternal life and favor in God's eyes.
 weight: 16
 ---
 
