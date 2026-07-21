@@ -2,7 +2,7 @@
 title: "Mark 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
 description: >
-  In this chapter we have, I. Christ's dispute with the scribes and Pharisees about eating meat with unwashen hands (Mk 7:1-13); and the needful instructions he gave to the people on...
+  Dive deep into Mark 7 to understand Christ's profound teaching on internal purification versus external tradition. This chapter explores the true source of defilement and showcases Christ's boundless mercy through compelling stories like the Syrophenician woman and the miraculous cure of the deaf and dumb. Discover how to discern genuine faith from mere ritual and embrace God's universal compassion.
 weight: 7
 ---
 
