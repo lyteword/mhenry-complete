@@ -2,7 +2,7 @@
 title: "Mark 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
 description: >
-  In this chapter, we have, I. The parable of the vineyard let out to unthankful husbandmen, representing the sin and ruin of the Jewish church, Mk 12:1-12. II. Christ's silencing th...
+  Dive deep into Mark chapter 12 with this expert commentary, exploring profound themes like the parable of the vineyard, Christ's authority over religious disputes, and the foundational Great Commandments. Discover essential lessons on Christian ethics, true charity demonstrated by the poor widow, and the core truth of the resurrection doctrine.
 weight: 12
 ---
 
