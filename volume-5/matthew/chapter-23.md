@@ -1,8 +1,8 @@
 ---
-title: "Matthew 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
-  In the foregoing chapter, we had our Saviour's discourses with the scribes and Pharisees; here we have his discourse concerning them, or rather against them. I. He allows their off...
+  Dive deep into Matthew 23 as Jesus delivers a powerful, searing critique against the hypocrisy, pride, and legalistic formalism of the scribes and Pharisees. Discover why outward show is worthless and learn the crucial lessons on true humility, genuine faith, and avoiding the pitfalls of religious pretense to secure your salvation.
 weight: 23
 ---
 

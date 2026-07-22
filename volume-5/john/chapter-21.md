@@ -1,8 +1,8 @@
 ---
-title: "John 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
-  The evangelist seemed to have concluded his history with the foregoing chapter; but (as St. Paul sometimes in his epistles), new matter occurring, he begins again. He had said that...
+  Uncover the profound theological depth of John chapter 21 in this Matthew Henry Bible Commentary, exploring Christ's miraculous appearance to his disciples and the intimate discourse with Peter. This chapter powerfully illuminates themes of divine providence, the necessity of diligent labor, and the sacred mandate of discipleship—feeding the flock with love and service. Discover how Christ demonstrates His unwavering care and commissions His followers for their ongoing mission in the world.
 weight: 21
 ---
 

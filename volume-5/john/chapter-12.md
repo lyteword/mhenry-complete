@@ -1,8 +1,8 @@
 ---
-title: "John 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
-  It was a melancholy account which we had in the close of the foregoing chapter of the dishonour done to our Lord Jesus, when the scribes and Pharisees proclaimed him a traitor to t...
+  Uncover the profound theological depth of John Chapter 12 with this expert commentary. Explore the diverse honors bestowed upon Jesus Christ—from Mary's devoted anointing to the triumphant entry into Jerusalem—and dissect the intricate themes of divine love, human hypocrisy, and the fulfillment of prophecy. Dive deep into the biblical narrative to gain a richer understanding of the Messiah's glory and the true meaning of faith.
 weight: 12
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "John 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  In the close of the foregoing chapter we had an account of the first disciples whom Jesus called, Andrew and Peter, Philip and Nathanael. These were the first-fruits to God and to ...
+  Dive deep into John Chapter 2 and uncover the story of Christ's initial miracles, including the miraculous transformation of water into wine, which signifies the arrival of the Gospel. Discover the deep theological meaning behind Jesus's ministry and the powerful symbolism of his temple cleansing, hinting at the glory of his resurrection.
 weight: 2
 ---
 

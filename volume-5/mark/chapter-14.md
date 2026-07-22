@@ -1,8 +1,8 @@
 ---
-title: "Mark 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
-  In this chapter begins the account which this evangelist gives of the death and sufferings of our Lord Jesus, which we are all concerned to be acquainted, not only with the history...
+  Dive deep into Mark chapter 14 with this expert commentary on the critical events leading to the Passion of Christ. Explore the profound spiritual meaning of the Last Supper, Jesus's agony in the Garden, and the shocking betrayal by Judas. Understand the covenant, the blood of the New Testament, and how Christ's suffering paved the way for ultimate redemption.
 weight: 14
 ---
 

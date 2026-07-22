@@ -1,8 +1,8 @@
 ---
-title: "Luke 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
-  In this chapter we have, I. The cure which our Lord Jesus wrought upon a man that had the dropsy, on the sabbath day, and his justifying himself therein against those who were offe...
+  Discover the profound lessons of Luke 14, exploring essential themes of humility, radical charity, and the true cost of discipleship. Learn how Jesus teaches us to reject pride, serve the poor, and prepare for the feast in the Kingdom of God through deliberate self-denial. This chapter offers powerful guidance on how to live a life of genuine faith and lasting spiritual reward.
 weight: 14
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Matthew 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
-  It is a very affecting story which is recorded in this chapter concerning the sufferings and death of our Lord Jesus. Considering the thing itself, there cannot be a more tragical ...
+  Dive into the profound theological meaning of Matthew 27 with this in-depth commentary on the sufferings and death of Jesus. This analysis meticulously examines the trial before Pilate, the tragedy of Judas's betrayal, and the symbolic significance of the blood of Christ and the 'field of blood.' Uncover the gospel truth and understand the justice revealed through the cross.
 weight: 27
 ---
 

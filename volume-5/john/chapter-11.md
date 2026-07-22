@@ -1,8 +1,8 @@
 ---
-title: "John 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
-  In this chapter we have the history of that illustrious miracle which Christ wrought a little before his death—the raising of Lazarus to life, which is recorded only by this evange...
+  Uncover the powerful message of John 11 with this in-depth Bible commentary on the raising of Lazarus. Discover how Christ's miracle serves as the crowning proof of his mission, exploring profound themes of death, resurrection, and the assurance of eternal life.
 weight: 11
 ---
 

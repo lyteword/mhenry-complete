@@ -1,8 +1,8 @@
 ---
-title: "Mark 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
-  In this chapter, we have, I. Christ's dispute with the Pharisees concerning divorce, Mk 10:1-12. II. The kind entertainment he gave to the little children that were brought to him ...
+  Discover profound theological truths in Mark Chapter 10, exploring Christ's teachings on the sanctity of marriage, the true path to the Kingdom of God for the rich, and the necessity of following Him through suffering. This commentary delves into themes of humility, divine mercy shown through healing, and the powerful message that with God, all things are possible. Read this essential guide to understand eternal life and the true meaning of discipleship.
 weight: 10
 ---
 

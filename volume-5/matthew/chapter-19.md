@@ -1,8 +1,8 @@
 ---
-title: "Matthew 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
-  In this chapter, we have, I. Christ changing his quarters, leaving Galilee, and coming into the coasts of Judea, Mt 19:1,2. II. His dispute with the Pharisees about divorce, and hi...
+  Explore Matthew 19 to uncover profound truths about marriage, divorce, and the path to eternal life. This expert commentary illuminates Christ's teaching on the unbreakable bond of "one flesh," the power of God's grace over human hardness, and the ultimate lesson for those seeking true perfection through obedience to God's commandments.
 weight: 19
 ---
 

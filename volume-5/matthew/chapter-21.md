@@ -1,8 +1,8 @@
 ---
-title: "Matthew 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
-  The death and resurrection of Jesus Christ are the two main hinges upon which the door of salvation turns. He came into the world on purpose to give his life a ransom; so he had la...
+  Dive deep into Matthew Chapter 21 with this expert commentary, exploring the dramatic events of the Passion Week, from Christ's triumphant entry into Jerusalem to his powerful cleansing of the Temple. Discover profound lessons on the nature of spiritual authority, the judgment against hypocrisy exemplified by the cursed fig-tree, and how unwavering faith leads to receiving 'all things whatsoever' from God. Perfect for serious Bible study, this summary reveals how Christ's actions fulfill scripture and challenge your understanding of true kingship.
 weight: 21
 ---
 

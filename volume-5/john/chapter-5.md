@@ -1,8 +1,8 @@
 ---
-title: "John 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
-  We have in the gospels a faithful record of all that Jesus began both to do and to teach, Ac 1:1. These two are interwoven, because what he taught explained what he did, and what h...
+  Unlock the deep theological secrets of John Chapter 5 with this expert commentary. Dive into the miracle at the Pool of Bethesda, explore Christ's supreme divine authority as the Mediator, and discover how His word brings both physical healing and everlasting spiritual life. Perfect for in-depth Bible study and understanding the true power of the Messiah.
 weight: 5
 ---
 

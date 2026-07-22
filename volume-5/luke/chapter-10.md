@@ -1,8 +1,8 @@
 ---
-title: "Luke 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
-  In this chapter we have, I. The ample commission which Christ gave to the seventy disciples to preach the gospel, and to confirm it by miracles; and the full instructions he gave t...
+  Unlock the profound teachings of Luke Chapter 10, exploring the ample commission Christ gave to the seventy disciples and the vital instructions for effective ministry. Discover the core of eternal life through Jesus' powerful discourse on the two Great Commandments—loving God and loving your neighbor—illustrated by the timeless parable of the Good Samaritan. Learn how to embrace your calling, conquer spiritual warfare, and find true fulfillment in Christ's kingdom.
 weight: 10
 ---
 

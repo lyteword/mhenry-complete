@@ -1,8 +1,8 @@
 ---
-title: "Matthew 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  At the start of this chapter, concerning the baptism of John, begins the gospel (Mk 1:1); what went before is but preface or introduction; this is "the beginning of the gospel of J...
+  Dive deep into Matthew 3 with this expert commentary on the pivotal baptism of John the Baptist and the inauguration of the Gospel. Explore the powerful message of repentance, the call to flee from wrath, and the profound humility of Christ's own baptism, revealing the true path to the Kingdom of Heaven.
 weight: 3
 ---
 

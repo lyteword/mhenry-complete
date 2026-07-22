@@ -1,8 +1,8 @@
 ---
-title: "John 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
-  Our Saviour having finished his public discourses, in which he "endured the contradiction of sinners," now applies himself to a private conversation with his friends, in which he d...
+  Discover the profound lesson of humility in John Chapter 13 as Jesus washes his disciples' feet, revealing the depth of his selfless love and servant leadership. This powerful passage explores the true meaning of brotherly love, the necessity of obedience, and the spiritual cleansing required for true discipleship. Uncover the intricate foreshadowing of betrayal and the vital instruction on bearing witness to Christ's sacrificial death.
 weight: 13
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Luke 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
-  In this chapter we have, I. The conversion of Zaccheus the publican at Jericho, Lu 19:1-10. II. The parable of the pounds which the king entrusted with his servants, and of his reb...
+  Explore Luke Chapter 19 to uncover profound lessons on radical conversion through Zaccheus, the wisdom of stewardship revealed in the parable of the pounds, and the paradox of Christ's triumph amidst his lamentation for Jerusalem's fate. This commentary delves deep into themes of repentance, true discipleship, and the nature of heavenly glory, urging readers to reflect on how they can live with faith and purpose today. Discover the powerful call to seek and save, and understand what it truly means to be a true convert.
 weight: 19
 ---
 

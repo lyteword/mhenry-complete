@@ -1,8 +1,8 @@
 ---
-title: "John 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
-  This chapter is a prayer, it is the Lord's prayer, the Lord Christ's prayer. There was one Lord's prayer which he taught us to pray, and did not pray himself, for he needed not to ...
+  Unlock the secrets of the Lord's Prayer in this comprehensive commentary on John 17. Discover Christ's powerful intercession for believers, exploring the petitions for sanctification, unity, and eternal glory, offering profound instruction for your personal prayer life and understanding of God's sovereign will.
 weight: 17
 ---
 

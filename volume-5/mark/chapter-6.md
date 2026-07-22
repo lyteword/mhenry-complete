@@ -1,8 +1,8 @@
 ---
-title: "Mark 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  A great variety of observable passages we have, in this chapter, concerning our Lord Jesus, the substance of all which we had before in Matthew, but divers circumstances we have, w...
+  Dive deep into Mark Chapter 6 to explore pivotal moments of Jesus' ministry: from facing local contempt and the commissioning of the apostles to the miraculous feeding of the multitudes. This chapter offers profound insights into divine provision, the power of faith in the face of adversity, and Christ's compassionate presence during life's greatest struggles.
 weight: 6
 ---
 

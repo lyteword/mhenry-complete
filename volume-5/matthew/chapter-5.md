@@ -1,8 +1,8 @@
 ---
-title: "Matthew 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
-  This chapter, and the two that follow it, are a sermon; a famous sermon; the sermon upon the mount. It is the longest and fullest continued discourse of our Saviour that we have up...
+  Discover the profound Sermon on the Mount, where Jesus reveals the true path to blessedness through eight paradoxical beatitudes. Learn practical principles on becoming the salt of the earth and the light of the world to live a life of righteousness, peace, and enduring spiritual joy. This essential guide transforms your practice and sets the standard for authentic Christian discipleship.
 weight: 5
 ---
 

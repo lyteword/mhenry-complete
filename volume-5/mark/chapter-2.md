@@ -1,8 +1,8 @@
 ---
-title: "Mark 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  In this chapter, we have, I. Christ's healing a man that was sick of a palsy, Mk 2:1-12. II. His calling of Matthew from the receipt of custom, and his eating, upon that occasion, ...
+  Dive deep into Mark chapter 2 to explore the profound teachings of Jesus, from the miracle of healing the paralytic to the theological debate on the forgiveness of sins. This expert commentary reveals why Christ intentionally called sinners to repentance and how He redefined the Sabbath law through an act of ultimate compassion and divine authority. Uncover the powerful lessons on faith, mercy, and the true meaning of spiritual healing in this essential Bible commentary.
 weight: 2
 ---
 

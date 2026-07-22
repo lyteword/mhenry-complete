@@ -1,8 +1,8 @@
 ---
-title: "Luke 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  In this chapter we have Christ's exposition of the moral law, which he came not to destroy, but to fulfil, and to fill up, by his gospel. I. Here is a proof of the lawfulness of wo...
+  Explore Luke Chapter 6 to discover Christ's profound exposition of the moral law, offering practical guidance on works of mercy, radical forgiveness, and true justice. This essential commentary reveals how to live a life of blessing by embracing humility, loving your enemies, and building a foundation of faith that withstands worldly trials.
 weight: 6
 ---
 

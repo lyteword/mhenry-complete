@@ -1,8 +1,8 @@
 ---
-title: "John 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
-  Among other glorious things God hath spoken of himself this is one, I wound, and I heal, De 32:39. Christ's discourse in this chapter, which continues and concludes his farewell se...
+  Explore John chapter 16 with this complete Matthew Henry Bible Commentary to understand Christ's powerful farewell discourse. Discover the profound comfort promised by the Holy Spirit, learning about the prophecies of persecution and the assurance of peace amidst worldly troubles. This commentary offers deep theological insight into suffering, the necessity of Christ's departure, and the ultimate victory of God's truth.
 weight: 16
 ---
 

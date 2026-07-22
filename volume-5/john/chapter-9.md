@@ -1,8 +1,8 @@
 ---
-title: "John 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
-  After Christ's departure out of the temple, in the close of the foregoing chapter, and before this happened which is recorded in this chapter, he had been for some time abroad in t...
+  Dive deep into John Chapter 9 to uncover the powerful miracle of sight given to a man born blind, and explore the profound theological discourse on God's works and Christ's role as the light of the world. Learn how this pivotal story teaches us about faith, obedience, and how to manifest God's glory in our lives.
 weight: 9
 ---
 

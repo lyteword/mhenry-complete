@@ -1,8 +1,8 @@
 ---
-title: "Luke 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  Nothing is related concerning our Lord Jesus from his twelfth year to his entrance on his thirtieth year. We often think it would have been a pleasure and advantage to us if we had...
+  Dive deep into the Luke 3 commentary to explore the powerful ministry of John the Baptist and the profound meaning of his baptism. Discover how this chapter sets the stage for the Messiah's arrival and unveils the divine genealogy of Christ, revealing his unique nature as the Son of God.
 weight: 3
 ---
 

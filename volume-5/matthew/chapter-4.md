@@ -1,8 +1,8 @@
 ---
-title: "Matthew 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
-  John Baptist said concerning Christ, He must increase, but I must decrease; and so it proved. For, after John had baptized Christ, and borne his testimony to him, we hear little mo...
+  Explore the intense temptation Christ faced in Matthew 4, as this in-depth commentary breaks down the devil's assaults and Christ's triumphant, scripture-based response. Discover profound insights on spiritual warfare, the nature of temptation, and practical ways to overcome temptation for ultimate victory. Perfect for deepening your understanding of faith and resilience.
 weight: 4
 ---
 

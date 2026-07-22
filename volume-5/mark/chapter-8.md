@@ -1,8 +1,8 @@
 ---
-title: "Mark 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
-  In this chapter, we have, I. Christ's miraculous feeding of four thousand with seven loaves and a few small fishes, Mk 8:1-9. II. His refusing to give the Pharisees a sign from hea...
+  Dive into Mark Chapter 8 to explore profound teachings on Christ's miraculous provision, the dangers of false religious influences, and the true cost of discipleship. Discover how Jesus uses powerful miracles to demonstrate his compassion and how his message calls believers to radical self-denial and unwavering faith in the face of suffering.
 weight: 8
 ---
 

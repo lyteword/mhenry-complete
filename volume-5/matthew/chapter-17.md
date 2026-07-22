@@ -1,8 +1,8 @@
 ---
-title: "Matthew 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
-  In this chapter we have, I. Christ in his pomp and glory transfigured, Mt 17:1-3. II. Christ in his power and grace, casting the devil out of a child, Mt 17:14-21. And, III. Christ...
+  Discover the profound theology of Matthew 17, exploring the dazzling Transfiguration of Christ where he revealed his divine glory alongside Moses and Elias. Learn how to conquer spiritual battles through the power of faith, prayer, and fasting, and understand the ultimate victory of Christ through his suffering and resurrection. This commentary offers deep insights into Christian doctrine and spiritual warfare.
 weight: 17
 ---
 
