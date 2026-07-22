@@ -2,7 +2,7 @@
 title: "Matthew 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
 description: >
-  This chapter continues and concludes Christ's sermon on the mount, which is purely practical, directing us to order our conversation aright, both toward God and man; for the design...
+  Unlock the profound practical wisdom of Matthew 7 with this detailed commentary on the Sermon on the Mount. Discover essential Christian principles on how to navigate judging others, the power of asking, seeking, and knocking, and how to discern false prophets by their true fruits. Learn the path to righteousness by walking the narrow way and living by the Golden Rule to secure your faith and eternal life.
 weight: 7
 ---
 
