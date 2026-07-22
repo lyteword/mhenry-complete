@@ -1,5 +1,5 @@
 ---
-title: "Luke 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Dive into Luke Chapter 5 and witness profound miracles, including the miraculous catch of fish, the cleansing of a leper, and the radical call of Peter and Levi. Explore how Christ demonstrates His unparalleled power to forgive sins and calls sinners to discipleship, offering deep spiritual insights for your faith journey.

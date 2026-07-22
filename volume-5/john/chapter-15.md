@@ -1,5 +1,5 @@
 ---
-title: "John 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Discover the profound truths of John Chapter 15 as you explore the relationship between Christ and His followers. This powerful commentary reveals how to achieve true fruitfulness, enduring spiritual growth, and unbreakable love by learning to truly abide in Christ, the True Vine. Learn how to navigate the world's hatred and persevere in faith by embracing the covenant of discipleship.

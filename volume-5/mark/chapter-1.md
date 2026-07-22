@@ -1,5 +1,5 @@
 ---
-title: "Mark 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Uncover the essential truths of Mark Chapter 1 in this comprehensive commentary, tracing the path from John the Baptist's call to Christ's powerful ministry. Learn how Christ established the Kingdom of God through miraculous acts, discipleship, and the transformative power of faith. Dive deep into this essential Bible study to grasp the profound theological meaning behind the Gospel of Mark.

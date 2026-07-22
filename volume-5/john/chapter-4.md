@@ -1,5 +1,5 @@
 ---
-title: "John 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the profound spiritual encounter in John Chapter 4 as Jesus meets the Samaritan woman at the well, exploring the true meaning of "living water." This commentary delves into the nature of genuine worship—in spirit and truth—and reveals how grace transcends religious and ethnic barriers. Uncover the powerful message of God's universal salvation and the enduring promise of a well of water springing up into everlasting life.

@@ -1,5 +1,5 @@
 ---
-title: "Luke 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Unlock the profound lessons of Luke Chapter 9 with this expert SEO-optimized summary. Explore the powerful commission given to the apostles, witness miraculous acts like the feeding of the five thousand, and discover the transformative glory of Christ's Transfiguration. Learn how to conquer worldly ambition through radical self-denial and embrace the humble path to true greatness in the Kingdom of God.

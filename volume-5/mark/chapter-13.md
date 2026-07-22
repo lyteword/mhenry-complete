@@ -1,5 +1,5 @@
 ---
-title: "Mark 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Uncover the profound prophecies of Mark 13 in this comprehensive commentary. Explore detailed insights into the destruction of Jerusalem, the rise of deceivers, and the signs of the end of the world. Learn the crucial lessons on watchfulness and spiritual preparation for Christ's Second Coming.

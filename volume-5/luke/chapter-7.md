@@ -1,5 +1,5 @@
 ---
-title: "Luke 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Dive deep into Luke Chapter 7 to uncover profound biblical truths about faith, power, and grace. This chapter features stunning accounts of Christ's miracles—from healing the sick to raising the dead—alongside powerful lessons on humility and the boundless nature of God's forgiveness. Explore how Christ's sovereign authority over life and death underscores the incredible hope offered to sinners.

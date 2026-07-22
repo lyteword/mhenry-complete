@@ -1,5 +1,5 @@
 ---
-title: "Matthew 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Discover the profound lessons in Matthew Chapter 14, exploring the tragic martyrdom of John the Baptist and the incredible miracle of Jesus feeding five thousand with five loaves and two fishes. This commentary delves into themes of divine compassion, the power of faith, and Christ's authority over nature, as seen when Jesus walks on the water to comfort his disciples during a tempest. Uncover deep insights into scripture, divine provision, and the enduring power of the Gospel.

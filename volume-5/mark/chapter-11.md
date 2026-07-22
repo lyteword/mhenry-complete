@@ -1,5 +1,5 @@
 ---
-title: "Mark 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Discover the profound theological depth of Mark chapter 11 through this expert commentary on the Passion Week. Explore Christ's triumphant entry into Jerusalem, the symbolic meaning of the cursed fig-tree, and the powerful lessons on cultivating unwavering faith and effective prayer. Uncover the divine authority behind Christ's actions and learn how these timeless biblical truths apply to your life today.

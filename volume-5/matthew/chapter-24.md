@@ -1,5 +1,5 @@
 ---
-title: "Matthew 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
   Discover the profound prophecies in Matthew 24 detailing the end times, including the destruction of Jerusalem, the signs of the coming of Christ, and the inevitable persecution of believers. Learn how to recognize false prophets and navigate the tribulations—wars, famines, and earthquakes—to prepare your soul for the ultimate salvation promised by the Gospel of the Kingdom.

@@ -1,5 +1,5 @@
 ---
-title: "Matthew 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Dive deep into Matthew 11 to understand the profound message of Jesus' tireless ministry, the compelling evidence of His divine works, and the crucial role of John the Baptist as the forerunner. Discover how hearing the gospel and striving for the kingdom of heaven is the ultimate path to salvation, offering powerful insights into divine grace and perseverance.

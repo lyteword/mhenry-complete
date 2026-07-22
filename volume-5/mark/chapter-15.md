@@ -1,5 +1,5 @@
 ---
-title: "Mark 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Dive deep into Mark 15 with this comprehensive commentary on the Passion of Christ. Explore the detailed narrative of Jesus' suffering, condemnation, and the profound theological significance of the crucifixion, revealing how His sacrifice achieved ultimate atonement and victory over sin. Discover the powerful message of hope and glory found in the biblical account of Christ's death.

@@ -1,5 +1,5 @@
 ---
-title: "Luke 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
   Dive deep into Luke Chapter 24 and explore the undeniable proofs of Jesus Christ's resurrection, from the angels' testimony to the transformative encounter on the road to Emmaus. This detailed biblical commentary reveals how scripture confirms the truth of Christ rising from the dead, strengthening your faith and providing profound insights into the meaning of His victory.

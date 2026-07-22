@@ -1,5 +1,5 @@
 ---
-title: "Luke 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the powerful account in Luke Chapter 4 detailing Jesus' intense spiritual preparation, his decisive victory over the devil's temptation, and the inauguration of his public ministry. Explore how Christ used the authority of Scripture to fulfill prophecy, bringing radical healing, deliverance from bondage, and proclaiming the "acceptable year of the Lord." This chapter reveals the foundation of Christian faith, demonstrating the enduring power of God's word over all spiritual warfare.

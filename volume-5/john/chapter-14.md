@@ -1,5 +1,5 @@
 ---
-title: "John 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Discover the profound spiritual comfort of John 14 as Christ assures his disciples of eternal rest in heaven and the promise of the Second Coming. Learn how believing in Jesus as the Way, Truth, and Life grants believers divine power and eternal assurance through the Comforter, the Holy Spirit. Find deep peace and unwavering hope in this essential discourse on faith and divine fellowship.

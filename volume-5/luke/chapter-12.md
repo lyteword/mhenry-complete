@@ -1,5 +1,5 @@
 ---
-title: "Luke 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Discover the profound lessons in Luke Chapter 12, where Christ issues urgent warnings against hypocrisy and the deadly sin of covetousness. This commentary explores how believers can escape the trap of worldly materialism by casting all their care upon God's providence and focusing on the eternal Kingdom of God. Learn to live with watchful trust, securing true spiritual wealth that lasts far beyond earthly possessions.

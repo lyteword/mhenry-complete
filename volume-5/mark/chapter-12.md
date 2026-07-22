@@ -1,5 +1,5 @@
 ---
-title: "Mark 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Dive deep into Mark chapter 12 with this expert commentary, exploring profound themes like the parable of the vineyard, Christ's authority over religious disputes, and the foundational Great Commandments. Discover essential lessons on Christian ethics, true charity demonstrated by the poor widow, and the core truth of the resurrection doctrine.

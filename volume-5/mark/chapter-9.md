@@ -1,5 +1,5 @@
 ---
-title: "Mark 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Dive deep into Mark 9 to explore the divine glory of the Transfiguration and the incredible power of Christ to overcome spiritual darkness. This chapter offers profound lessons on true humility, the necessity of fervent prayer and faith, and the path to entering the Kingdom of God. Discover how to conquer sin and live a life of true discipleship.

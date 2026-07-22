@@ -1,5 +1,5 @@
 ---
-title: "Matthew 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Explore Matthew Chapter 22 to uncover profound teachings on the Kingdom of Heaven through the Parable of the Marriage Feast. This commentary delves into the requirements for true discipleship, the dangers of hypocrisy, and the essential balance between earthly duties and divine allegiance. Discover how Christ calls the Gentiles and reveals the true meaning of the New Covenant.

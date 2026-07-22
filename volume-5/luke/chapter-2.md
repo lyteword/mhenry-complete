@@ -1,5 +1,5 @@
 ---
-title: "Luke 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Uncover the profound theological meaning behind the birth of Jesus in Luke Chapter 2. This detailed commentary explores the humble circumstances of Christ's birth in Bethlehem, the fulfillment of prophecy, and the significance of the angelic visit and the presentation in the Temple. Gain deep insight into the Incarnation, understanding how this event established Jesus as the promised Messiah and the Saviour for all people.

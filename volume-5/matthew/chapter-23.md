@@ -1,5 +1,5 @@
 ---
-title: "Matthew 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
   Dive deep into Matthew 23 as Jesus delivers a powerful, searing critique against the hypocrisy, pride, and legalistic formalism of the scribes and Pharisees. Discover why outward show is worthless and learn the crucial lessons on true humility, genuine faith, and avoiding the pitfalls of religious pretense to secure your salvation.

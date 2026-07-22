@@ -1,5 +1,5 @@
 ---
-title: "Matthew 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Uncover the powerful mandate of Matthew 10 as you explore the foundation of ministry and discipleship. This chapter provides essential guidance on the apostles' commission, the challenging path of preaching the Kingdom of Heaven, and how to endure persecution with faith and wisdom. Discover profound insights into service, suffering, and the true, transformative power of the Gospel.

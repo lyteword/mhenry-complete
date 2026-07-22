@@ -1,5 +1,5 @@
 ---
-title: "Mark 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Discover the powerful account in Mark 16 detailing the resurrection and ascension of Jesus Christ. Learn about the profound joy of the believers and the divine commission to preach the gospel to every creature. Explore the signs that followed Christ's triumph and how steadfast Christian faith leads to eternal salvation.

@@ -1,5 +1,5 @@
 ---
-title: "Luke 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
   Dive deep into Luke Chapter 20 with this expert commentary, exploring Christ's definitive answers regarding his authority, the profound Parable of the Vineyard, and the ultimate truth of the Resurrection. Uncover powerful lessons on spiritual responsibility and a stark warning against the hypocrisy of the scribes, ensuring you grasp the core Christian doctrines that shape eternal life.

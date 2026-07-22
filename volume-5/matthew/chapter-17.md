@@ -1,5 +1,5 @@
 ---
-title: "Matthew 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Discover the profound theology of Matthew 17, exploring the dazzling Transfiguration of Christ where he revealed his divine glory alongside Moses and Elias. Learn how to conquer spiritual battles through the power of faith, prayer, and fasting, and understand the ultimate victory of Christ through his suffering and resurrection. This commentary offers deep insights into Christian doctrine and spiritual warfare.

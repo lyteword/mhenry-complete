@@ -1,5 +1,5 @@
 ---
-title: "John 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Discover the profound theological depth of John Chapter 7 through this expert commentary, exploring Jesus's strategic prudence, the significance of the Feast of Tabernacles, and the nature of true discipleship. Uncover insights into divine doctrine, the contrast between worldly ambition and Christ's humility, and how to apply righteous judgment in life. This analysis provides essential understanding for deepening your faith and interpreting the Gospel message.

@@ -1,5 +1,5 @@
 ---
-title: "John 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
   Explore the pivotal moments of John 18, from Jesus' arrest and the treacherous betrayal by Judas to the intense confrontation before the High Priest. This in-depth Bible commentary unpacks the theological weight of Christ's suffering, Peter's denial, and the meaning behind the 'captain of salvation' narrative. Understand the true meaning of surrender and faith in this essential study of Christ's Passion.

@@ -1,5 +1,5 @@
 ---
-title: "Luke 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
   Dive deep into Luke Chapter 18 and unlock timeless spiritual wisdom through powerful parables like the importunate widow and the contrast between the proud Pharisee and the humble publican. Explore the essential lessons on fervent prayer, genuine humility versus self-righteousness, and how Christ's grace overcomes worldly obstacles. This commentary illuminates the path to eternal life and the promise of God's mercy for all believers seeking the Kingdom of God.

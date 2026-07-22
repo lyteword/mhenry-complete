@@ -1,5 +1,5 @@
 ---
-title: "John 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Unlock the deep theological secrets of John Chapter 5 with this expert commentary. Dive into the miracle at the Pool of Bethesda, explore Christ's supreme divine authority as the Mediator, and discover how His word brings both physical healing and everlasting spiritual life. Perfect for in-depth Bible study and understanding the true power of the Messiah.

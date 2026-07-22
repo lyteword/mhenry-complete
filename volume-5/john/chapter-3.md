@@ -1,5 +1,5 @@
 ---
-title: "John 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Explore John Chapter 3 to uncover the profound mystery of 'being born again' and understand the essential path to the Kingdom of God. This deep commentary explores Christ's discourse with Nicodemus, revealing the necessity of a new birth, the power of the Holy Spirit, and the ultimate, world-saving plan of Christ's sacrifice for eternal life.

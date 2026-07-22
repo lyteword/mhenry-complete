@@ -1,5 +1,5 @@
 ---
-title: "Matthew 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Explore Matthew 15 through this in-depth Bible commentary to understand the critical tension between human tradition and divine law. Discover Jesus' profound teaching on true sin—distinguishing between external actions and the defilement that comes from the heart—and witness the powerful lesson in mercy shown to the Gentile woman. This study illuminates the true nature of faith, understanding, and Christ's compassionate authority.

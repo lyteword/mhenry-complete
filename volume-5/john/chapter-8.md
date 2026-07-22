@@ -1,5 +1,5 @@
 ---
-title: "John 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Uncover the rich theology of John 8 in this detailed commentary. Discover Christ's mastery in handling moral trials like the woman taken in adultery, alongside essential teachings on following the Light of the World, true testimony, and the path from sin to salvation.

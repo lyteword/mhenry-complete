@@ -1,5 +1,5 @@
 ---
-title: "Luke 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Explore Luke Chapter 13 through this detailed biblical commentary, delving into profound themes of repentance, the call to strive for salvation, and the miraculous power of Christ's healing. Discover the lessons from the barren fig-tree parable and the mysteries of the Kingdom of God that urge us toward true transformation before it's too late.

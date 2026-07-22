@@ -1,5 +1,5 @@
 ---
-title: "Matthew 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Discover the profound power and boundless compassion of the Lord Jesus in this in-depth Matthew 9 commentary. Explore how Christ demonstrates His authority to forgive sins and His deep mercy by healing the sick and calling sinners to genuine repentance. This essential study illuminates the true meaning of faith, divine grace, and the purpose of Christian living.

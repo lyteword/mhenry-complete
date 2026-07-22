@@ -1,5 +1,5 @@
 ---
-title: "Matthew 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
   Discover the profound spiritual wisdom of Matthew 18, focusing on the path to true greatness through radical humility and the necessity of conversion. This expert commentary provides practical, actionable guidance on navigating personal conflict, understanding church discipline, and preserving the purity and order of the Christian community. Learn how to apply Christ's tender care for every believer to build a life rooted in grace and righteous conduct.

@@ -1,5 +1,5 @@
 ---
-title: "Matthew 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Discover the profound power of Christ in Matthew Chapter 8 through this comprehensive commentary on his miracles. Explore detailed accounts of Jesus' healing acts—from cleansing lepers and curing the palsy to demonstrating boundless divine authority. Learn how true faith, humility, and trust in God's will unlock the miraculous power to conquer disease and achieve spiritual restoration.

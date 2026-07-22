@@ -1,5 +1,5 @@
 ---
-title: "Luke 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Uncover the deep truths of Luke 21 with this expert commentary, revealing profound prophecies concerning the end times, the destruction of Jerusalem, and the glorious Second Coming of Christ. Learn vital spiritual guidance on cultivating true charity, navigating trials, and finding unwavering hope for your redemption in these crucial prophetic times.

@@ -1,5 +1,5 @@
 ---
-title: "Matthew 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Discover the profound theological foundations of Matthew 16. This chapter unveils Christ's true identity as the Son of God and establishes the Church as the unshakeable Rock upon which it is built. Learn vital warnings about religious hypocrisy and gain insight into the apostolic authority—the Keys of the Kingdom—that govern the life and doctrine of the faithful.

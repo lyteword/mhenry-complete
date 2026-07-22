@@ -1,5 +1,5 @@
 ---
-title: "Matthew 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Dive deep into Matthew 12 with this expert biblical commentary. This analysis explores Christ's interpretation of the Sabbath law, His miracles, and His powerful rebuttal to the Pharisees, illuminating the profound themes of spiritual warfare, divine grace, and the victory of the Kingdom of God.

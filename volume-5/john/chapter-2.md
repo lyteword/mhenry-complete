@@ -1,5 +1,5 @@
 ---
-title: "John 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Dive deep into John Chapter 2 and uncover the story of Christ's initial miracles, including the miraculous transformation of water into wine, which signifies the arrival of the Gospel. Discover the deep theological meaning behind Jesus's ministry and the powerful symbolism of his temple cleansing, hinting at the glory of his resurrection.

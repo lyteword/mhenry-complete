@@ -1,5 +1,5 @@
 ---
-title: "Mark 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Discover the profound power of Christ in Mark chapter 5, featuring dramatic accounts of casting out a legion of devils, miraculous healing, and the resurrection of a daughter from the dead. Explore how faith and divine authority conquer spiritual darkness, offering deep insights into Christ's compassion, authority over death, and the transformative nature of true spiritual life.

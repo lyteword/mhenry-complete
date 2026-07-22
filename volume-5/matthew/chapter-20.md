@@ -1,5 +1,5 @@
 ---
-title: "Matthew 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
   Discover the profound spiritual truths of Matthew 20 through a deep dive into the Parable of the Labourers, exploring the principles of grace, divine reward, and the truth that "the last shall be first." This commentary illuminates Christ's predictions of His sufferings and teaches how to overcome worldly ambition by embracing servant leadership. Gain deep insight into spiritual calling, enduring affliction, and finding eternal glory through humility.

@@ -1,5 +1,5 @@
 ---
-title: "Luke 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Dive deep into Luke 8 with this expert commentary on the Parable of the Sower, revealing the secrets to cultivating a heart receptive to the Kingdom of God. Uncover the undeniable power of Jesus through accounts of miraculous healing and divine authority over nature and spiritual darkness. Learn how true Christian faith transforms your life and brings forth lasting fruit.

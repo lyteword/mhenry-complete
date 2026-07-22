@@ -1,5 +1,5 @@
 ---
-title: "Luke 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Discover the profound grace and boundless mercy of God in Luke Chapter 15, exploring the powerful parables of the lost sheep and the prodigal son. This commentary unveils the incredible joy found in heaven over a single sinner's repentance and shows how God, as a loving Father, eagerly awaits and welcomes all those who return to Him. Dive into this deep theological study to find encouragement and a renewed hope for forgiveness.

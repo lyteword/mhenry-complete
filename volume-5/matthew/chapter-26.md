@@ -1,5 +1,5 @@
 ---
-title: "Matthew 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
   Dive deep into Matthew 26 with this expert commentary on the pivotal moments of Christ's suffering, including the conspiracy, the betrayal by Judas Iscariot, and the sacred institution of the Lord's Supper. Uncover the profound theological meaning behind the Passion, the new covenant, and how these events shape our faith today.

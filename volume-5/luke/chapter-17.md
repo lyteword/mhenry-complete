@@ -1,5 +1,5 @@
 ---
-title: "Luke 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Unlock the profound teachings of Luke Chapter 17, exploring the essential spiritual disciplines of forgiveness, strengthening your faith through prayer, and embracing radical humility as God's servant. This commentary dives deep into the powerful lessons of the ten lepers, the true nature of the spiritual Kingdom of God, and the necessity of perseverance amidst worldly opposition. Discover how genuine faith empowers you to find Christ's presence and prepare for the triumphant gathering of the saints.

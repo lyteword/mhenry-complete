@@ -1,5 +1,5 @@
 ---
-title: "Luke 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Explore Luke Chapter 6 to discover Christ's profound exposition of the moral law, offering practical guidance on works of mercy, radical forgiveness, and true justice. This essential commentary reveals how to live a life of blessing by embracing humility, loving your enemies, and building a foundation of faith that withstands worldly trials.

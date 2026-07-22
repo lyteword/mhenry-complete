@@ -1,5 +1,5 @@
 ---
-title: "Matthew 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
   Discover the profound theological truth of Matthew 28, exploring the irrefutable proofs of Christ's resurrection—from the angel's testimony to His triumphant appearance. This comprehensive commentary reveals why the resurrection is the foundation of faith and empowers believers with the Apostolic Commission to spread the Gospel throughout the world. Dive deep into the scriptures to strengthen your belief and embrace the hope of eternal life.

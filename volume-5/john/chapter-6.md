@@ -1,5 +1,5 @@
 ---
-title: "John 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Discover the profound theological depth of John Chapter 6 with this complete commentary, exploring the miracle of the loaves and fishes, Christ's walking on the water, and the ultimate lesson of the 'Bread of Life.' This insightful summary unpacks how Jesus teaches us to seek eternal life by trading fleeting worldly sustenance for the spiritual nourishment He offers. Dive deep into this essential scripture to understand the power of Christ's word and the promise of everlasting life.

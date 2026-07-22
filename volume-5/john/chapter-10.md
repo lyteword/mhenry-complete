@@ -1,5 +1,5 @@
 ---
-title: "John 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Discover the profound teachings of John Chapter 10 as you explore Jesus's powerful discourse on Himself as the Good Shepherd and the door of the sheepfold. This in-depth commentary reveals the essential truth about salvation, the sacrificial love of Christ, and the vital difference between true discipleship and false leadership. Deepen your understanding of Christ's authority and the path to eternal life with this comprehensive biblical analysis.

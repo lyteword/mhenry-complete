@@ -1,5 +1,5 @@
 ---
-title: "Luke 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Discover the profound teachings of Luke Chapter 11 as Christ instructs his disciples on the power of prayer, teaching us how to be frequent, instant, and importunate in our requests. Learn the secrets to praying effectively, seeking the Holy Spirit, and understanding the divine promises behind asking, seeking, and knocking. This essential commentary illuminates how to cultivate a deep, powerful relationship with God and conquer spiritual obstacles.

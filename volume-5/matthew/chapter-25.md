@@ -1,5 +1,5 @@
 ---
-title: "Matthew 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
   Prepare for Christ's second coming with the profound lessons of Matthew 25, featuring the timeless parables of the Ten Virgins and the Talents. Discover the critical importance of spiritual readiness, faithful stewardship of your gifts, and diligent watchfulness required to be found in the joy of the Lord. Learn how to live a life of true faith and accountability in the days leading up to the end of the world.

@@ -1,5 +1,5 @@
 ---
-title: "Matthew 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the profound history of Jesus' infancy in Matthew Chapter 2. Explore the quest of the Wise Men, the threat of Herod, and the miraculous Flight into Egypt, all framed by the fulfillment of Old Testament prophecy. This in-depth biblical commentary reveals the divine providence guiding Christ's birth and highlights the enduring power of faith amidst worldly turmoil.

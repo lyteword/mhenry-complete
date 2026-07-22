@@ -1,5 +1,5 @@
 ---
-title: "Matthew 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
   Explore Matthew 19 to uncover profound truths about marriage, divorce, and the path to eternal life. This expert commentary illuminates Christ's teaching on the unbreakable bond of "one flesh," the power of God's grace over human hardness, and the ultimate lesson for those seeking true perfection through obedience to God's commandments.

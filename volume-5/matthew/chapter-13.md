@@ -1,5 +1,5 @@
 ---
-title: "Matthew 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Unlock the profound mysteries of the Kingdom of Heaven with an in-depth analysis of Matthew 13, focusing on the powerful Parable of the Sower. Discover the four types of soil—highway, stony, thorny, and good—to understand how your heart condition determines the reception and fruitfulness of the Gospel. This essential commentary reveals the spiritual obstacles to growth and guides you toward the deep understanding necessary to bear abundant fruit in your faith.

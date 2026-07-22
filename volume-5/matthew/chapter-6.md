@@ -1,5 +1,5 @@
 ---
-title: "Matthew 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Matthew 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Unlock the profound wisdom of Matthew Chapter 6 with this comprehensive commentary on the Sermon on the Mount. This guide offers essential spiritual guidance on avoiding hypocrisy in prayer and almsgiving, teaching you how to live with sincerity and seek God's will in every aspect of your Christian life. Discover the true meaning behind the Lord's Prayer and transform your devotion into authentic, heartfelt worship.

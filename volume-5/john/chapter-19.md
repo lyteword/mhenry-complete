@@ -1,5 +1,5 @@
 ---
-title: "John 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
   Explore the complete Matthew Henry Bible Commentary on John Chapter 19, detailing the intense suffering, unjust trial before Pilate, and the ultimate crucifixion of Jesus Christ. This in-depth analysis explores the profound theological meaning of His sacrifice, the conflict between power and conscience, and the true significance of the inscription "Jesus of Nazareth, the King of the Jews." Dive deep into the biblical narrative of the Passion for a comprehensive understanding of salvation and suffering.

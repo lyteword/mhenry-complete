@@ -1,5 +1,5 @@
 ---
-title: "Mark 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Dive deep into Mark 7 to understand Christ's profound teaching on internal purification versus external tradition. This chapter explores the true source of defilement and showcases Christ's boundless mercy through compelling stories like the Syrophenician woman and the miraculous cure of the deaf and dumb. Discover how to discern genuine faith from mere ritual and embrace God's universal compassion.

@@ -1,5 +1,5 @@
 ---
-title: "John 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "John 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Unlock the secrets of the Lord's Prayer in this comprehensive commentary on John 17. Discover Christ's powerful intercession for believers, exploring the petitions for sanctification, unity, and eternal glory, offering profound instruction for your personal prayer life and understanding of God's sovereign will.

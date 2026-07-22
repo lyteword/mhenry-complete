@@ -1,5 +1,5 @@
 ---
-title: "Luke 23 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 23 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "23"
 description: >
   Uncover the profound theological narrative of Luke 23, tracing the journey from Jesus' unjust trial to his ultimate sacrifice on the cross. This expert commentary explores themes of political malice, the power of forgiveness, and the transformative grace found even in the moments of deepest suffering. Essential reading for in-depth Bible study and understanding the core of Christian faith.

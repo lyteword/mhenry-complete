@@ -1,5 +1,5 @@
 ---
-title: "Mark 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Mark 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Dive deep into Mark Chapter 3 with this expert commentary on Christ's miraculous healing, the divine calling of the twelve apostles, and the intense theological debate with the scribes. Discover profound biblical truths about spiritual authority, the power to cast out demons, and the true meaning of faith in every aspect of Christ's ministry. This commentary offers deep insights for believers seeking to understand the core of the Gospel.

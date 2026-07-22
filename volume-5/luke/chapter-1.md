@@ -1,5 +1,5 @@
 ---
-title: "Luke 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Luke 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Uncover the profound beginnings of the Gospel in Luke Chapter 1. This detailed commentary explores the prophecy of John the Baptist, the miraculous conception of Jesus by the Virgin Mary, and the powerful role of the Angel Gabriel. Dive into the mystery of godliness as this chapter reveals how God fulfills His promises for the Messiah.
