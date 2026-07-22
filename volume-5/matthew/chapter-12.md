@@ -2,7 +2,7 @@
 title: "Matthew 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
 description: >
-  In this chapter, we have, I. Christ's clearing of the law of the fourth commandment concerning the sabbath-day, and vindicating it from some superstitious notions advanced by the J...
+  Dive deep into Matthew 12 with this expert biblical commentary. This analysis explores Christ's interpretation of the Sabbath law, His miracles, and His powerful rebuttal to the Pharisees, illuminating the profound themes of spiritual warfare, divine grace, and the victory of the Kingdom of God.
 weight: 12
 ---
 
