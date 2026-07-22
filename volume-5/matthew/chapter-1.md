@@ -2,7 +2,7 @@
 title: "Matthew 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
 description: >
-  This evangelist begins with the account of Christ's parentage and birth, the ancestors from whom he descended, and the manner of his entry into the world, to make it appear that he...
+  Uncover the profound theological significance of Matthew Chapter 1 with this expert commentary on the Genealogy of Jesus Christ. This detailed analysis explores the miraculous Virgin Birth, establishing why Christ is called the Son of David and Son of Abraham, and revealing the fulfillment of God's promises. Dive deep into the mystery of the Incarnation and understand the meaning behind the titles of the Messiah, Immanuel, and Christ.
 weight: 1
 ---
 
