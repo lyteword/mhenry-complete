@@ -2,7 +2,7 @@
 title: "Matthew 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
 description: >
-  This chapter is a continuation of Christ's discourses in the temple, two or three days before he died. His discourses then are largely recorded, as being of special weight and cons...
+  Explore Matthew Chapter 22 to uncover profound teachings on the Kingdom of Heaven through the Parable of the Marriage Feast. This commentary delves into the requirements for true discipleship, the dangers of hypocrisy, and the essential balance between earthly duties and divine allegiance. Discover how Christ calls the Gentiles and reveals the true meaning of the New Covenant.
 weight: 22
 ---
 
