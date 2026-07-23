@@ -2,7 +2,7 @@
 title: "Hebrews 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
 description: >
-  In this chapter the apostle, I. Makes some application of the doctrine laid down in the chapter foregoing concerning the excellency of the person of Christ, both by way of exhortat...
+  Explore the profound doctrine of Hebrews Chapter 2, exploring the pre-eminence of Christ over angels and the necessity of giving earnest heed to the gospel. This chapter powerfully explains the incarnation of Christ, revealing how His suffering and sacrifice made Him the perfect mediator, securing our salvation and offering hope against the power of death.
 weight: 2
 ---
 
