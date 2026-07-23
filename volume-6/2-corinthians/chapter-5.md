@@ -2,7 +2,7 @@
 title: "2 Corinthians 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
 description: >
-  The apostle proceeds in showing the reasons why they did not faint under their afflictions, namely, their expectation, desire, and assurance of happiness after death (2Co 5:1-5), a...
+  Discover the profound assurance of eternal happiness and the vital call to action in 2 Corinthians chapter 5. This deep dive explores the believer's hope beyond death, the transformative power of regeneration, and the essential role of reconciliation through Jesus Christ. Learn how to live with confident faith, fulfilling our duty as ambassadors for God and embracing the ministry of reconciliation for lasting spiritual growth.
 weight: 5
 ---
 
