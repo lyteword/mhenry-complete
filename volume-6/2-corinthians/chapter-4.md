@@ -2,7 +2,7 @@
 title: "2 Corinthians 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
 description: >
-  In this chapter we have an account, I. Of the constancy of the apostle and his fellow-labourers in their work. Their constancy in declared (2Co 4:1), their sincerity is vouched (2C...
+  Discover the profound themes of perseverance and unwavering faith in 2 Corinthians Chapter 4. This deep dive explores the constancy and sincerity of the apostles amidst persecution, revealing how they transformed earthly suffering into eternal glory. Learn how to draw strength from hope in the resurrection and the eternal weight of God's glory to navigate life's trials.
 weight: 4
 ---
 
