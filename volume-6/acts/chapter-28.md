@@ -2,7 +2,7 @@
 title: "Acts 28 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "28"
 description: >
-  We are the more concerned to take notice of and to improve what is here recorded concerning blessed Paul because, after the story of this chapter, we hear no more of him in the sac...
+  Discover the incredible journey of Paul in Acts 28, from a dangerous shipwreck in Malta to his imprisonment in Rome. This commentary explores divine providence, the profound kindness of strangers, and Paul's powerful defense of the Christian gospel against persecution.
 weight: 28
 ---
 
