@@ -2,7 +2,7 @@
 title: "Philippians 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  He cautions them against judaizing seducers (Php 3:1-3) and proposes his own example: and here he enumerates the privileges of his Jewish state which he rejected (Php 3:4-8), descr...
+  Explore Philippians 3 to discover the path to true Christian living, emphasizing the necessity of renouncing worldly pride for the 'excellency of the knowledge of Christ.' This chapter powerfully outlines how to find righteousness through faith and pursue the ultimate hope: the glorious resurrection of the dead. Learn how to follow Christ's example and secure your eternal life.
 weight: 3
 ---
 
