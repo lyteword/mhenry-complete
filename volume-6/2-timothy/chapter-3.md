@@ -2,7 +2,7 @@
 title: "2 Timothy 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  I\\. The apostle forewarns Timothy what the last days would be, with the reasons thereof, 2Ti 3:1-9. II. Prescribes various remedies against them (2Ti 3:10-17), particularly his own...
+  Explore 2 Timothy chapter 3 to understand the marks of perilous times—from self-love to corruption—and discover the ultimate antidote: the holy scriptures. Learn how immersing yourself in God's inspired Word provides the wisdom and guidance necessary to live godly lives and be thoroughly furnished for salvation.
 weight: 3
 ---
 
