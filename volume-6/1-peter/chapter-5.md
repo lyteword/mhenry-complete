@@ -2,7 +2,7 @@
 title: "1 Peter 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
 description: >
-  In which the apostle gives particular directions, first to the elders, how to behave themselves towards their flock (1Pe 5:1-4); then to the younger, to be obedient and humble, and...
+  Discover the essential pastoral advice in 1 Peter 5, offering clear direction for church leaders on leading with humility and dedication. Learn practical strategies on how to feed your flock willingly, resist temptation, and cast all your care upon God for eternal glory. This powerful chapter guides believers toward spiritual vigilance and perseverance, strengthening your faith through submission and trust in God's mighty grace.
 weight: 5
 ---
 
