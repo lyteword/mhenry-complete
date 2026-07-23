@@ -2,7 +2,7 @@
 title: "1 Corinthians 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
 description: >
-  In this chapter the apostle blames, and endeavours to rectify, some great indecencies and manifest disorders in the church of Corinth; as, I. The misconduct of their women (some of...
+  Unpack the critical teachings of 1 Corinthians 11, analyzing Paul's stern warnings about church discord, proper gender roles, and the profound reverence required for the Lord's Supper. This essential commentary provides deep insight into Christian ethics, helping you understand the true meaning of remembrance and avoid spiritual profanation.
 weight: 11
 ---
 
