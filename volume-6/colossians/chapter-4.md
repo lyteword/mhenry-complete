@@ -2,7 +2,7 @@
 title: "Colossians 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
 description: >
-  I\\. He continues his account of the duty of masters, from the close of the former chapter, Col 4:1. II. He exhorts to the duty of prayer (Col 4:2-4), and to a prudent and decent co...
+  Discover the essential spiritual guidance from Colossians chapter 4 through this deep commentary. Explore the vital duties of masters, the power of constant prayer, and how to walk in wisdom and grace in all your interactions. Learn how to season your speech with grace and build strong apostolic fellowship for a flourishing Christian life.
 weight: 4
 ---
 
