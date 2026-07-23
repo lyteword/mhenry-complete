@@ -2,7 +2,7 @@
 title: "James 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  The apostle here reproves ambition, and an arrogant magisterial tongue; and shows the duty and advantage of bridling it because of its power to do mischief. Those who profess relig...
+  Discover the profound lessons of James 3 on the "Government of the Tongue," learning how to bridle your speech from being a fire of iniquity to a source of blessing. This commentary distinguishes between worldly, strife-filled wisdom and true, heavenly wisdom, which is characterized by purity, peace, and gentle conduct. Optimize your communication and life by mastering your tongue to sow the fruits of righteousness.
 weight: 3
 ---
 
