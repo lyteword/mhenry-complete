@@ -2,7 +2,7 @@
 title: "Galatians 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
 description: >
-  In this chapter, after the preface or introduction (Ga 1:1-5), the apostle severely reproves these churches for their defection from the faith (Ga 1:6-9), and then proves his own a...
+  Discover the profound theological defense of Paul's apostleship in Galatians Chapter 1. This expert commentary explores how Paul's commission was directly from God and Jesus Christ, establishing the absolute divine authority of the gospel. Dive deep into the core truths of Christian doctrine and understand the foundational nature of the Christian faith.
 weight: 1
 ---
 
