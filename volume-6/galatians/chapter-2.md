@@ -2,7 +2,7 @@
 title: "Galatians 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
 description: >
-  The apostle, in this chapter, continues the relation of his past life and conduct, which he had begun in the former; and, by some further instances of what had passed between him a...
+  Discover the profound theological arguments in Galatians 2 as we explore Paul's unwavering authority and the foundational doctrine of justification by faith alone. This chapter masterfully contrasts the path of Jewish law with pure Christianity, revealing why salvation is found only in Christ, not in works. Dive deep into Paul's journey, his dispute with Peter, and the powerful truth that Christ alone secures our salvation.
 weight: 2
 ---
 
