@@ -2,7 +2,7 @@
 title: "Revelation 7 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "7"
 description: >
-  The things contained in this chapter came in after the opening of the six seals, which foretold great calamities in the world; and before the sound of the seven trumpets, which gav...
+  Revelation Chapter 7 reveals profound comfort and hope through the sealing of God's servants and the glorious state of the saints. Discover the incredible honour awaiting those who have endured tribulation, washed their robes in the blood of the Lamb, and enjoy eternal rest in the presence of God. This powerful passage offers ultimate assurance and a vision of salvation for all believers.
 weight: 7
 ---
 
