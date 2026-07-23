@@ -2,7 +2,7 @@
 title: "Revelation 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
 description: >
-  In this chapter we have an account, I. Of the measuring—reed given to the apostle, to take the dimensions of the temple, Re 11:1,2. II. Of the two witnesses of God, Re 11:3-13. III...
+  Discover the profound truths of Revelation 11 in this detailed commentary, exploring the prophecy of the temple's measurement, the powerful ministry of the two witnesses, and the climactic sounding of the seventh trumpet. Uncover how God preserves His true worship amidst worldly trials and witness the final triumph of Christ's reign as the world is transformed. This deep dive offers essential insights into end-times prophecy and enduring faith.
 weight: 11
 ---
 
