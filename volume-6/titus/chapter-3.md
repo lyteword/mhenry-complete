@@ -2,7 +2,7 @@
 title: "Titus 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  Of duties which concern Christians more in common, and the reasons of them, Tit 3:1-8. What Titus in teaching should avoid, and how he should deal with a heretic, with some other d...
+  Discover the essential duties of Christian life in Titus chapter 3, focusing on submission to authority, genuine meekness toward all people, and the importance of avoiding malice and conflict. Explore the profound theological reasons behind salvation by grace, regeneration, and justification, emphasizing the necessity of maintaining fruitful good works. Learn biblical guidance on how to deal with heresy and foster spiritual growth today.
 weight: 3
 ---
 
