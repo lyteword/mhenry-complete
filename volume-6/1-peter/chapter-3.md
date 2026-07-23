@@ -2,7 +2,7 @@
 title: "1 Peter 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  Wherein the apostle describes the duties of husbands and wives one to another, beginning with the duty of the wife, 1Pe 3:1-7. He exhorts Christians to unity, love, compassion, pea...
+  Discover the profound guidance of 1 Peter 3, an essential guide for Christians on navigating complex relationships, including the duties within marriage and how to treat enemies with blessing. This powerful commentary explores the importance of a good conscience, unwavering patience, and following the example of Christ to achieve lasting peace and spiritual victory.
 weight: 3
 ---
 
