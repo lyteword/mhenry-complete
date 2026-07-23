@@ -2,7 +2,7 @@
 title: "Acts 11 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "11"
 description: >
-  In this chapter we have, I. Peter's necessary vindication of what he did in receiving Cornelius and his friends into the church, from the censure he lay under for it among the bret...
+  Explore Acts 11 to discover Peter's powerful vindication for welcoming Gentiles, the divine confirmation through the Holy Spirit, and the subsequent flourishing of the gospel at Antioch. Learn how the ministry of Barnabas and Saul established a thriving church and exemplified primitive charity by organizing relief for the poor during times of famine. This chapter is essential reading for understanding early Christian missionary work and the expansion of faith across the world.
 weight: 11
 ---
 
