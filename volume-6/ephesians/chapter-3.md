@@ -2,7 +2,7 @@
 title: "Ephesians 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  This chapter consists of two parts. I. Of the account which Paul gives the Ephesians concerning himself, as he was appointed by God to be the apostle of the Gentiles, Eph 3:1-13. I...
+  Explore Ephesians chapter 3 through this detailed commentary, uncovering Paul's powerful ministry as the apostle to the Gentiles and his fervent prayer for the Ephesians. Discover the profound biblical mystery of being fellow-heirs in Christ, and learn how to seek the unsearchable riches of Christ and the fullness of God. This commentary illuminates the deep spiritual truths of divine love and God's almighty power.
 weight: 3
 ---
 
