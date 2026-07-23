@@ -2,7 +2,7 @@
 title: "1 Peter 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
 description: >
-  The work of a Christian is twofold—doing the will of God and suffering his pleasure. This chapter directs us in both. The duties we are here exhorted to employ ourselves in are the...
+  Discover the profound spiritual guidance of 1 Peter Chapter 4 through this detailed commentary. This analysis explores the Christian's twofold duty: mortifying sin through Christ's suffering, practicing fervent charity and hospitality, and stewarding God-given talents. Learn how to find hope and fortitude during persecution, preparing your soul for eternal glory and the coming judgment.
 weight: 4
 ---
 
