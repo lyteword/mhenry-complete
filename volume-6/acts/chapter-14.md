@@ -2,7 +2,7 @@
 title: "Acts 14 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "14"
 description: >
-  We have, in this chapter, a further account of the progress of the gospel, by the ministry of Paul and Barnabas among the Gentiles; it goes on conquering and to conquer, yet meetin...
+  Dive deep into Acts Chapter 14 to explore the transformative ministry of Paul and Barnabas among the Gentiles. This commentary details the challenges of persecution, the power of miracles, and the vital lessons on enduring faith and perseverance in the Christian journey.
 weight: 14
 ---
 
