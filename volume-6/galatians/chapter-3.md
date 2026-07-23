@@ -2,7 +2,7 @@
 title: "Galatians 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  The apostle in this chapter, I. Reproves the Galatians for their folly, in suffering themselves to be drawn away from the faith of the gospel, and endeavours, from several consider...
+  Unlock the core truth of salvation in Galatians 3! This commentary powerfully explains the doctrine of justification by faith, demonstrating why reliance on the works of the law is insufficient and how Abraham's promise points directly to Christ as our only path to God. Dive into this deep analysis to grasp the liberating power of the gospel and discover your true inheritance as a child of God.
 weight: 3
 ---
 
