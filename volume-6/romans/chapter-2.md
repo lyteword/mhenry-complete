@@ -2,7 +2,7 @@
 title: "Romans 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
 description: >
-  The scope of the first two chapters of this epistle may be gathered from Ro 3:9, "We have before proved both Jews and Gentiles that they are all under sin." This we have proved upo...
+  Explore Romans 2 to understand the profound equity of God's divine judgment, revealing that both Jews and Gentiles stand equally before Him. This chapter warns against the dangers of self-righteousness and outward religious pretense, emphasizing that true justification comes from the transformation of the inner heart rather than mere adherence to the letter of the law. Discover the difference between outward observance and the genuine, spirit-led faith required for eternal life.
 weight: 2
 ---
 
