@@ -2,7 +2,7 @@
 title: "Hebrews 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
 description: >
-  The apostle, having treated largely of Christ, and faith, and free grace, and gospel privileges, and warned the Hebrews against apostasy, now, in the close of all, recommends sever...
+  Discover the essential duties of Christian living in Hebrews 13, focusing on cultivating brotherly love, practicing hospitality, and achieving true contentment. Learn how to honor your ministers and understand that Christ is the true altar, empowering you to live a life of faith, charity, and unwavering hope.
 weight: 13
 ---
 
