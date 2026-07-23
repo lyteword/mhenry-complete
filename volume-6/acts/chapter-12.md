@@ -2,7 +2,7 @@
 title: "Acts 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
 description: >
-  In this chapter we have the story, I. Of the martyrdom of James the apostle, and the imprisonment of Peter by Herod Agrippa, who now reigned as king in Judea, Ac 12:1-4. II. The mi...
+  Explore Acts 12 to uncover the dramatic story of Peter's imprisonment, martyrdom, and miraculous deliverance by an angel. This powerful account highlights the crucial role of fervent church prayer in securing divine intervention, revealing the ultimate triumph of faith over worldly oppression and pride. Discover how God works miracles to bring believers out of the prison-house and into glorious liberty.
 weight: 12
 ---
 
