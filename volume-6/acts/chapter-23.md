@@ -2,7 +2,7 @@
 title: "Acts 23 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "23"
 description: >
-  The close of the foregoing chapter left Paul in the high priest's court, into which the chief captain (whether to his advantage or no I know not) had removed his cause from the mob...
+  Dive into the dramatic events of Acts 23, exploring the intense persecution faced by the Apostle Paul. This commentary meticulously analyzes Paul's defense of his integrity, the deadly conspiracy against him, and the pivotal role of the chief captain in securing his escape. Discover profound lessons on Christian steadfastness, divine providence, and navigating opposition in this powerful biblical narrative.
 weight: 23
 ---
 
