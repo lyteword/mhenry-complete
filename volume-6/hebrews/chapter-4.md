@@ -2,7 +2,7 @@
 title: "Hebrews 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
 description: >
-  The apostle, having in the foregoing chapter set forth the sin and punishment of the ancient Jews, proceeds in this, I. To declare that our privileges by Christ under the gospel ex...
+  Discover the profound gospel privileges that surpass the Old Testament law, leading you into the spiritual rest found only in Christ. Learn how the power of the Word of God and the mediation of Jesus Christ grant you access to the Throne of Grace for eternal mercy and glory.
 weight: 4
 ---
 
