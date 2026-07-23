@@ -2,7 +2,7 @@
 title: "2 Thessalonians 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
 description: >
-  After the introduction (2Th 1:1,2) the apostle begins this epistle with an account of his high esteem for these Thessalonians, 2Th 1:3,4. He then comforts them under their afflicti...
+  Discover the profound comfort and theological hope found in 2 Thessalonians Chapter 1. This commentary explores Paul's high esteem for the Thessalonians, detailing how their growing faith, love, and patience in the face of persecution are recognized by God. Learn about the future recompense awaiting the righteous and the glorious day of Christ's return, inspiring deeper faith and perseverance today.
 weight: 1
 ---
 
