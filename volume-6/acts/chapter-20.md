@@ -2,7 +2,7 @@
 title: "Acts 20 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "20"
 description: >
-  In this chapter we have, I. Paul's travels up and down about Macedonia, Greece, and Asia, and his coming at length to Troas, Ac 20:1-6. II. A particular account of his spending one...
+  Uncover the profound journey of the Apostle Paul in Acts 20, detailing his powerful farewell sermon to the elders of Ephesus and his unwavering commitment to the gospel. This chapter highlights themes of perseverance through persecution, humble service, and the importance of finishing one's ministry with joy. Discover the lessons on faith, repentance, and enduring hardship that will inspire your walk with Christ.
 weight: 20
 ---
 
