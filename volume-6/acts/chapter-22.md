@@ -2,7 +2,7 @@
 title: "Acts 22 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "22"
 description: >
-  In the close of the foregoing chapter we had Paul bound, according to Agabus's prophecy of the hard usage he should receive from the Jews at Jerusalem, yet he had his tongue set at...
+  Discover the powerful testimony of Acts 22, where the Apostle Paul defends his life, detailing his journey from zealous persecutor to an apostle called by a divine commission. Explore the miraculous conversion experience, his deep Jewish heritage, and the profound spiritual reason why he was sent to preach the gospel to the Gentiles. Read the complete biblical commentary on Paul's defense and the divine plan behind his mission.
 weight: 22
 ---
 
