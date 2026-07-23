@@ -2,7 +2,7 @@
 title: "Revelation 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
 description: >
-  In the foregoing chapter the prophetical scene was opened, in the sight and hearing of the apostle, and he had a sight of God the Creator and ruler of the world, and the great King...
+  Discover the profound meaning of Revelation Chapter 5 with this expert commentary on the sealed book. Learn why Jesus Christ, the worthy Lamb, was chosen by God to open the book of divine decrees and usher in our ultimate redemption. Explore the glorious message of salvation, eternal reign, and the universal praise of creation.
 weight: 5
 ---
 
