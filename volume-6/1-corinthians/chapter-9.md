@@ -2,7 +2,7 @@
 title: "1 Corinthians 9 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "9"
 description: >
-  In this chapter the apostle seems to answer some cavils against himself. I. He asserts his apostolical mission and authority, and gives in his success among them as a testimony to ...
+  Discover the profound theology of 1 Corinthians 9, exploring the Apostle Paul's rights as a minister and the ultimate necessity of self-denial for the sake of the gospel. This commentary delves into the justification for a minister's service, balancing personal rights with the spiritual duty to prioritize the salvation of souls and pursue an incorruptible crown. Understand how Paul's example of diligent, temperate service equips believers to run the Christian race toward eternal glory.
 weight: 9
 ---
 
