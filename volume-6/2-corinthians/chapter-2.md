@@ -2,7 +2,7 @@
 title: "2 Corinthians 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
 description: >
-  In this chapter the apostle proceeds in the account of the reasons why he did not come to Corinth, 2Co 2:1-4. Then he writes concerning the incestuous person who lay under censure;...
+  Uncover the profound lessons of 2 Corinthians 2 as this detailed commentary explores Paul's balancing act between pastoral love and necessary discipline. Discover how sincere ministry leads to spiritual triumph, even amidst the varied outcomes of the gospel. Perfect for deepening your understanding of biblical preaching and Christian faithfulness.
 weight: 2
 ---
 
