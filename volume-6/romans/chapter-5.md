@@ -2,7 +2,7 @@
 title: "Romans 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
 description: >
-  The apostle, having made good his point, and fully proved justification by faith, in this chapter proceeds in the explication, illustration, and application of that truth. I. He sh...
+  Discover the profound theology of Romans Chapter 5, exploring the path to salvation through justification by faith. This commentary reveals how the death of Jesus Christ provides peace with God, access to grace, and an unshakeable hope in God's glory. Learn how the contrast between Adam's sin and Christ's righteousness unlocks true reconciliation and eternal life.
 weight: 5
 ---
 
