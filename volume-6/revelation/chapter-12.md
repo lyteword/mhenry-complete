@@ -2,7 +2,7 @@
 title: "Revelation 12 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "12"
 description: >
-  It is generally agreed by the most learned expositors that the narrative we have in this and the two following chapters, from the sounding of the seventh trumpet to the opening of ...
+  Explore Revelation 12 to understand the epic battle between the Church and the forces of darkness. Discover how the Woman, clothed in Christ's light, overcomes the Dragon and Satan through the power of the Lamb and the word of testimony. Learn about divine providence and the ultimate triumph of salvation in this profound biblical prophecy.
 weight: 12
 ---
 
