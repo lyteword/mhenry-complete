@@ -2,7 +2,7 @@
 title: "Acts 13 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "13"
 description: >
-  We have not yet met with any things concerning the spreading of the gospel to the Gentiles which bears any proportion to the largeness of that commission, "Go, and disciple all nat...
+  Explore Acts 13 through this in-depth commentary, detailing the divine commissioning of Paul and Barnabas to spread the gospel to the Gentiles. Discover the strategic, cautious mission, the encounter with opposition, and Paul's profound sermon that firmly establishes Jesus Christ as the promised Saviour for all nations. Uncover the foundational history of God's covenant faithfulness and the triumphant fulfillment in the New Testament.
 weight: 13
 ---
 
