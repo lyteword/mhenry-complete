@@ -2,7 +2,7 @@
 title: "Revelation 21 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "21"
 description: >
-  Hitherto the prophecy of this book has presented to us a very remarkable mixture of light and shade, prosperity and adversity, mercy and judgment, in the conduct of divine Providen...
+  Discover the profound vision of Revelation 21, exploring the New Heaven and New Earth and the glorious New Jerusalem. This commentary delves into the perfect, triumphant state of the Church in heaven, emphasizing the eternal presence of God, the complete removal of sorrow, and the ultimate reward of perfect holiness. Understand the biblical promises for eternal life and the breathtaking reality of God's everlasting glory.
 weight: 21
 ---
 
