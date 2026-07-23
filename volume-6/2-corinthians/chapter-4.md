@@ -1,5 +1,5 @@
 ---
-title: "2 Corinthians 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Corinthians 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the profound themes of perseverance and unwavering faith in 2 Corinthians Chapter 4. This deep dive explores the constancy and sincerity of the apostles amidst persecution, revealing how they transformed earthly suffering into eternal glory. Learn how to draw strength from hope in the resurrection and the eternal weight of God's glory to navigate life's trials.

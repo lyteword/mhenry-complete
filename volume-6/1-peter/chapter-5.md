@@ -1,5 +1,5 @@
 ---
-title: "1 Peter 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Peter 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Discover the essential pastoral advice in 1 Peter 5, offering clear direction for church leaders on leading with humility and dedication. Learn practical strategies on how to feed your flock willingly, resist temptation, and cast all your care upon God for eternal glory. This powerful chapter guides believers toward spiritual vigilance and perseverance, strengthening your faith through submission and trust in God's mighty grace.

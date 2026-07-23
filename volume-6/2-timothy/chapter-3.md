@@ -1,5 +1,5 @@
 ---
-title: "2 Timothy 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Timothy 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Explore 2 Timothy chapter 3 to understand the marks of perilous times—from self-love to corruption—and discover the ultimate antidote: the holy scriptures. Learn how immersing yourself in God's inspired Word provides the wisdom and guidance necessary to live godly lives and be thoroughly furnished for salvation.

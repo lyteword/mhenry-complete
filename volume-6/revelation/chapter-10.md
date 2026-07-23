@@ -1,5 +1,5 @@
 ---
-title: "Revelation 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Uncover the profound truths of Revelation Chapter 10 with this in-depth analysis. Explore the vision of the mighty angel, the mystery of the seven thunders, and the solemn oath that signals the completion of God's plan. Learn the Apostle's mandate to take the prophetic message, digest it, and deliver this powerful divine message to the world.

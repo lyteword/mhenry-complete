@@ -1,5 +1,5 @@
 ---
-title: "2 Timothy 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Timothy 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore the profound wisdom of 2 Timothy chapter 2 through this comprehensive biblical commentary. Discover essential guidance on ministerial fortitude, navigating spiritual warfare, and the critical importance of diligently studying and rightly dividing the word of truth. Learn practical strategies for enduring hardship, overcoming theological error, and becoming a vessel of honor for God's ultimate purpose.

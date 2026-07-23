@@ -1,5 +1,5 @@
 ---
-title: "Colossians 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Colossians 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the essential spiritual guidance from Colossians chapter 4 through this deep commentary. Explore the vital duties of masters, the power of constant prayer, and how to walk in wisdom and grace in all your interactions. Learn how to season your speech with grace and build strong apostolic fellowship for a flourishing Christian life.

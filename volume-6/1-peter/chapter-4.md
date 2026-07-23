@@ -1,5 +1,5 @@
 ---
-title: "1 Peter 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Peter 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the profound spiritual guidance of 1 Peter Chapter 4 through this detailed commentary. This analysis explores the Christian's twofold duty: mortifying sin through Christ's suffering, practicing fervent charity and hospitality, and stewarding God-given talents. Learn how to find hope and fortitude during persecution, preparing your soul for eternal glory and the coming judgment.

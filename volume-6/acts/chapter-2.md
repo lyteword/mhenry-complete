@@ -1,5 +1,5 @@
 ---
-title: "Acts 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Uncover the powerful miracle of the Day of Pentecost in Acts 2, detailing the descent of the Holy Spirit, Peter's transformative sermon, and the dawn of the early church. Explore the profound connection between the Spirit's outpouring, the resurrection of Christ, and the global proclamation of the gospel. This commentary reveals the foundational events that established Christian faith and continues to inspire believers today.

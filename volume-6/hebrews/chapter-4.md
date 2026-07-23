@@ -1,5 +1,5 @@
 ---
-title: "Hebrews 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hebrews 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the profound gospel privileges that surpass the Old Testament law, leading you into the spiritual rest found only in Christ. Learn how the power of the Word of God and the mediation of Jesus Christ grant you access to the Throne of Grace for eternal mercy and glory.

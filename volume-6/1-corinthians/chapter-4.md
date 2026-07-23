@@ -1,5 +1,5 @@
 ---
-title: "1 Corinthians 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Corinthians 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Dive deep into 1 Corinthians 4 to master the principles of faithful stewardship, humility, and enduring spiritual suffering. This powerful commentary explores Paul's tender fatherly love, the danger of pride, and the true source of God's power to guide Christian leadership.

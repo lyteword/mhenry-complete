@@ -1,5 +1,5 @@
 ---
-title: "Revelation 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Discover the ultimate vision of the New Jerusalem in Revelation 22, exploring the eternal paradise of the Tree of Life and the reign of God. This commentary confirms the divine authority of scripture and assures believers of Christ's speedy return, offering profound hope and eternal life.

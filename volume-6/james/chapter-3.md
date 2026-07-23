@@ -1,5 +1,5 @@
 ---
-title: "James 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "James 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Discover the profound lessons of James 3 on the "Government of the Tongue," learning how to bridle your speech from being a fire of iniquity to a source of blessing. This commentary distinguishes between worldly, strife-filled wisdom and true, heavenly wisdom, which is characterized by purity, peace, and gentle conduct. Optimize your communication and life by mastering your tongue to sow the fruits of righteousness.

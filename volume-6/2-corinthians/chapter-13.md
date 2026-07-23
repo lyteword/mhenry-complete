@@ -1,5 +1,5 @@
 ---
-title: "2 Corinthians 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Corinthians 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Dive deep into 2 Corinthians Chapter 13 with this comprehensive commentary on the apostle Paul's final, powerful warnings and profound theological insights. Explore the critical call to self-examination, the necessity of living an honest life for the sake of the Gospel, and the assurance of God's grace. Discover how perseverance, faith, and the truth of the Trinity guide believers toward spiritual perfection.

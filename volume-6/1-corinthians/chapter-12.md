@@ -1,5 +1,5 @@
 ---
-title: "1 Corinthians 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Corinthians 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Explore 1 Corinthians 12 to discover the profound truth of spiritual gifts, revealing how every member is essential to the unity of the Body of Christ. Learn how to identify, use, and value your unique gifts for the edification of the church, promoting mutual love over pride and contention. This commentary provides deep insight into the divine design for Christian community and service.

@@ -1,5 +1,5 @@
 ---
-title: "Acts 25 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 25 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "25"
 description: >
   Dive into this detailed commentary on Acts Chapter 25, exploring the intense legal drama of Paul's trial before Festus and King Agrippa. Discover the complex interplay between Jewish accusations, Roman law, and Paul's ultimate appeal to Caesar. This deep dive reveals crucial insights into early Christian history and the tension between faith and imperial power.

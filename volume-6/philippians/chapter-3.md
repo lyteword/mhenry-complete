@@ -1,5 +1,5 @@
 ---
-title: "Philippians 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Philippians 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Explore Philippians 3 to discover the path to true Christian living, emphasizing the necessity of renouncing worldly pride for the 'excellency of the knowledge of Christ.' This chapter powerfully outlines how to find righteousness through faith and pursue the ultimate hope: the glorious resurrection of the dead. Learn how to follow Christ's example and secure your eternal life.

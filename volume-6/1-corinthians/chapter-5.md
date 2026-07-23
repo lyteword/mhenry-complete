@@ -1,5 +1,5 @@
 ---
-title: "1 Corinthians 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Corinthians 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Dive deep into 1 Corinthians Chapter 5 to uncover the Apostle Paul's powerful message on Christian purity and moral conduct. This essential commentary explores the necessity of purging the "old leaven" from your life and the serious consequences of indulging in gross immorality within the church. Learn how to maintain sincerity, avoid scandalous influences, and secure your spiritual well-being through unwavering devotion to Christ.

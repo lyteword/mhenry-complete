@@ -1,5 +1,5 @@
 ---
-title: "1 Peter 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Peter 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Discover the profound guidance of 1 Peter 3, an essential guide for Christians on navigating complex relationships, including the duties within marriage and how to treat enemies with blessing. This powerful commentary explores the importance of a good conscience, unwavering patience, and following the example of Christ to achieve lasting peace and spiritual victory.

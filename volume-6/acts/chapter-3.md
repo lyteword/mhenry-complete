@@ -1,5 +1,5 @@
 ---
-title: "Acts 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Discover the powerful narrative of Acts Chapter 3, featuring a miraculous healing that paved the way for a profound sermon on Christ. Explore how faith in Jesus Christ unlocks divine power, and find encouragement in the promises of times of refreshing and the ultimate restitution of all things. This passage is a powerful call to repentance and a declaration of eternal hope.

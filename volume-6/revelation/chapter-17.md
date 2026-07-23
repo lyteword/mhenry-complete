@@ -1,5 +1,5 @@
 ---
-title: "Revelation 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Uncover the terrifying vision of the Great Whore, Babylon the Great, in this in-depth commentary on Revelation Chapter 17. This powerful analysis explores the symbolism of the beast and the inevitable judgment against worldly corruption and idolatry. Discover the ultimate victory of the Lamb over the forces of the Antichrist in this profound biblical interpretation.

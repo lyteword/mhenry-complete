@@ -1,5 +1,5 @@
 ---
-title: "Hebrews 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hebrews 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Discover the essential duties of Christian living in Hebrews 13, focusing on cultivating brotherly love, practicing hospitality, and achieving true contentment. Learn how to honor your ministers and understand that Christ is the true altar, empowering you to live a life of faith, charity, and unwavering hope.

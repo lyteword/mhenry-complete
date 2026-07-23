@@ -1,5 +1,5 @@
 ---
-title: "2 Peter 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Peter 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Explore 2 Peter Chapter 3 to gain profound insights into the prophecies of the Second Coming of Christ and the ultimate destruction and renovation of the world. This detailed commentary emphasizes the vital need for Christian holiness and diligent preparation to secure hope in the New Heaven and New Earth. Dive deep into these end-times truths and learn how to live a life of steadfast faith and eternal hope.

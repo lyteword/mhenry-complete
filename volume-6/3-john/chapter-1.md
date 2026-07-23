@@ -1,5 +1,5 @@
 ---
-title: "3 John 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "3 John 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the timeless wisdom of 3 John 1, exploring how genuine Christian charity, faithful service, and hospitality lead to soul prosperity. This deep dive into the epistle offers powerful biblical encouragement on walking in the truth, overcoming pride, and living a life of integrity that honors God. Perfect for deepening your understanding of Christian fellowship and spiritual growth.

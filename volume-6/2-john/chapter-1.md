@@ -1,5 +1,5 @@
 ---
-title: "2 John 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 John 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the powerful message of 2 John 1, where the apostle urges believers to cultivate deep faith and genuine love. This essential commentary guides you on how to identify and guard against deceivers who deny the true doctrine of Christ, emphasizing the critical need for mutual Christian love and steadfast adherence to God's word. Learn practical wisdom for maintaining spiritual purity and securing your eternal reward.

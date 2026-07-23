@@ -1,5 +1,5 @@
 ---
-title: "Acts 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
   Uncover the profound journey of the Apostle Paul in Acts 20, detailing his powerful farewell sermon to the elders of Ephesus and his unwavering commitment to the gospel. This chapter highlights themes of perseverance through persecution, humble service, and the importance of finishing one's ministry with joy. Discover the lessons on faith, repentance, and enduring hardship that will inspire your walk with Christ.

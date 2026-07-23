@@ -1,5 +1,5 @@
 ---
-title: "1 Corinthians 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Corinthians 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Unlock the profound wisdom of 1 Corinthians 14 with this expert SEO-optimized summary. Discover the biblical guidance on maximizing your spiritual gifts, learning why prophesying is superior to speaking in tongues for true church edification. This essential commentary offers deep insights into maintaining order, discerning divine revelation, and ensuring Christian worship is conducted with grace and purpose.

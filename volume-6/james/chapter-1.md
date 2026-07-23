@@ -1,5 +1,5 @@
 ---
-title: "James 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "James 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the profound lessons of the James commentary, offering deep guidance on Christian conduct, cultivating patience through trials, and seeking divine wisdom in every challenge. This essential reading clarifies the vital distinction between merely hearing scripture and actively *doing* the Word to achieve true, pure, and blessed faith. Learn how to suppress corrupt affections and live a life truly aligned with God's will.

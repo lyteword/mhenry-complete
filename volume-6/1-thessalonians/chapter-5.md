@@ -1,5 +1,5 @@
 ---
-title: "1 Thessalonians 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Thessalonians 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Discover the essential teachings of 1 Thessalonians Chapter 5, focusing on the urgency of the Second Coming of Christ and the practical duties of a devoted Christian life. This guide explores how to cultivate watchfulness, sobriety, and unwavering hope by putting on the armor of faith, love, and hope. Learn vital exhortations on prayer, thanksgiving, and how to live righteously in community, ensuring you are prepared for the Lord's return.

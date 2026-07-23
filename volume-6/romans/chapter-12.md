@@ -1,5 +1,5 @@
 ---
-title: "Romans 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Discover the practical religion of Christian life in Romans Chapter 12, which outlines the principal duties required of believers. This passage calls for consecrating our bodies as a living sacrifice, renewing our minds to reject worldly conformity, and cultivating deep brotherly love toward all people. Learn how to live a life of godliness, sobriety, and active service, transforming your heart and actions according to God's perfect will.

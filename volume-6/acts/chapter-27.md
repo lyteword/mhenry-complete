@@ -1,5 +1,5 @@
 ---
-title: "Acts 27 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 27 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "27"
 description: >
   Discover the powerful account of Paul's perilous voyage to Rome in Acts 27, detailing a terrifying storm, shipwreck, and ultimate survival. This detailed biblical commentary explores themes of divine providence, steadfast faith, and the comfort found in trusting God's promise amidst extreme adversity. Read this essential chapter to find spiritual encouragement and lessons on perseverance for your own life's journeys.

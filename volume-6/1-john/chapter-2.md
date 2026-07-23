@@ -1,5 +1,5 @@
 ---
-title: "1 John 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 John 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the profound truths of 1 John Chapter 2, focusing on the path to true Christian life. This powerful commentary explores how to overcome the sins of infirmity by embracing the true knowledge and love of God, warning against the allure of worldly desires, and highlighting the security believers find in Jesus Christ as the ultimate Advocate. Learn the vital importance of keeping God's commandments and abiding in Christ to secure eternal life and remain steadfast in the face of antichristian temptations.

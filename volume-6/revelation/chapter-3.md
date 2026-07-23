@@ -1,5 +1,5 @@
 ---
-title: "Revelation 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Dive into Revelation 3 and unlock profound spiritual insights as we examine the struggles of the churches. This commentary highlights the dangers of spiritual deadness and lukewarmness, offering a compelling call to watchfulness, true repentance, and the victorious reward for persevering in Christ. Discover the powerful guidance for overcoming and standing as a pillar of faith.

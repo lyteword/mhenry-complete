@@ -1,5 +1,5 @@
 ---
-title: "Hebrews 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hebrews 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Discover the profound shift in Christian theology in Hebrews Chapter 10, as the apostle contrasts the temporary Levitical sacrifices with the eternal, perfect Priesthood of Jesus Christ. This commentary powerfully outlines the New Covenant, urging believers to embrace the living way of grace, maintain unwavering faith, and persevere through trials for eternal salvation.

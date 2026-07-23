@@ -1,5 +1,5 @@
 ---
-title: "Romans 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Discover the profound closing of Romans Chapter 16, where Paul offers heartfelt commendations and a vital warning to guard against divisions within the church. This deep commentary explores the ultimate theme of Christian unity and the glorious victory promised by the God of Peace over Satan. Understand the true nature of the Gospel mystery and find encouragement for your faith in this essential biblical study.

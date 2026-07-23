@@ -1,5 +1,5 @@
 ---
-title: "Acts 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Uncover the powerful journey of the gospel in Acts Chapter 8, detailing how Christian persecution unexpectedly led to massive spiritual growth and global expansion. Explore the miraculous conversion of Samaritans and the journey of Philip to the Ethiopian eunuch, highlighting the transformative power of Christ's message. This chapter is a compelling study on overcoming spiritual deception, contrasting false power with genuine faith, and witnessing the unstoppable grace of God in spreading the true word.

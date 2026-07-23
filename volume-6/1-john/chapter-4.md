@@ -1,5 +1,5 @@
 ---
-title: "1 John 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 John 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Dive deep into 1 John Chapter 4 to uncover the profound truth that God is love. This essential commentary guides readers through discerning the true spirit of God from false teachings and passionately exhorts believers to cultivate authentic, Christ-centered love for one another. Discover how divine love perfects our faith and establishes a deep, abiding communion with God.

@@ -1,5 +1,5 @@
 ---
-title: "Acts 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Dive deep into Acts Chapter 6 with this comprehensive commentary, exploring the pivotal moments of the early church. Discover the struggle over public charity, the appointment of the first deacons, and the dramatic trial of Stephen, a faithful servant whose miracles and powerful testimony fueled the explosive growth of Christianity. This detailed analysis reveals how the early believers navigated internal challenges and external persecution to establish the foundation of the church.

@@ -1,5 +1,5 @@
 ---
-title: "Hebrews 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hebrews 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Explore Hebrews Chapter 9 to deeply understand the correspondence between the Old and New Testaments. Discover the profound symbolism of the Tabernacle and witness how Christ's blood offers infinite redemption, making His priesthood superior to all former sacrifices. Learn about the necessity of Christ's death and His glorious second coming for your eternal salvation.

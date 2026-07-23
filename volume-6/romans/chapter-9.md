@@ -1,5 +1,5 @@
 ---
-title: "Romans 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Explore Romans 9 to uncover the profound theological tension between God's divine promise, the rejection of the Jewish people, and the doctrine of absolute divine sovereignty. This chapter powerfully argues that salvation is by faith alone, demonstrating how God sovereignly distinguishes between those who are chosen through grace and those who seek righteousness through works of the law. Discover the biblical proof of God's absolute will in predestination and the triumphant calling of the Gentiles.

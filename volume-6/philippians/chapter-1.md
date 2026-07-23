@@ -1,5 +1,5 @@
 ---
-title: "Philippians 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Philippians 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the profound encouragement and deep theological insight of Philippians Chapter 1 through this expert commentary. Explore Paul's heartfelt thanks for fellowship in the gospel and learn how to maintain steadfastness, boldness, and unwavering faith through suffering. This commentary illuminates the power of grace, the nature of the work of God, and the assurance of Christ's ultimate triumph.

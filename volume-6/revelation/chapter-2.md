@@ -1,5 +1,5 @@
 ---
-title: "Revelation 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the profound teachings of Revelation Chapter 2, offering essential guidance on Christian perseverance and spiritual warfare. This commentary explores how to overcome temptation, embrace repentance, and claim the promised rewards of eternal life through unwavering faith. Learn how Christ's authority empowers believers to triumph over spiritual enemies and receive a crown of life.

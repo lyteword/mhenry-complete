@@ -1,5 +1,5 @@
 ---
-title: "Hebrews 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hebrews 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Discover the profound nature of faith in Hebrews 11, examining the heroic examples of Abraham, Noah, and Joseph. Learn how faith serves as the ultimate preservative against apostasy, guiding believers toward the hope of a heavenly city promised by God. Explore these timeless examples to strengthen your conviction and embrace eternal hope.

@@ -1,5 +1,5 @@
 ---
-title: "1 Timothy 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Timothy 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the profound teachings of 1 Timothy Chapter 2, exploring the call to universal prayer for all men and leaders, and the foundational role of Christ as the ultimate Mediator. This chapter offers essential biblical guidance on Christian conduct, urging women toward modesty, good works, and submission, emphasizing that true godliness is expressed through faith and integrity. Learn how to deepen your intercession and live a life of peace and holiness according to scripture.

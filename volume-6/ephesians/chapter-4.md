@@ -1,5 +1,5 @@
 ---
-title: "Ephesians 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ephesians 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the essential Christian duties outlined in Ephesians Chapter 4, focusing on achieving unity through mutual love, humility, and patience. Learn practical steps to walk worthy of your calling by embracing Christian purity, putting off the old self, and growing into the new man. This guide provides actionable guidance on speaking the truth in love and edifying the body of Christ for spiritual growth.

@@ -1,5 +1,5 @@
 ---
-title: "1 Corinthians 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Corinthians 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Explore 1 Corinthians Chapter 8 to understand the profound Christian ethics surrounding eating food offered to idols. This commentary explores the crucial balance between personal knowledge and charity, emphasizing that true faith demands protecting the conscience of weak believers and avoiding any action that becomes a stumbling block. Discover how to live with Christian liberty guided by love for God and neighbor.

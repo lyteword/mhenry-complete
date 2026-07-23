@@ -1,5 +1,5 @@
 ---
-title: "Acts 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Dive deep into the pivotal events of Acts 4 as this comprehensive commentary reveals the courage of Peter and John against powerful opposition. Uncover the theological significance of the resurrection of Christ, the power of the Holy Spirit, and the absolute certainty that salvation is found solely through Jesus. Explore this essential biblical study on faith, persecution, and divine authority.

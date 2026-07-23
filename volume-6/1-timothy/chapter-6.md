@@ -1,5 +1,5 @@
 ---
-title: "1 Timothy 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Timothy 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Discover the profound wisdom of 1 Timothy 6, exploring the vital balance between godly contentment and the dangers of covetousness. This commentary offers essential guidance on Christian duty, how to navigate false teaching, and how rich believers can secure eternal life through good works. Learn practical advice for living a life of true faith and ministerial integrity.

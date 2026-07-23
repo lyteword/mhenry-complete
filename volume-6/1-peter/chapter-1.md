@@ -1,5 +1,5 @@
 ---
-title: "1 Peter 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Peter 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the profound truths of 1 Peter, exploring how regeneration leads to a lively hope of eternal salvation rooted in the resurrection of Jesus Christ. This detailed commentary guides you through the call to holiness, sober living, and the incomparable joy found in a tried faith. Uncover the promise of an incorruptible inheritance reserved in heaven, ensuring your hope is secure for the glorious revelation of Jesus Christ.

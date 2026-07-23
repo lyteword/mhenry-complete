@@ -1,5 +1,5 @@
 ---
-title: "1 Corinthians 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Corinthians 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Dive deep into 1 Corinthians Chapter 3 to uncover the powerful lessons on spiritual unity, the true foundation of faith in Jesus Christ, and the call to holiness. This commentary explores why divisions arise and how faithful believers can build a lasting legacy by focusing on Christ as the sole cornerstone, avoiding worldly wisdom, and living as the temple of God. Discover profound guidance on ministerial roles, testing by fire, and the path to true, eternal reward.

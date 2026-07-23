@@ -1,5 +1,5 @@
 ---
-title: "1 Timothy 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Timothy 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Uncover the profound theological insights of 1 Timothy 4, exploring prophecies of the latter-day apostasy and the essence of Christian liberty. This detailed commentary guides you through essential ministerial duties, emphasizing the pursuit of godliness, diligent scripture study, and living as an example for others. Strengthen your faith and spiritual growth with this expert analysis of biblical wisdom for modern Christian living.

@@ -1,5 +1,5 @@
 ---
-title: "James 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "James 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore James Chapter 2 to understand the serious sin of respecting persons and judging based on wealth. Discover why true Christian faith must be evidenced by righteous works, not just a mere profession. Learn how the law of Christ calls us to show mercy to the poor and live a life of true, active devotion.

@@ -1,5 +1,5 @@
 ---
-title: "2 Corinthians 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Corinthians 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Uncover the profound lessons of 2 Corinthians 2 as this detailed commentary explores Paul's balancing act between pastoral love and necessary discipline. Discover how sincere ministry leads to spiritual triumph, even amidst the varied outcomes of the gospel. Perfect for deepening your understanding of biblical preaching and Christian faithfulness.

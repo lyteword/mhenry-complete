@@ -1,5 +1,5 @@
 ---
-title: "Romans 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the profound gospel truth of justification by faith in Romans 4. This chapter uses the exemplary life of Abraham to prove that salvation is achieved through God's grace, not by human works. Learn how Christian faith, anchored in the resurrection of Christ, secures our righteousness and eternal salvation.

@@ -1,5 +1,5 @@
 ---
-title: "Hebrews 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hebrews 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Discover the profound doctrine of Christ's priestly office in Hebrews 7. This chapter reveals how Christ's eternal priesthood, modeled after Melchisedec, is vastly superior to the temporary Levitical system, offering true perfection and salvation. Learn how this new covenant and eternal mediation provide believers with perfect holiness, boundless hope, and ultimate reconciliation with God.

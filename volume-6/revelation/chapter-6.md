@@ -1,5 +1,5 @@
 ---
-title: "Revelation 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Explore the profound theological meaning of Revelation Chapter 6 as we delve into the opening of the seals. Discover the escalating sequence of divine judgments—from Christ's conquering victory on the white horse to the terrible consequences of war, famine, and death. Uncover the ultimate vision of God's wrath and the unfolding of the end times through these powerful prophetic visions.

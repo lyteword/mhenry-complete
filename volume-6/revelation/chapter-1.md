@@ -1,5 +1,5 @@
 ---
-title: "Revelation 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the foundational message of Revelation 1, the complete preface to the book, which unveils Jesus Christ as the ultimate Mediator and the source of all divine revelation. This chapter features a stunning prophetic vision of the Lord Jesus Christ—Alpha and Omega—establishing His authority as the beginning and the end, and serving as a powerful call to study the scripture as the time for His return draws near. Explore this deep theological insight into divine providence and the glory of Christ's reign.

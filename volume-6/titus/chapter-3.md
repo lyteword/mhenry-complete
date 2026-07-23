@@ -1,5 +1,5 @@
 ---
-title: "Titus 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Titus 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Discover the essential duties of Christian life in Titus chapter 3, focusing on submission to authority, genuine meekness toward all people, and the importance of avoiding malice and conflict. Explore the profound theological reasons behind salvation by grace, regeneration, and justification, emphasizing the necessity of maintaining fruitful good works. Learn biblical guidance on how to deal with heresy and foster spiritual growth today.

@@ -1,5 +1,5 @@
 ---
-title: "1 Timothy 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Timothy 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the profound teachings of 1 Timothy, where the Apostle Paul guides Timothy on the true end of the law: love, a pure heart, and unfeigned faith. Explore the powerful narrative of Paul's conversion and learn essential principles for effective Christian ministry, focusing on doctrine, good conscience, and the abundant grace of God. This commentary provides deep insight into biblical leadership and the heart of the Gospel.

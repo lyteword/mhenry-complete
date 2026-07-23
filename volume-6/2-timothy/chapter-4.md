@@ -1,5 +1,5 @@
 ---
-title: "2 Timothy 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Timothy 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Explore the profound final charge Paul gives Timothy in 2 Timothy 4, detailing the essential duties of a faithful evangelist, including preaching the sound Word and enduring trials. This commentary provides deep insight into maintaining doctrinal purity and finding encouragement for ministers as they prepare for their calling's completion.

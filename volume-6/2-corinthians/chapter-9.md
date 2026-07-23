@@ -1,5 +1,5 @@
 ---
-title: "2 Corinthians 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Corinthians 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Explore the profound biblical teachings of 2 Corinthians 9 to unlock the secrets of true generosity and charity. This commentary guides you on how to be a cheerful giver by sowing bountifully and deliberately, emphasizing the divine promise that generosity leads to spiritual abundance and great gain. Discover practical guidance on how to make your giving truly fruitful and glorify God through your liberal distribution.

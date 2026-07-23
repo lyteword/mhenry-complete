@@ -1,5 +1,5 @@
 ---
-title: "1 John 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 John 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Discover the profound truths of 1 John chapter 5, revealing the dignity of believers and the ultimate victory achieved through unwavering faith in Jesus Christ. Explore the essential credentials of the Saviour—coming by water and blood—and how the Holy Spirit provides the ultimate witness to eternal life. Understand the power of this gospel to conquer the world and secure your place in God's eternal plan.

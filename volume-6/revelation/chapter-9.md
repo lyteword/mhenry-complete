@@ -1,5 +1,5 @@
 ---
-title: "Revelation 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Uncover the terrifying prophecies of Revelation Chapter 9, detailing the terrifying fifth trumpet, the devastating swarm of locusts representing the devil's agents, and the sixth trumpet unleashing armies of angels for divine judgment. Explore the deep theological meaning of spiritual warfare, the limits of earthly power, and the dire consequences of human impenitence and idolatry. This detailed commentary offers profound insights into God's wrath and the ultimate victory over sin.

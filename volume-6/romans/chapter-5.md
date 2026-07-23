@@ -1,5 +1,5 @@
 ---
-title: "Romans 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Discover the profound theology of Romans Chapter 5, exploring the path to salvation through justification by faith. This commentary reveals how the death of Jesus Christ provides peace with God, access to grace, and an unshakeable hope in God's glory. Learn how the contrast between Adam's sin and Christ's righteousness unlocks true reconciliation and eternal life.

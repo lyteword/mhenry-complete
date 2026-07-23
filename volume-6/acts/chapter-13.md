@@ -1,5 +1,5 @@
 ---
-title: "Acts 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
   Explore Acts 13 through this in-depth commentary, detailing the divine commissioning of Paul and Barnabas to spread the gospel to the Gentiles. Discover the strategic, cautious mission, the encounter with opposition, and Paul's profound sermon that firmly establishes Jesus Christ as the promised Saviour for all nations. Uncover the foundational history of God's covenant faithfulness and the triumphant fulfillment in the New Testament.

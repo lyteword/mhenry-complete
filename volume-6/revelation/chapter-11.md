@@ -1,5 +1,5 @@
 ---
-title: "Revelation 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
   Discover the profound truths of Revelation 11 in this detailed commentary, exploring the prophecy of the temple's measurement, the powerful ministry of the two witnesses, and the climactic sounding of the seventh trumpet. Uncover how God preserves His true worship amidst worldly trials and witness the final triumph of Christ's reign as the world is transformed. This deep dive offers essential insights into end-times prophecy and enduring faith.

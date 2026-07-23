@@ -1,5 +1,5 @@
 ---
-title: "1 John 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 John 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Discover the profound message of 1 John 3, exploring the incredible love of God that makes us the sons of God. Learn how to pursue holiness and cultivate brotherly love to secure assurance of eternal life. This commentary guides you through the path of faith, obedience, and true Christian living.

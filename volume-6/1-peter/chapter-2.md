@@ -1,5 +1,5 @@
 ---
-title: "1 Peter 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Peter 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Deep dive into 1 Peter 2 to unlock profound truths about Christian living, emphasizing the necessity of purity, the nourishment of God's Word, and the preciousness of Jesus Christ as the living foundation. Discover how to live as a holy priesthood, embrace submission, and find strength through Christ's sacrificial example in overcoming sin and enduring hardship.

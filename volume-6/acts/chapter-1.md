@@ -1,5 +1,5 @@
 ---
-title: "Acts 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Dive deep into Acts Chapter 1 with this comprehensive Bible commentary to explore the profound events following Christ's ascension, including the irrefutable proofs of the resurrection and the promise of the Holy Spirit. Discover the foundational history of the early Christian church, the roles of the apostles, and the mission entrusted to them. Perfect for serious Bible study and understanding the origins of the Christian faith.

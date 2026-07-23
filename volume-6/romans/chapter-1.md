@@ -1,5 +1,5 @@
 ---
-title: "Romans 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the profound theological foundation of the Gospel in Romans Chapter 1. This commentary deeply explores the doctrine of justification by faith, revealing how the righteousness of God is revealed from faith to faith, contrasting the deplorable condition of the Gentile world with the saving power of Christ. Explore Paul's apostolic calling and the stark reality of spiritual judgment against idolatry to understand the true path to salvation.

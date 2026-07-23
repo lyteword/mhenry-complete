@@ -1,5 +1,5 @@
 ---
-title: "Romans 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Unlock the profound truths of Romans 6 by exploring the core doctrine of justification by faith and the absolute necessity of sanctification. Discover how to achieve a holy life by dying to sin and living a new life through the power of Jesus Christ. Learn the principles of mortification and vivification that lead to eternal life and righteousness.

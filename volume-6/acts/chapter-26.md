@@ -1,5 +1,5 @@
 ---
-title: "Acts 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
   Explore the profound defense of the Apostle Paul in Acts 26 as he addresses the Jews before King Agrippa, detailing his journey from Pharisee to missionary. This commentary delves into his divine commission, the resurrection of the dead, and the universal message of the Gospel that turns darkness into light for all people.

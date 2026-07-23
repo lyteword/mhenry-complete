@@ -1,5 +1,5 @@
 ---
-title: "Titus 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Titus 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the essential guide to Christian living in Titus 2, detailing the practical duties for all believers—from the virtues of the aged to the conduct of young men and women. This profound commentary explores the foundation of the Gospel, emphasizing how the grace of God leads to salvation, urging readers to live soberly, righteously, and godly in this world. Learn how to embody sound doctrine and pursue the blessed hope of Christ's glorious return through faithful, good works.

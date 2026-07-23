@@ -1,5 +1,5 @@
 ---
-title: "Revelation 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Discover the profound meaning of Revelation Chapter 5 with this expert commentary on the sealed book. Learn why Jesus Christ, the worthy Lamb, was chosen by God to open the book of divine decrees and usher in our ultimate redemption. Explore the glorious message of salvation, eternal reign, and the universal praise of creation.

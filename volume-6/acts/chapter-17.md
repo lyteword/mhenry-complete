@@ -1,5 +1,5 @@
 ---
-title: "Acts 17 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 17 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "17"
 description: >
   Discover the powerful ministry of Paul as he preached in Thessalonica, Berea, and Athens in Acts Chapter 17. This commentary delves deep into Paul's method of scriptural reasoning, the contrast between pagan philosophy and true faith, and the enduring power of the Gospel against persecution. Learn how the New Testament challenges ancient worldviews and the true nature of God.

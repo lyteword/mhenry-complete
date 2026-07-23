@@ -1,5 +1,5 @@
 ---
-title: "Romans 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Explore Romans Chapter 7 to understand the profound conflict between grace and corruption in the heart. Discover how the law of God reveals sin but cannot conquer it, and find your ultimate deliverance through the power of Christ. This deep theological analysis offers essential insights into the struggle of sanctification and spiritual life.

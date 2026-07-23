@@ -1,5 +1,5 @@
 ---
-title: "2 Corinthians 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Corinthians 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the profound comfort found in 2 Corinthians 1 as the Apostle Paul recounts his tribulations and the boundless goodness of God. Learn how to find hope and steadfast faith even in the midst of suffering by exploring the powerful message of Christ's promises. This commentary offers deep insight into the sincerity of faith and enduring divine grace.

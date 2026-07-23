@@ -1,5 +1,5 @@
 ---
-title: "Acts 28 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 28 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "28"
 description: >
   Discover the incredible journey of Paul in Acts 28, from a dangerous shipwreck in Malta to his imprisonment in Rome. This commentary explores divine providence, the profound kindness of strangers, and Paul's powerful defense of the Christian gospel against persecution.

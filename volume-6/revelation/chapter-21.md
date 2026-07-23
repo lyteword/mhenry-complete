@@ -1,5 +1,5 @@
 ---
-title: "Revelation 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
   Discover the profound vision of Revelation 21, exploring the New Heaven and New Earth and the glorious New Jerusalem. This commentary delves into the perfect, triumphant state of the Church in heaven, emphasizing the eternal presence of God, the complete removal of sorrow, and the ultimate reward of perfect holiness. Understand the biblical promises for eternal life and the breathtaking reality of God's everlasting glory.

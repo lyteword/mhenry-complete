@@ -1,5 +1,5 @@
 ---
-title: "1 Thessalonians 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Thessalonians 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
   Discover the profound teachings of 1 Thessalonians chapter 4, focusing on the urgent call to holiness, the importance of brotherly love, and the glorious hope of the resurrection and the second coming of Christ. Learn how to live a sanctified Christian life and find enduring comfort in the promise that believers will meet the Lord forever.

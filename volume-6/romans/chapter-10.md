@@ -1,5 +1,5 @@
 ---
-title: "Romans 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
   Discover the profound difference between the righteousness of the Law and the transformative righteousness of faith found in Romans 10. Learn how genuine salvation is achieved not through works, but through believing in Christ and confessing Him with your heart and mouth. Explore the universal promise of the gospel and the vital role of preaching the Word of God in bringing salvation to all nations.

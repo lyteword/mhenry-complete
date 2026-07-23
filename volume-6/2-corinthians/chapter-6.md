@@ -1,5 +1,5 @@
 ---
-title: "2 Corinthians 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Corinthians 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Discover the profound teachings of 2 Corinthians 6, exploring the apostle Paul's powerful ministry and the essential principles for faithful Christian living. Learn how to maintain spiritual purity, endure trials, and wisely avoid unequally yoked relationships with unbelievers to truly represent the temple of God. This commentary offers vital guidance on ministry, love, and separation for believers today.

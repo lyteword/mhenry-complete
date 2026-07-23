@@ -1,5 +1,5 @@
 ---
-title: "Colossians 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Colossians 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Discover the profound spiritual lessons in Colossians chapter 2. This commentary explores Paul's earnest concern for the Colossians, detailing how true spiritual prosperity is achieved through understanding the mystery of God and being deeply rooted in Christ. Learn how to avoid false teachers and embrace the freedom found in Christ, realizing that all wisdom and knowledge reside in Him.

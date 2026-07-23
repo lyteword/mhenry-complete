@@ -1,5 +1,5 @@
 ---
-title: "Revelation 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
   Revelation Chapter 7 reveals profound comfort and hope through the sealing of God's servants and the glorious state of the saints. Discover the incredible honour awaiting those who have endured tribulation, washed their robes in the blood of the Lamb, and enjoy eternal rest in the presence of God. This powerful passage offers ultimate assurance and a vision of salvation for all believers.

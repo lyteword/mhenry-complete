@@ -1,5 +1,5 @@
 ---
-title: "1 Corinthians 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Corinthians 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
   Dive deep into 1 Corinthians 16 to unlock powerful insights on Christian stewardship, selfless charity, and maintaining unwavering faith in a challenging world. This commentary offers essential guidance on conduct, ministerial relationships, and the profound nature of love as taught by the Apostle Paul.

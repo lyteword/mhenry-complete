@@ -1,5 +1,5 @@
 ---
-title: "1 Timothy 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Timothy 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Explore the deep theological insights of 1 Timothy Chapter 3 with this comprehensive commentary on church leadership. Discover the detailed biblical qualifications for bishops and deacons, and uncover the profound "Mystery of Godliness" that defines the true nature of the church. This guide offers essential wisdom on Christian conduct, ministry duties, and how to uphold the truth.

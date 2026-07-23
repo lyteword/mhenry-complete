@@ -1,5 +1,5 @@
 ---
-title: "1 John 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 John 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Dive deep into 1 John chapter 1 to explore the profound evidence of Christ's person as the Word of Life and eternal life. Discover how walking in the light leads to true fellowship with God, and learn the vital path to forgiveness through confession. This essential commentary illuminates the core truths of Christian faith and the power of Jesus Christ's redeeming blood.

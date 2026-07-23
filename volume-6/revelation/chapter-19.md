@@ -1,5 +1,5 @@
 ---
-title: "Revelation 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
   Discover the profound themes of Revelation chapter 19, exploring the triumphant song of the saints following the fall of Babylon and the glorious marriage of Christ and the Church. This powerful commentary details the vision of the victorious King of Kings, the defeat of the Beast, and the ultimate, righteous victory of God's judgment. Uncover the prophecy detailing the culmination of divine history and the eternal triumph of the redeemed.

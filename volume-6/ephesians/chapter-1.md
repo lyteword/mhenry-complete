@@ -1,5 +1,5 @@
 ---
-title: "Ephesians 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ephesians 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the profound theological truths of Ephesians Chapter 1, exploring how God has bestowed us with inestimable spiritual blessings, including election, redemption through Christ's blood, and eternal inheritance. This chapter highlights the immense power of God, the guidance of the Holy Spirit, and the apostle's earnest prayer for believers to gain wisdom, hope, and an understanding of Christ's glorious plan. Dive deep into the foundational concepts of grace, union with Christ, and the fullness of God's power to transform your life.

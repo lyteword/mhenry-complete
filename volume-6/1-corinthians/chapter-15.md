@@ -1,5 +1,5 @@
 ---
-title: "1 Corinthians 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Corinthians 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Discover the foundational truth of Christianity in 1 Corinthians 15: The apostle powerfully establishes the certainty of the Resurrection of Christ, proving it is the cornerstone of salvation. Explore the profound implications of this resurrection—from the promise of eternal life for believers to the ultimate conquest over death—and understand why this doctrine is the non-negotiable hope for every Christian.

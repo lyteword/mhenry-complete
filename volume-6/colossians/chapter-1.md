@@ -1,5 +1,5 @@
 ---
-title: "Colossians 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Colossians 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Explore the profound theological truths of Colossians Chapter 1 through this detailed commentary. This deep dive explores the doctrine of Christ as the ultimate Redeemer, the power of the gospel, and the spiritual strength required for a faithful Christian life. Discover how faith, love, and hope lead to eternal glory and a life lived in the knowledge of God's will.

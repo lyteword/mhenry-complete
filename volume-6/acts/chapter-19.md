@@ -1,5 +1,5 @@
 ---
-title: "Acts 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
   Dive into Acts Chapter 19 to explore the pivotal ministry of Paul in Ephesus, detailing the profound impact of the Holy Spirit, miraculous proofs, and the intense conflict between Christianity and paganism. Uncover how the Gospel spread mightily, leading to powerful conversions and Christ's ultimate victory over Satan.

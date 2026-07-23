@@ -1,5 +1,5 @@
 ---
-title: "Hebrews 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hebrews 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
   Discover the profound superiority of the Gospel over the Law in Hebrews chapter 1. This commentary reveals the unparalleled glory of Jesus Christ, who is the heir of all things and the true Mediator, vastly exceeding the glory of the angels. Understand the nature, power, and eternal reign of Christ as the ultimate revelation of God's will.

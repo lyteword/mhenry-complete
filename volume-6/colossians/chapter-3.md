@@ -1,5 +1,5 @@
 ---
-title: "Colossians 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Colossians 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Unlock the profound spiritual truths of Colossians 3 with this deep dive into Christian living. Discover how to achieve true transformation by mortifying sin, setting your affections on heaven, and cultivating radical love, humility, and forgiveness within your relationships. Learn the practical duties of a Christ-centered life that brings you into alignment with God's will.

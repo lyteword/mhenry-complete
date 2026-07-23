@@ -1,5 +1,5 @@
 ---
-title: "1 Timothy 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Timothy 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Master the principles of church leadership with this deep dive into 1 Timothy Chapter 5, covering essential biblical guidance on minister conduct, handling reproofs, and the proper care of widows. Discover crucial directives on elder honor, church discipline, and maintaining spiritual purity to strengthen your understanding of biblical doctrine and pastoral responsibilities. Essential reading for anyone studying New Testament church governance and pastoral care.

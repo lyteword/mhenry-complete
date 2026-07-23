@@ -1,5 +1,5 @@
 ---
-title: "Hebrews 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hebrews 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Explore Hebrews chapter 8 to discover the incredible superiority of Christ's priesthood as the Mediator of a better covenant. This chapter reveals the shift from the old covenant to the New Covenant of grace, highlighting how Christ's sacrifice secures complete forgiveness and eternal life.

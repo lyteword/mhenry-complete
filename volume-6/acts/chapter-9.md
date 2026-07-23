@@ -1,5 +1,5 @@
 ---
-title: "Acts 9 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 9 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "9"
 description: >
   Discover the powerful story of St. Paul's dramatic conversion on the road to Damascus, detailing his transformation from a fierce persecutor of Christianity to its most passionate apostle. This chapter explores the miracle of divine grace, the experience of radical repentance, and how God uses the greatest sinners for His glorious purpose. Explore the profound impact of salvation and the unwavering power of God's mercy.

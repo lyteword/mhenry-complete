@@ -1,5 +1,5 @@
 ---
-title: "Revelation 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Explore Revelation 12 to understand the epic battle between the Church and the forces of darkness. Discover how the Woman, clothed in Christ's light, overcomes the Dragon and Satan through the power of the Lamb and the word of testimony. Learn about divine providence and the ultimate triumph of salvation in this profound biblical prophecy.

@@ -1,5 +1,5 @@
 ---
-title: "Revelation 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Explore the profound prophecies of Revelation 14, detailing the triumphant appearance of the Lamb of God and the warnings concerning the fall of Babylon. Uncover the meaning of the harvest, the everlasting gospel, and the patience of the saints as we approach the end times and divine judgment.

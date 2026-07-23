@@ -1,5 +1,5 @@
 ---
-title: "Ephesians 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ephesians 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Explore Ephesians Chapter 6 to discover the essential guide for Christian living, covering the vital duties of obedience within family and work. Learn how to equip yourself with the complete Armor of God—faith, truth, and the Word of God—to conquer spiritual warfare. This powerful passage provides a roadmap for standing firm against temptation and proclaiming the Gospel boldly.

@@ -1,5 +1,5 @@
 ---
-title: "Hebrews 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hebrews 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
   Explore the profound nature of the Priesthood of Christ in Hebrews Chapter 5. This detailed commentary explores the unique, eternal order of Christ's priesthood, His sacrificial obedience, and the crucial journey for believers to move from spiritual 'milk' to the 'strong meat' of deep understanding. Discover how to cultivate the necessary spiritual discernment to grasp the great mysteries of God's will.

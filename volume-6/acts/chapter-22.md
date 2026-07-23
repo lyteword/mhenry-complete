@@ -1,5 +1,5 @@
 ---
-title: "Acts 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
   Discover the powerful testimony of Acts 22, where the Apostle Paul defends his life, detailing his journey from zealous persecutor to an apostle called by a divine commission. Explore the miraculous conversion experience, his deep Jewish heritage, and the profound spiritual reason why he was sent to preach the gospel to the Gentiles. Read the complete biblical commentary on Paul's defense and the divine plan behind his mission.

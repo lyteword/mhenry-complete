@@ -1,5 +1,5 @@
 ---
-title: "Revelation 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
   Uncover the terrifying prophecy of Revelation Chapter 8, exploring the prelude to the seven trumpets that herald the rise of the antichrist. This in-depth commentary details the dire scenes of divine judgment, including hail, fire, and the poisoning of waters, providing profound insight into end-times events and the ultimate bounds of God's wrath. Read this essential study to understand the escalating calamities and the spiritual warnings for the world.

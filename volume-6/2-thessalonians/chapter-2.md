@@ -1,5 +1,5 @@
 ---
-title: "2 Thessalonians 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Thessalonians 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Dive deep into 2 Thessalonians chapter 2 to understand the apostle's crucial warnings about the end times, including the prophecy of the Antichrist and the coming apostasy. Discover how to avoid deception, understand the workings of iniquity, and find encouragement to stand firm in your faith for eternal salvation. This commentary provides essential insight into perseverance and the hope of the saints.

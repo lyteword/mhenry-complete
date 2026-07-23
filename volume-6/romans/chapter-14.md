@@ -1,5 +1,5 @@
 ---
-title: "Romans 14 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 14 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "14"
 description: >
   Navigate the complexities of Christian unity in Romans 14. This chapter offers profound guidance on managing differing views concerning conscience, dietary practices, and religious observance to foster true Christian love. Learn how to avoid judging and dividing fellow believers by focusing on Christ's sovereignty, prioritizing righteousness and peace, and ensuring your actions do not destroy the work of God. Discover the scriptural wisdom for harmonious fellowship in the church today.

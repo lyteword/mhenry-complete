@@ -1,5 +1,5 @@
 ---
-title: "Hebrews 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hebrews 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Discover the powerful call to Christian perseverance in Hebrews 12. This chapter urges believers to lay aside burdens, look to Jesus as the ultimate example, and run the race of faith with patience through trials. Learn how God uses afflictions as gentle discipline to purify our hearts, contrasting the terrifying old covenant with the peaceful, glorious reality of the heavenly church.

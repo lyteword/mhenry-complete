@@ -1,5 +1,5 @@
 ---
-title: "Revelation 18 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 18 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "18"
 description: >
   Explore the profound biblical commentary on Revelation Chapter 18, detailing the prophesied fall of Babylon. Discover the reasons for her destruction, the lament of her worldly followers, and the glorious triumph of God's divine justice. This deep dive offers powerful insights into prophecy, worldly sin, and the ultimate ruin of Babylon.

@@ -1,5 +1,5 @@
 ---
-title: "Acts 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
   Uncover the pivotal theological debate in Acts 15 as the apostles and elders settled the controversy over whether Gentile converts needed circumcision and adherence to the ceremonial law for salvation. This detailed commentary explores the definitive decision of the Jerusalem council, emphasizing that salvation is achieved solely through the grace of God and faith, ensuring the unity of the church between Jews and Gentiles. Discover the profound lessons on grace, unity, and the true nature of Christian freedom.

@@ -1,5 +1,5 @@
 ---
-title: "1 Corinthians 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Corinthians 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
   Dive deep into 1 Corinthians Chapter 6 to uncover the apostle's profound teachings on Christian conduct, addressing issues like litigiousness, the gravity of fornication, and the sanctity of the body as the temple of the Holy Spirit. This essential commentary explores the call to prioritize brotherhood, recognize the ultimate judgment of the saints, and understand why glorifying God through our body and spirit is paramount. Learn how to navigate conflicts and maintain holiness in light of these critical biblical truths.

@@ -1,5 +1,5 @@
 ---
-title: "1 Thessalonians 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Thessalonians 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
   Discover the profound depth of Apostle Paul's love and concern for the Thessalonians in 1 Thessalonians Chapter 3. This passage explores the vital connection between faithful ministry, the encouragement of steadfast faith, and the fervent prayer for believers to grow in love and holiness. Uncover timeless wisdom on perseverance, spiritual comfort, and achieving unblamable devotion to God.

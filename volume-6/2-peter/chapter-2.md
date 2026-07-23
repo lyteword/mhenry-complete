@@ -1,5 +1,5 @@
 ---
-title: "2 Peter 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Peter 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
   Explore the profound warning in 2 Peter Chapter 2 as the Apostle Peter details the dangers of false teachers, corrupt leaders, and destructive heresies. This deep biblical commentary highlights the severe divine judgments awaiting those who reject the truth, urging believers to maintain vigilance and perseverance in the path of righteousness. Discover how to guard your faith against spiritual deception and embrace the everlasting truth of Christ.

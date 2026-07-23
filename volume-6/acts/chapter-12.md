@@ -1,5 +1,5 @@
 ---
-title: "Acts 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
   Explore Acts 12 to uncover the dramatic story of Peter's imprisonment, martyrdom, and miraculous deliverance by an angel. This powerful account highlights the crucial role of fervent church prayer in securing divine intervention, revealing the ultimate triumph of faith over worldly oppression and pride. Discover how God works miracles to bring believers out of the prison-house and into glorious liberty.
