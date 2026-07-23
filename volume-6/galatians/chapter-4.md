@@ -2,7 +2,7 @@
 title: "Galatians 4 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "4"
 description: >
-  The apostle, in this chapter, is still carrying on the same general design as in the former—to recover these Christians from the impressions made upon them by the judaizing teacher...
+  Discover the profound truth of Galatians 4: Christians are freed from the bondage of the Law of Moses and adopted as sons and heirs of God through the grace of Christ. This chapter powerfully contrasts the old dispensation of legal bondage with the new liberty found in the Gospel, urging believers to reject works-based justification and embrace the spiritual freedom of being children of God. Learn how the Spirit of adoption empowers you to live in the grace and liberty Christ has secured for you.
 weight: 4
 ---
 
