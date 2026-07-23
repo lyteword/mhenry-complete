@@ -2,7 +2,7 @@
 title: "Revelation 15 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "15"
 description: >
-  Hitherto, according to the judgment of very eminent expositors, God had represented to his servant, John, I. The state of the church under the pagan powers, in the six seals opened...
+  Unveil the profound apocalyptic vision of Revelation 15, detailing the execution of the seven last plagues by angels to destroy the Antichrist. Explore the powerful symbolism of the seven vials, representing the wrath of God, and discover the ultimate vindication and triumph of the true church. This chapter offers an awe-inspiring look into God's ultimate judgment and the fulfillment of biblical prophecy.
 weight: 15
 ---
 
