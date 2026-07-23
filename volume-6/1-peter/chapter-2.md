@@ -2,7 +2,7 @@
 title: "1 Peter 2 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "2"
 description: >
-  The general exhortation to holiness is continued, and enforced by several reasons taken from the foundation on which Christians are built, Jesus Christ, and from their spiritual bl...
+  Deep dive into 1 Peter 2 to unlock profound truths about Christian living, emphasizing the necessity of purity, the nourishment of God's Word, and the preciousness of Jesus Christ as the living foundation. Discover how to live as a holy priesthood, embrace submission, and find strength through Christ's sacrificial example in overcoming sin and enduring hardship.
 weight: 2
 ---
 
