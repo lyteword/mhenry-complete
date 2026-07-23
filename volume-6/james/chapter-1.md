@@ -2,7 +2,7 @@
 title: "James 1 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "1"
 description: >
-  After the inscription and salutation (Jam 1:1) Christians are taught how to conduct themselves when under the cross. Several graces and duties are recommended; and those who endure...
+  Discover the profound lessons of the James commentary, offering deep guidance on Christian conduct, cultivating patience through trials, and seeking divine wisdom in every challenge. This essential reading clarifies the vital distinction between merely hearing scripture and actively *doing* the Word to achieve true, pure, and blessed faith. Learn how to suppress corrupt affections and live a life truly aligned with God's will.
 weight: 1
 ---
 
