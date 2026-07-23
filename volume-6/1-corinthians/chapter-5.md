@@ -2,7 +2,7 @@
 title: "1 Corinthians 5 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "5"
 description: >
-  In this chapter the apostle, I. Blames them for their indulgence in the case of the incestuous person, and orders him to be excommunicated, and delivered to Satan, 1Co 5:1-6. II. H...
+  Dive deep into 1 Corinthians Chapter 5 to uncover the Apostle Paul's powerful message on Christian purity and moral conduct. This essential commentary explores the necessity of purging the "old leaven" from your life and the serious consequences of indulging in gross immorality within the church. Learn how to maintain sincerity, avoid scandalous influences, and secure your spiritual well-being through unwavering devotion to Christ.
 weight: 5
 ---
 
