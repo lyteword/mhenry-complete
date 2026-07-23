@@ -1,8 +1,8 @@
 ---
-title: "Romans 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
-  The apostle, having reconciled that great truth of the rejection of the Jews with the promise made unto the fathers, is, in this chapter, further labouring to mollify the harshness...
+  Explore Romans 11 to understand the complex reconciliation of God's rejection of the Jewish people with His enduring promise. Discover the profound theology of election, the role of the remnant, and how the Gentiles are grafted into the covenant, all under the unwavering sovereignty of God.
 weight: 11
 ---
 

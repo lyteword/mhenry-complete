@@ -1,8 +1,8 @@
 ---
-title: "Acts 19 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 19 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "19"
 description: >
-  We left Paul in his circuit visiting the churches (Ac 18:23), but we have not forgotten, nor has he, the promise he made to his friends at Ephesus, to return to them, and make some...
+  Dive into Acts Chapter 19 to explore the pivotal ministry of Paul in Ephesus, detailing the profound impact of the Holy Spirit, miraculous proofs, and the intense conflict between Christianity and paganism. Uncover how the Gospel spread mightily, leading to powerful conversions and Christ's ultimate victory over Satan.
 weight: 19
 ---
 

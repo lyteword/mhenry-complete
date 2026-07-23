@@ -1,8 +1,8 @@
 ---
-title: "2 Corinthians 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Corinthians 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
-  In this and the following chapter Paul is exhorting and directing the Corinthians about a particular work of charity—to relieve the necessities of the poor saints at Jerusalem and ...
+  Discover the profound biblical principles of Christian charity in 2 Corinthians chapter 8, exploring the powerful example of the Macedonian churches and Paul's exhortations on generous giving. This deep dive reveals how faith, diligence, and remembering Christ's sacrifice inspire us to act with sincere generosity and mutual support. Learn the key lessons on motivating your giving and the importance of performing good works with true devotion.
 weight: 8
 ---
 

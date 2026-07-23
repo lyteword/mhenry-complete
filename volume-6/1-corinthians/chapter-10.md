@@ -1,8 +1,8 @@
 ---
-title: "1 Corinthians 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Corinthians 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
-  In this chapter the apostle prosecutes the argument at the close of the last, and, I. Warns the Corinthians against security, by the example of the Jews, who, notwithstanding their...
+  Dive deep into 1 Corinthians Chapter 10 with this expert commentary to explore profound theological themes. This analysis offers critical warnings against idolatry, navigates the complexities of Christian liberty, and explores the crucial role of conscience in discerning what truly edifies the church. Understand how to maintain fellowship with God while navigating cultural pressures and seeking the glory of God in every aspect of life.
 weight: 10
 ---
 

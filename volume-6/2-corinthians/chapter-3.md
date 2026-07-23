@@ -1,8 +1,8 @@
 ---
-title: "2 Corinthians 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Corinthians 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  The apostle makes an apology for his seeming to commend himself, and is careful not to assume too much to himself, but to ascribe all praise unto God, 2Co 3:1-5. He then draws a co...
+  Discover the profound theological contrast in 2 Corinthians 3 by exploring the superiority of the Gospel over the Law. This commentary reveals how the Spirit of God brings true life, liberty, and glorious spiritual transformation, showing why the New Testament is the ultimate source of grace. Uncover the truth that illuminates the glory of Christ and the power of the Gospel today.
 weight: 3
 ---
 

@@ -1,8 +1,8 @@
 ---
-title: "Revelation 16 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 16 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "16"
 description: >
-  In this chapter we have an account of the pouring forth of these vials that were filled with the wrath of God. They were poured out upon the whole antichristian empire, and on ever...
+  Explore Revelation Chapter 16, which details the terrifying pouring of the seven vials filled with the wrath of God upon the antichristian empire. Discover the sequence of divine judgments, from the sea turning to blood to the final destruction of Babylon. Understand the prophecy regarding God's ultimate victory and the downfall of the wicked world.
 weight: 16
 ---
 

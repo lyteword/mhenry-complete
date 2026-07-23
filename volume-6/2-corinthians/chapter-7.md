@@ -1,8 +1,8 @@
 ---
-title: "2 Corinthians 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Corinthians 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
-  This chapter begins with an exhortation to progressive holiness and a due regard to the ministers of the gospel, 2Co 7:1-4. Then the apostle returns from a long digression to speak...
+  Discover the profound teachings of 2 Corinthians 7 on progressive holiness, urging believers to pursue sanctification in the fear of God. Learn how godly sorrow leads to true repentance and the fruits of a transformed life, alongside powerful encouragement for faithful ministers of the gospel. This chapter offers deep insight into spiritual cleansing and the comfort found in genuine faith and lasting commitment.
 weight: 7
 ---
 

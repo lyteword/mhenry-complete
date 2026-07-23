@@ -1,8 +1,8 @@
 ---
-title: "Revelation 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
-  In this chapter the prophetical scene opens; and, as the epistolary part opened with a vision of Christ (Re 1:1-20), so this part is introduced with a glorious appearance of the gr...
+  Discover the breathtaking vision of Revelation 4, where John witnesses the glorious throne of the Almighty God, surrounded by heavenly beings and symbols of divine glory. This profound biblical commentary explores the majesty of God's sovereignty, the nature of the seven Spirits of God, and the worship due to the eternal Creator. Dive deep into this study to understand the ultimate reality of heaven and the true meaning of Christian theology.
 weight: 4
 ---
 

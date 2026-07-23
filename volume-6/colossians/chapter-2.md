@@ -1,8 +1,8 @@
 ---
-title: "Colossians 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Colossians 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  I\\. The apostle expresses concern for the Colossians, Col 2:1-3. II. He repeats it again, Col 2:5. III. He cautions them against false teachers among the Jews (Col 2:4,6,7), and ag...
+  Discover the profound spiritual lessons in Colossians chapter 2. This commentary explores Paul's earnest concern for the Colossians, detailing how true spiritual prosperity is achieved through understanding the mystery of God and being deeply rooted in Christ. Learn how to avoid false teachers and embrace the freedom found in Christ, realizing that all wisdom and knowledge reside in Him.
 weight: 2
 ---
 

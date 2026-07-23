@@ -1,8 +1,8 @@
 ---
-title: "Revelation 22 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 22 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "22"
 description: >
-  In this chapter we have, I. A further description of the heavenly state of the church, Re 22:1-5. II. A confirmation of this and all the other visions of this book, Re 22:6-19. III...
+  Discover the ultimate vision of the New Jerusalem in Revelation 22, exploring the eternal paradise of the Tree of Life and the reign of God. This commentary confirms the divine authority of scripture and assures believers of Christ's speedy return, offering profound hope and eternal life.
 weight: 22
 ---
 

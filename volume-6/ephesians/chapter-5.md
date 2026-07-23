@@ -1,8 +1,8 @@
 ---
-title: "Ephesians 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ephesians 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
-  We had several important exhortations in the close of the foregoing chapter, and they are continued in this: particularly, I. We have here an exhortation to mutual love and charity...
+  Discover the profound wisdom of Ephesians 5, focusing on the essential themes of mutual love, spiritual discipline, and righteous living. This guide explores how Christians can walk in love, overcome sin, and live with wisdom by understanding their roles within marriage. Learn biblical guidance on submission, devotion, and how to walk as children of light in a world full of temptation.
 weight: 5
 ---
 

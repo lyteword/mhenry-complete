@@ -1,8 +1,8 @@
 ---
-title: "Acts 26 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 26 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "26"
 description: >
-  We left Paul at the bar, and Festus, and Agrippa, and Bernice, and all the great men of the city of Cæsarea, upon the bench, or about it, waiting to hear what he had to say for him...
+  Explore the profound defense of the Apostle Paul in Acts 26 as he addresses the Jews before King Agrippa, detailing his journey from Pharisee to missionary. This commentary delves into his divine commission, the resurrection of the dead, and the universal message of the Gospel that turns darkness into light for all people.
 weight: 26
 ---
 

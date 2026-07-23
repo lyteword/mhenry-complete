@@ -1,8 +1,8 @@
 ---
-title: "2 Corinthians 11 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Corinthians 11 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "11"
 description: >
-  In this chapter the apostle goes on with his discourse, in opposition to the false apostles, who were very industrious to lessen his interest and reputation among the Corinthians, ...
+  Uncover the powerful defense of the Apostle Paul in 2 Corinthians Chapter 11 as he confronts false apostles who sought to undermine his authority. This deep dive explores Paul's qualifications, extraordinary labors, and profound sufferings, revealing the true cost of ministry and the unwavering commitment required to preach the Gospel. Discover the spiritual resilience and biblical truth behind enduring persecution and maintaining apostolic integrity.
 weight: 11
 ---
 

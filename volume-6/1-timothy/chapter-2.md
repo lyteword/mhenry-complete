@@ -1,8 +1,8 @@
 ---
-title: "1 Timothy 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Timothy 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  In this chapter Paul treats, I. Of prayer, with many reasons for it, 1Ti 2:1-8. II. Of women's apparel, 1Ti 2:9,10. III. Of their subjection, with the reasons of it, 1Ti 2:11-14. I...
+  Discover the profound teachings of 1 Timothy Chapter 2, exploring the call to universal prayer for all men and leaders, and the foundational role of Christ as the ultimate Mediator. This chapter offers essential biblical guidance on Christian conduct, urging women toward modesty, good works, and submission, emphasizing that true godliness is expressed through faith and integrity. Learn how to deepen your intercession and live a life of peace and holiness according to scripture.
 weight: 2
 ---
 

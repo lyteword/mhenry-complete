@@ -1,8 +1,8 @@
 ---
-title: "1 John 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 John 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  The apostle here magnifies the love of God in our adoption, 1Jo 3:1,2. He thereupon argues for holiness (1Jo 3:3), and against sin, 1Jo 3:4-19. He presses brotherly love, 1Jo 3:11-...
+  Discover the profound message of 1 John 3, exploring the incredible love of God that makes us the sons of God. Learn how to pursue holiness and cultivate brotherly love to secure assurance of eternal life. This commentary guides you through the path of faith, obedience, and true Christian living.
 weight: 3
 ---
 

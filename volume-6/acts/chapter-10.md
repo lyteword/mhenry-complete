@@ -1,8 +1,8 @@
 ---
-title: "Acts 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
-  It is a turn very new and remarkable which the story of this chapter gives to the Acts of the apostles; hitherto, both at Jerusalem and every where else where the ministers of Chri...
+  Discover the pivotal moment in Christian history in Acts Chapter 10, as the story of Cornelius and Peter reveals how God opened the door of faith to the Gentiles. Explore the divine vision, Peter's transformation, and the profound theological shift that abolished religious barriers, establishing the universal scope of the gospel. This essential New Testament narrative offers deep insight into God's plan for all nations.
 weight: 10
 ---
 

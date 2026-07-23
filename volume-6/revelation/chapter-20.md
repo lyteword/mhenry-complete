@@ -1,8 +1,8 @@
 ---
-title: "Revelation 20 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 20 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "20"
 description: >
-  This chapter is thought by some to be the darkest part of all this prophecy: it is very probable that the things contained in it are not yet accomplished; and therefore it is the w...
+  Uncover the profound themes of Revelation 20, exploring the binding of Satan for a thousand years and the glorious reign of the saints in the first resurrection. Discover the account of the ultimate universal judgment, where the dead are judged according to their works, securing eternal life for those justified by the gospel. Learn about the final conflict with Gog and Magog and the eternal destiny of the wicked.
 weight: 20
 ---
 

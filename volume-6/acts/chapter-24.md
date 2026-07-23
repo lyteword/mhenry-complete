@@ -1,8 +1,8 @@
 ---
-title: "Acts 24 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 24 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "24"
 description: >
-  We left Paul a prisoner at Cæsarea, in Herod's judgment-hall, expecting his trial to come on quickly; for in the beginning of his imprisonment his affairs moved very quickly, but a...
+  Dive deep into Acts Chapter 24 with this comprehensive commentary, exploring the pivotal trial of the Apostle Paul before Governor Felix. Discover the intricate defense Paul mounts against accusations of sedition and heresy, alongside an in-depth analysis of the legal and theological drama. This essential study illuminates the early challenges of Christianity and the profound faith that shaped one of history's greatest figures.
 weight: 24
 ---
 

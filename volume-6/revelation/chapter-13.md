@@ -1,8 +1,8 @@
 ---
-title: "Revelation 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
-  We have, in this chapter, a further discovery and description of the church's enemies: not other enemies than are mentioned before, but described after another manner, that the met...
+  Unravel the profound prophecies of Revelation 13 by examining the symbolic conflict between the first and second beasts, which represent Rome paganism and papal authority. This detailed commentary explores the methods of spiritual warfare, the terrifying mark of the beast, and the enduring patience of the saints against worldly deception.
 weight: 13
 ---
 

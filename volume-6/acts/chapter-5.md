@@ -1,8 +1,8 @@
 ---
-title: "Acts 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
-  In this chapter we have, I. The sin and punishment of Ananias and Sapphira, who, for lying to the Holy Ghost, were struck dead at the word of Peter, Ac 5:1-11. II. The flourishing ...
+  Uncover the profound drama of Acts Chapter 5, exploring the shocking sin and deadly judgment of Ananias and Sapphira, a powerful lesson on hypocrisy and covetousness. This commentary delves into the flourishing power of the church through the miracles of the apostles and the divine protection granted during intense persecution. Read this in-depth analysis to grasp the core themes of faith, divine judgment, and the unstoppable power of the Gospel.
 weight: 5
 ---
 

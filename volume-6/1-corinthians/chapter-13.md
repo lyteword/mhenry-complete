@@ -1,8 +1,8 @@
 ---
-title: "1 Corinthians 13 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Corinthians 13 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "13"
 description: >
-  In this chapter the apostle goes on to show more particularly what that more excellent way was of which he had just before been speaking. He recommends it, I. By showing the necess...
+  Discover the profound truth of 1 Corinthians 13, where the apostle argues that true love (charity) is superior to all spiritual gifts like prophecy and miracles. Learn the essential qualities of agape love—patience, kindness, and endurance—and why it is the greatest grace, lasting forever. This commentary reveals how genuine love transforms every other gift into something meaningful for eternal life.
 weight: 13
 ---
 

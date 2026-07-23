@@ -1,8 +1,8 @@
 ---
-title: "Revelation 3 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Revelation 3 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "3"
 description: >
-  Here we have three more of the epistles of Christ to the churches: I. To Sardis, Re 3:1-6. II. To Philadelphia, Re 3:7-13. III. To Laodicea, Re 3:14-22.
+  Dive into Revelation 3 and unlock profound spiritual insights as we examine the struggles of the churches. This commentary highlights the dangers of spiritual deadness and lukewarmness, offering a compelling call to watchfulness, true repentance, and the victorious reward for persevering in Christ. Discover the powerful guidance for overcoming and standing as a pillar of faith.
 weight: 3
 ---
 

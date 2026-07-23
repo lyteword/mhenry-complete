@@ -1,8 +1,8 @@
 ---
-title: "1 Timothy 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Timothy 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
-  After the inscription (1Ti 1:1,2) we have, I. The charge given to Timothy, 1Ti 1:3,4. II. The true end of the law (1Ti 1:5-11), where he shows that it is entirely agreeable to the ...
+  Discover the profound teachings of 1 Timothy, where the Apostle Paul guides Timothy on the true end of the law: love, a pure heart, and unfeigned faith. Explore the powerful narrative of Paul's conversion and learn essential principles for effective Christian ministry, focusing on doctrine, good conscience, and the abundant grace of God. This commentary provides deep insight into biblical leadership and the heart of the Gospel.
 weight: 1
 ---
 

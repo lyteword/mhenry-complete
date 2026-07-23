@@ -1,8 +1,8 @@
 ---
-title: "Philippians 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Philippians 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
-  He begins with the inscription and benediction, Php 1:1,2. He gives thanks for the saints at Philippi, Php 1:3-6. He speaks of his great affection and concern for their spiritual w...
+  Discover the profound encouragement and deep theological insight of Philippians Chapter 1 through this expert commentary. Explore Paul's heartfelt thanks for fellowship in the gospel and learn how to maintain steadfastness, boldness, and unwavering faith through suffering. This commentary illuminates the power of grace, the nature of the work of God, and the assurance of Christ's ultimate triumph.
 weight: 1
 ---
 

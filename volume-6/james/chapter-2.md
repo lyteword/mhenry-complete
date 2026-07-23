@@ -1,8 +1,8 @@
 ---
-title: "James 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "James 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  In this chapter the apostle condemns a sinful regarding of the rich, and despising the poor, which he imputes to partiality and injustice, and shows it to be an acting contrary to ...
+  Explore James Chapter 2 to understand the serious sin of respecting persons and judging based on wealth. Discover why true Christian faith must be evidenced by righteous works, not just a mere profession. Learn how the law of Christ calls us to show mercy to the poor and live a life of true, active devotion.
 weight: 2
 ---
 

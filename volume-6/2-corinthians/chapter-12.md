@@ -1,8 +1,8 @@
 ---
-title: "2 Corinthians 12 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Corinthians 12 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "12"
 description: >
-  In this chapter the apostle proceeds in maintaining the honour of his apostleship. He magnified his office when there were those who vilified it. What he says in his own praise was...
+  Explore 2 Corinthians 12 to discover the profound lessons on maintaining humility and strength through suffering. This powerful biblical commentary delves into the apostle Paul's struggle with his 'thorn in the flesh,' revealing how God's grace is made perfect in our weaknesses. Learn practical insights on selfless ministry, divine sufficiency, and how to glorify God even in affliction.
 weight: 12
 ---
 

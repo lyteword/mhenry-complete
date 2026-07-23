@@ -1,8 +1,8 @@
 ---
-title: "Romans 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
-  The apostle, having fully explained the doctrine of justification, and pressed the necessity of sanctification, in this chapter applies himself to the consolation of the Lord's peo...
+  Discover the profound comfort of Romans 8, where the apostle reveals the believer's unshakable privileges: freedom from condemnation and the power of the Spirit. Understand how to walk after the Spirit, embrace eternal hope, and find strength through divine intercession to secure your life and glorious destiny.
 weight: 8
 ---
 

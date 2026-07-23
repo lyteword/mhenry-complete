@@ -1,8 +1,8 @@
 ---
-title: "Philippians 4 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Philippians 4 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "4"
 description: >
-  Exhortations to several Christian duties, as stedfastness, unanimity, joy, etc., Php 4:1-9. The apostle's grateful acknowledgments of the Philippians' kindness to him, with express...
+  Dive into Philippians Chapter 4 to discover essential Christian duties, including how to maintain steadfastness, cultivate holy joy, and practice diligent prayer to find the peace of God. This powerful passage offers profound lessons on contentment, mutual support among believers, and how to seek a good name through moderation and gratitude.
 weight: 4
 ---
 

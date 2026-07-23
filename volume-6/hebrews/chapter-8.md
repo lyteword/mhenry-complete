@@ -1,8 +1,8 @@
 ---
-title: "Hebrews 8 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hebrews 8 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "8"
 description: >
-  In this chapter the apostle pursues his former subject, the priesthood of Christ. And, I. He sums up what he had already said, Heb 8:1,2. II. He sets before them the necessary part...
+  Explore Hebrews chapter 8 to discover the incredible superiority of Christ's priesthood as the Mediator of a better covenant. This chapter reveals the shift from the old covenant to the New Covenant of grace, highlighting how Christ's sacrifice secures complete forgiveness and eternal life.
 weight: 8
 ---
 

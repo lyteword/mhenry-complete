@@ -1,8 +1,8 @@
 ---
-title: "1 Corinthians 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Corinthians 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  The apostle proceeds with his argument in this chapter, and, I. Reminds the Corinthians of the plain manner wherein he delivered the gospel to them, 1Co 2:1-5. But yet, II. Shows t...
+  Unlock the profound difference between worldly wisdom and the divine wisdom revealed in 1 Corinthians 2. Learn how the apostles preached the gospel with the power of the Holy Spirit, revealing the hidden truths of God that only the Spirit can unlock. Discover the mystery of Christ crucified and how spiritual truths lead to true salvation and everlasting glory.
 weight: 2
 ---
 

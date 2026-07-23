@@ -1,8 +1,8 @@
 ---
-title: "2 Corinthians 10 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "2 Corinthians 10 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "10"
 description: >
-  There was no place in which the apostle Paul met with more opposition from false apostles than at Corinth; he had many enemies there. Let not any of the ministers of Christ think i...
+  Discover the profound spiritual power of Paul's ministry in 2 Corinthians Chapter 10. This commentary explores how to use the weapons of the gospel to dismantle spiritual strongholds, counter false teachings, and establish biblical authority in ministry. Learn how humility, measured faith, and glorifying God—not self—are the keys to overcoming opposition and achieving true victory in spiritual warfare.
 weight: 10
 ---
 

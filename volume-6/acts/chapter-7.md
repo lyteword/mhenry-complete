@@ -1,8 +1,8 @@
 ---
-title: "Acts 7 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 7 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "7"
 description: >
-  When our Lord Jesus called his apostles out to be employed in services and sufferings for him, he told them that yet the last should be first, and the first last, which was remarka...
+  Explore the powerful defense of St. Stephen in Acts 7, where he uses the history of Abraham, Joseph, and Moses to prove that God's promises are fulfilled in Christ. This commentary offers deep insights into the Old Testament covenants, revealing how the nation's history points toward the ultimate deliverance and the true meaning of the law. Discover the profound connection between prophecy, persecution, and the coming of the Messiah.
 weight: 7
 ---
 

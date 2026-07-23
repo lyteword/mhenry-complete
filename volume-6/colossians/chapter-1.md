@@ -1,8 +1,8 @@
 ---
-title: "Colossians 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Colossians 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
-  We have here, I. The inscription, as usual, Col 1:1,2. II. His thanksgiving to God for what he had heard concerning them—their faith, love, and hope, Col 1:3-8. III. His prayer for...
+  Explore the profound theological truths of Colossians Chapter 1 through this detailed commentary. This deep dive explores the doctrine of Christ as the ultimate Redeemer, the power of the gospel, and the spiritual strength required for a faithful Christian life. Discover how faith, love, and hope lead to eternal glory and a life lived in the knowledge of God's will.
 weight: 1
 ---
 

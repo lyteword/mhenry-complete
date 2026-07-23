@@ -1,8 +1,8 @@
 ---
-title: "Ephesians 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Ephesians 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  This chapter contains an account, I. Of the miserable condition of these Ephesians by nature (Eph 2:1-3) and again, Eph 2:11,12. II. Of the glorious change that was wrought in them...
+  Discover the profound transformation of the human spirit in Ephesians Chapter 2. Explore the contrast between the miserable condition of being dead in sin and the glorious change wrought by God's saving grace and faith. This chapter reveals how Christ reconciles Jews and Gentiles, establishing the Church as a holy fellowship built upon Him as the cornerstone.
 weight: 2
 ---
 

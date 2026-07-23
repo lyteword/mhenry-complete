@@ -1,8 +1,8 @@
 ---
-title: "1 Timothy 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Timothy 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  I\\. He treats of the duty of servants, 1Ti 6:1,2. II. Of false teachers, 1Ti 6:3-5. III. Of godliness and covetousness, 1Ti 6:6-10. IV. What Timothy was to flee, and what to follow...
+  Discover the profound wisdom of 1 Timothy 6, exploring the vital balance between godly contentment and the dangers of covetousness. This commentary offers essential guidance on Christian duty, how to navigate false teaching, and how rich believers can secure eternal life through good works. Learn practical advice for living a life of true faith and ministerial integrity.
 weight: 6
 ---
 

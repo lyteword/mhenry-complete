@@ -1,8 +1,8 @@
 ---
-title: "Hebrews 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Hebrews 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  In this chapter the apostle proceeds to persuade the Hebrews to make a better proficiency in religion than they had done, as the best way to prevent apostasy, the dreadful nature a...
+  Discover the powerful guidance from Hebrews Chapter 6 on achieving spiritual maturity and preventing apostasy. This chapter lays out six essential foundation principles for building a life of holiness, coupled with a profound assurance of hope rooted in the immutable promise of Jesus Christ as our eternal anchor. Learn how to persevere in faith and secure your eternal salvation.
 weight: 6
 ---
 

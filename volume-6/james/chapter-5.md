@@ -1,8 +1,8 @@
 ---
-title: "James 5 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "James 5 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "5"
 description: >
-  In this chapter the apostle denounces the judgments of God upon those rich men who oppress the poor, showing them how great their sin and folly are in the sight of God, and how gri...
+  Discover the profound spiritual guidance of James Chapter 5, which delivers urgent warnings against the corruption of wealth and the dangers of oppression. This powerful commentary explores essential Christian virtues, including the necessity of patience during trials, the power of fervent prayer for the sick, and the vital call to confession and the active pursuit of saving souls. Learn how to navigate worldly temptations and harness the extraordinary efficacy of faith in your Christian life.
 weight: 5
 ---
 

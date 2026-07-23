@@ -1,8 +1,8 @@
 ---
-title: "1 Thessalonians 1 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Thessalonians 1 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "1"
 description: >
-  After the introduction (1Th 1:1) the apostle begins with a thanksgiving to God for the saving benefits bestowed on them, 1Th 1:2-5. And then mentions the sure evidences of the good...
+  Dive deep into 1 Thessalonians Chapter 1 with this comprehensive Bible commentary. Explore Paul's profound thanksgiving for the Thessalonians' powerful faith, enduring love, and hope, and discover how the gospel spread through the power of the Holy Spirit. Understand the core principles of Christian living, eternal election, and the significance of waiting for Christ's return.
 weight: 1
 ---
 

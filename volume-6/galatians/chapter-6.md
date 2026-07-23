@@ -1,8 +1,8 @@
 ---
-title: "Galatians 6 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Galatians 6 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "6"
 description: >
-  This chapter chiefly consists of two parts. In the former the apostle gives us several plain and practical directions, which more especially tend to instruct Christians in their du...
+  Dive into Galatians Chapter 6 to master essential Christian conduct, focusing on compassionate fellowship, bearing one another's burdens, and the power of self-examination. This guide explores the spiritual law of sowing and reaping, urging believers to find true glory in the Cross of Christ and embrace the life of a new creation.
 weight: 6
 ---
 

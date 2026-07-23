@@ -1,8 +1,8 @@
 ---
-title: "Acts 21 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Acts 21 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "21"
 description: >
-  We have, with a great deal of pleasure, attended the apostle in his travels throughout the Gentile nations to preach the gospel, and have seen a great harvest of souls gathered in ...
+  Explore the dramatic final chapter of Acts 21 as Matthew Henry's commentary unveils Paul's perilous journey from Cæsarea to Jerusalem. Discover the prophetic warnings, the conflict with Jewish authorities, and Paul's unwavering faith as he faces arrest in the Temple. This deep dive into Christian history reveals profound lessons on perseverance, the will of God, and the triumph of the Gospel.
 weight: 21
 ---
 

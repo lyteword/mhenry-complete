@@ -1,8 +1,8 @@
 ---
-title: "1 Thessalonians 2 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "1 Thessalonians 2 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "2"
 description: >
-  In this chapter the apostle puts the Thessalonians in mind of the manner of his preaching among them, 1Th 2:1-6. Then of the manner of his conversation among them, 1Th 2:7-12. Afte...
+  Discover the profound lessons from 1 Thessalonians Chapter 2 detailing the apostle Paul's sincere and effective Christian ministry. Explore how true spiritual leadership is characterized by unwavering faithfulness, gentle conduct, and preaching the pure, truthful word of God. Learn the principles of ministry that prioritize pleasing God over men, ensuring your service is impactful and worthy of glory.
 weight: 2
 ---
 

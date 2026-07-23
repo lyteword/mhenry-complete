@@ -1,8 +1,8 @@
 ---
-title: "Romans 15 | Read the Complete Matthew Henry Bible Commentary Online"
+title: "Romans 15 | The Complete Matthew Henry Bible Commentary"
 linkTitle: "15"
 description: >
-  The apostle, in this chapter, continues the discourse of the former, concerning mutual forbearance in indifferent things; and so draws towards a conclusion of the epistle. Where su...
+  Discover the profound call to mutual forbearance and self-denial in Romans 15. Learn how to foster true Christian unity by bearing one another's burdens, inspired by the ultimate example of Christ. Explore the powerful themes of hope and the glory of God through the grace of the Holy Spirit in Paul's ministry.
 weight: 15
 ---
 
