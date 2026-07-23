@@ -2,7 +2,7 @@
 title: "Hebrews 3 | Read the Complete Matthew Henry Bible Commentary Online"
 linkTitle: "3"
 description: >
-  In this chapter the apostle applies what he had said in the chapter foregoing concerning the priesthood of Christ, I. In a serious pathetic exhortation that this great high priest,...
+  Discover the profound theological insights of Hebrews Chapter 3, exploring the vital call to consider Jesus Christ as the High Priest and the builder of the church. This commentary offers a serious exhortation on maintaining steadfast faith and perseverance, providing crucial warnings against unbelief and the hardening of the heart. Read now to strengthen your conviction and hold fast to the hope of eternal salvation.
 weight: 3
 ---
 
